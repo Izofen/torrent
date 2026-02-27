@@ -1,3 +1,32 @@
+###  Публикация: 1193370   (262223) от 20.12.2017
+
+VA - The French Touch Connection - Soul Machinist (2016) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hop, Ambient>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frenic – Old Waltz (4:29)
+02. Spectateur – How They Smile (2:46)
+03. Wasaru – Tricky (instrumental) (3:42)
+04. Fred Yaddaden – Wild Time (3:46)(   Читать дальше...   )Производство: The French Touch ConnectionЖанр: Hip-Hop, Instrumental Hop, Ambient, Trip Hop, Beats, DowntempoПродолжительность: 01:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770C1096966D7784F06D77460C512ECE411E1485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503043   (260006) от 31.05.2012
 
 Rihanna - Magic (2012) [MP3|320 Kbps] <R&B, Pop>
@@ -719,35 +748,6 @@ Kuba - Albomba (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30198C7AA4525E6F352E4E57082EECEE7296FAAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459752   (241419) от 04.04.2021
-
-ZippO - Фитиль 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Перекур [02:22]
-02. Чёрный джип [02:49]
-03. Ай братан [02:53]
-04. Ватаката [02:45](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F71399FF688B89C535A711299293771DE1CA50F
 ```
 
 https://mybot314.ru/tekegram_catalog/

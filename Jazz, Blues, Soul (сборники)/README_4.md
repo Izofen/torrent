@@ -1,3 +1,32 @@
+###  Публикация: 1100380   (899650) от 04.02.2017
+
+VA - Jazz, Relax and Baby. Instrumental Music for Calm Down (2017) [MP3|320 Kbps] <Jazz, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Newborn Baby Song Academy - Jazz Music
+02. Jazz Music Collection - Baby Music
+03. Baby Lullabies Music Land - Relaxing Music
+04. Good Mood Music Academy - Positive Thinking(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14758094051B05E58E7A21AE4103631B4B9D0B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370152   (898367) от 26.03.2020
 
 VA - The Blues Mystery (2020) [MP3|320 Kbps] <Blues, Rock Blues>
@@ -731,35 +760,6 @@ Livin' Blues - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE51AA87096C13B03C9E5B35F23127CF44FA4CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999585   (862520) от 23.03.2016
-
-James Brown - 10 Of The Best (2015) [MP3|320 кб/с] <Funk, Soul, R&B>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please, Please, Please
-02. Papa’s Got a Brand New Bag
-03. Cold Sweat
-04. Say It Loud – I’m Black and I’m Proud(   Читать дальше...   )Жанр: Funk, Soul, R&BПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FAA5AA9F9858F24730B4D8BCD5D2C5E723D464
 ```
 
 https://mybot314.ru/tekegram_catalog/

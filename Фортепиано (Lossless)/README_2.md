@@ -1,357 +1,3 @@
-###  Публикация: 542415   (495106) от 05.09.2012
-
-Murray Perahia with ASMF Plays Bach Concertos (2011) [FLAC|Lossless]<Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto for flute, violin, harpsichord, BWV 1044 [21:29]
-1    I. Allegro
-2    II. Adagio ma non tanto e dolce
-3    III. Tempo di Alla breve
-Brandenburg Concerto No 5, BWV 1050 [21:18]
-4    I. Allegro
-5    II. Affetuoso
-6    III. Allegro
-Italian Concerto, BWV 971 [12:34]
-7    I. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21672605765FFFBB58181BBEA5B545C4214843BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940740   (464766) от 26.09.2015
-
-Cristian Petrescu - Georges Enesco: Oeuvres pour piano (2005) 3CD [FLAC|(image+.cue)]<Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, PianoПродолжительность: 00:55:21
-
-01. I. Vivace con brio [05:42]
-02. II. Andantino cantabile [08:29](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB5083A7FE25E0A637C7606A6B07EF4B4340BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940275   (464759) от 26.09.2015
-
-Beethoven - Piano Sonatas Nos.26, 27 & 29 (Solomon Cutner) (2000) [FLAC|image +.cue]<Classical, Romantic Period, Chamber Music, Recitals, Sonata>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata No. 26 in E flat major ("Les Adieux"), Op. 81a
-01. Les Adieux- 1. Les Adieux- Adagio - Allegro (06:49)
-02. Les Adieux- 2. L'Absence- Andante espressivo (03:54)
-03. Les Adieux- 3. Le Retour- Vivacissimamente - Poco Andante (05:42)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Recitals, SonataПродолжительность: Testament
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D7CDD7D328C3CB60552E408446474BE6427967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941716   (457967) от 29.09.2015
-
-Horowitz - Plays Hydn & Clementi (Vladimir Horowitz) (2003) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Classical Period, Sonata, Etude, Sonatina, Rondo>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata in F major, Hob.16/23
-01. Allegro (04:37)
-02. Adagio (05:44)
-03. Finale. Presto (03:33)(   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Classical Period, Sonata, Etude, Sonatina, RondoПродолжительность: 01:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C07A481E7D4598CEB0F93411668591A5ECBBC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942116   (457818) от 29.09.2015
-
-Schumann - Kinderszenen, Fantaisie, Arabeske (Vladimir Horowitz) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Fantasy, Scenes, Arabesque>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scenes from Childhood for piano, Op. 15
-01. Von Fremden Ländern und Menschen (01:33)
-02. Kuriose Geschichte (01:09)
-03. Hasche Mann (00:37)(   Читать дальше...   )Жанр: Classical, Romantic Period, Fantasy, Scenes, ArabesqueПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A7A6761F83660E7F9671E1D23C7B986D89FCEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941736   (457646) от 29.09.2015
-
-Bach, Scarlatti, Mozart - Piano works (Vladimir Horowitz) (2003) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Baroque Period, Sonata, Classical Period, Toccata>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toccatas, transcriptions (2) for piano in D minor & C major (BWV 564/565; BBGA 7/3), KiV B29
-01. Preludio (06:37)
-02. Adagio (05:19)
-03. Fuga (05:09)Жанр: Classical, Chamber Music, Recitals, Baroque Period, Sonata, Classical Period, ToccataПродолжительность: 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01245AF71B44419353AC1C64E620388C2A55975A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942183   (453558) от 01.10.2015
-
-Schubert - The Complete Impromptus, Moments Musicaux (Alfred Brendel) (2CDs) (1997) [FLAC|image +.cue]<Classical, Romantic Period, Character Piece, Dance - Classical, Impromptu, Ecossaise>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453558.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 Klavierstcke, D.946
-01. No.1 in E flat minor (Allegro assai) (09:03)
-02. No.2 in E flat (Allegretto) (09:36)
-03. No.3 in C (Allegro) (05:06)(   Читать дальше...   )Жанр: Classical, Romantic Period, Character Piece, Dance - Classical, Impromptu, EcossaiseПродолжительность: 02:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0A29B9840F120BA6253F5FEF00EEE0E4312B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247404   (452643) от 15.09.2018
-
-Chris Snelling - Piano Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Only a Dream
-02 For Stormboy
-03 Pebbles
-04 The Light She Brings(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A274C95ED4B8A452FC02CDB01AC43BDC4CB694A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943371   (449442) от 03.10.2015
-
-Schubert - Piano Sonatas D.960, D.840 “Relequie” (Rudolf Serkin) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Recitals, Sonata>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata no21 in Bf, D960
-01. Molto moderato (20:46)
-02. Andante sostenuto (10:05)
-03. Scherzo. Allegro vivace con delicatezza - Trio (04:22)(   Читать дальше...   )Жанр: Classical, Romantic Period, Recitals, SonataПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE862730A30D7B0DA411E7B54AE6ABDDF474615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943318   (449432) от 03.10.2015
-
-Beethoven - Piano Sonatas Nos.8, 14, 23 (Rudolf Serkin) (2003) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Romantic Period, Classical Period, Sonata>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata No. 8 in C minor ("Pathtique"), Op. 13
-01. Grave - Allegro di molto et con brio (08:51)
-02. Adagio cantabile (05:34)
-03. Rondo Allegro (04:07)(   Читать дальше...   )Жанр: Classical, Chamber Music, Romantic Period, Recitals, Classical Period, SonataПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E1035171262EF73A2E87114D4CB4B9A8505B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409365   (447232) от 16.09.2020
-
-Craig Armstrong - Piano Works (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In My Own Words (2:44)
- 02. Heatmiser 2 (4:02)
- 03. Hidden (1:50)
- 04. Gentle Piece (2:55)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D521CB9F723E204E0AA2F713C8901954143392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249073   (437337) от 22.09.2018
-
-Annelie - After Midnight (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Night
-02. Full
-03. Of
-04. A World(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F088464272F6247DA36C71EF490A6E8B9564AB74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944476   (435846) от 09.10.2015
 
 Schubert - Piano transcriptions (Antti Siirala ) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Recitals, Modern, Suite, Song, Post-Romantic, Variations, Overture, Waltz, Fugue, Transcrip ...
@@ -745,6 +391,346 @@ Sonata for piano, 4 hands in C major ("Grand Duo"), D. 812 (Op. posth. 140)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4307A929C4D996BAE975931F7BE0D129CE034A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580535   (337715) от 27.11.2012
+
+Scriabin, Prokofiev, Shostakovich - The Authorised Recordings: Sviatoslav Richter (1994) 2CD [FLAC|Lossless]<Classical, Sonata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, SonataПродолжительность: 01:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB70DB6387B4CECBF4500268FA89BDB04AAA0BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580478   (337434) от 27.11.2012
+
+J.S.Bach - The Authorised Recordings: Sviatoslav Richter (1994) 3CD [FLAC|Lossless]<Classical, Baroque Period, Suite>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, Baroque Period, SuiteПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C25CDBC2D120F55894326F46533DC3A78B36B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956259   (329361) от 15.11.2015
+
+Bach - Concertos, Toccata, Partita (Elena Kuschnerova) (2001) [FLAC|image +.cue]<Classical, Recital, Concerto, Baroque Period, Suite>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Italian Concerto for keyboard solo in F major, BWV 971
+01. untitled (04:06)
+02. Andante (05:11)
+03. Presto (03:40)(   Читать дальше...   )Жанр: Classical, Recital, Concerto, Baroque Period, SuiteПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7D005F98377C0F47E05DF41E474853D1BEFE94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956256   (329360) от 15.11.2015
+
+Ravel - Complete Piano Works - (Begona Uriarte, Karl-Hermann Mrongovius) (Vol.1) (1988) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Modern, Suite, Character Piece, Prelude, Waltz, Son ...
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valses nobles et sentimentales (15:52)
+02. La valse (11:27)
+03. Prlude (01:26)
+04. Menuet sur le nom de Haydn (02:20)(   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Modern, Suite, Character Piece, Prelude, Waltz, Sonatina, Minuet, PavaneПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BAA21B9C7D7F45788DAD82BD4C7ADF55B7A9B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956242   (329323) от 15.11.2015
+
+Sviatoslav Richter - Tchaikovsky, Mussorgsky - Piano Works (1994) [FLAC|image +.cue]<Classical, Orchestral, Sonata, Classical Period, Piece>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata in G major, Op. 37
+01. Moderato e risoluto (11:28)
+02. Andante non troppo quasi moderato (10:04)
+03. Scherzo. Allegro giocoso (02:50)(   Читать дальше...   )Жанр: Classical, Orchestral, Sonata, Classical Period, PieceПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CACFE47CA204D7DFC12722902486A341B2CD335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957657   (326600) от 18.11.2015
+
+Schubert - Impromptus, Moments musicaux, Sonatas D960 & D664 (Wilhelm Kempff) (2CDs) (1998) [FLAC|image +.cue]<Classical, Romantic Period, Chamber Music, Recitals, Sonata, Impromptu, Musical ...
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Impromptus (4) for piano, D. 899 (Op. 90)
+01. No.1 in C minor Allegro molto moderato (10:03)
+02. No.2 in E flat Allegro (04:40)
+03. No.3 in G flat Andante (07:00)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Recitals, Sonata, Impromptu, Musical MomentsПродолжительность: 02:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D2E77BBCDAD398109008801287A6A88E6C25AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957540   (326592) от 18.11.2015
+
+Chopin - Horowitz Plays Chopin (Vladimir Horowitz) (2003) [FLAC|image +.cue]<Classical, Romantic Period, Dance, Fantasy, Waltz, Etude, Polonaise, Ballade, Barcarolle>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata No. 2 in B flat minor, Op. 35, CT. 202
+01. Grave - Doppio movimento (05:27)
+02. Scherzo (06:51)
+03. Marche funbre. Lento (07:47)(   Читать дальше...   )Жанр: Classical, Romantic Period, Dance, Fantasy, Waltz, Etude, Polonaise, Ballade, BarcarolleПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18D2989DE7F3B22D92818571CE29915A33705067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075295   (318240) от 23.11.2016
+
+Arturo Benedetti Michelangeli - Arturo Benedetti Michelangeli Plays Debussy (1978-1988) 1995 Deutshe Grammophon [FLAC|Lossless|image + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_318240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл из двадцати четырех прелюдий, созданный Дебюсси в конце творческого пути (первая тетрадь в 1910, вторая тетрадь в 1913 году), завершил, по существу, развитие этого жанра в западноевропейской музыке, наиболее значительными явлениями, которого являлись до сих пор прелюдии Баха и Шопена.Двадцать четыре прелюдии Дебюсси — это цикл миниатюрных музыкальных картин, (   Читать дальше...   )Book I
+Claude Debussy - Preludes 1er livre - I. Danseuses de Delphes (3:18)
+Claude Debussy - Preludes 1er livre - II. Voiles (4:30)
+Claude Debussy - Preludes 1er livre - III. Le vent dans la plaine (2:13)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 02:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F4CBB6ABCDC0F8D292D02082FD6FB8CAC8F2EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958676   (317071) от 24.11.2015
+
+Falla - Complete Works for Piano Solo (Ricardo Requejo) (1999) [FLAC|image +.cue]<Classical, 20th Century Period, Fantasy, Waltz, Serenade, Nocturne, Caprice, Mazurka, Tombeau>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturno (1896) (05:21)
+02. Mazurka do menor (1899) (04:19)
+03. Serenata andaluza (1900) (05:24)
+04. Cancion (1900) (02:15)(   Читать дальше...   )Жанр: Classical, 20th Century Period, Fantasy, Waltz, Serenade, Nocturne, Caprice, Mazurka, TombeauПродолжительность: 01:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01EA43D933C529BB93106BF1B9E7B193E214C5FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075847   (315773) от 24.11.2016
+
+Arturo Benedetti Michelangeli - Frederic Chopin - 10 Mazurkas  (1972 Stereo) Deutshe Grammophon [FLAC|Lossless|image + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тень трагического, какого-то неизбежного рока витает над гением Микеланджели, осеняя все, к чему прикасаются его пальцы. Стоит сравнить его Шопена с тем же Шопеном в исполнении других - самых крупных пианистов.
+01 Mazurka, op. 67 no. 2- Cantabile (2:02)
+02 Mazurka, op. 56 no. 2- Vivace (1:48)
+03 Mazurka, op. 67 no. 4- Moderato animato (3:10)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6EDD64AADA286137F6F00D22988435778738F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075938   (315678) от 24.11.2016
+
+Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und Orchester Nr.1 & 3 (1980 - 1987) 1997 Deutshe Grammophon [FLAC|Lossless|image + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юношески лучезарный, полный энергичного движения Первый концерт C-dur, Op. 15 (1796) привлекает поэтическим преломлением народнопесенных жанров и интонаций. В Третьем концерте c-moll (1800) обращает на себя внимание трагический пафос первой части.
+   В концертах Бетховена чрезвычайно велика роль развитых виртуозных солирующих инструментов. Они придают музыке блеск, (   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088E8EC80CE2EB183AF7D04ED7E6F439DD7CCEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960222   (309924) от 27.11.2015
+
+Schubert - Piano Sonatas - Christian Zacharias (Vol.2) (2CDs) (1998) [FLAC|image +.cue]<Classical, Recital, Romantic Period, Sonata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonate en la majeur D.959
+01. Allegro (15:40)
+02. Andantino (07:37)
+03. Scherzo (allegro vivace) (05:37)(   Читать дальше...   )Жанр: Classical, Recital, Romantic Period, SonataПродолжительность: 02:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D50827E1D73576996D89347F3ECD19B5BBD8F6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1334847   (291522) от 31.10.2019
+
+Schnitt - Die Nacht der langen Messer (2011) [MP3|320 Kbps] <German Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Das Messerlied
+02. Ich Und Der Tod (Alles Ist So Volkersohn)
+03. Böse Möse
+04. Sö Schön Wie Wir Feat. Jop Flanders(   Читать дальше...   )Жанр: German Hip-Hop, RapПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C272CBFC263BE13D172F7CC5D5C37EC86BA31BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334902   (290970) от 31.10.2019
 
 VA - Boogie Funk Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco, RnB>
@@ -716,35 +745,6 @@ Eminem - Revival (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4181B30B915D8D41D6D90268A6BDC1F566DC90B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193370   (262223) от 20.12.2017
-
-VA - The French Touch Connection - Soul Machinist (2016) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hop, Ambient>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frenic – Old Waltz (4:29)
-02. Spectateur – How They Smile (2:46)
-03. Wasaru – Tricky (instrumental) (3:42)
-04. Fred Yaddaden – Wild Time (3:46)(   Читать дальше...   )Производство: The French Touch ConnectionЖанр: Hip-Hop, Instrumental Hop, Ambient, Trip Hop, Beats, DowntempoПродолжительность: 01:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770C1096966D7784F06D77460C512ECE411E1485
 ```
 
 https://mybot314.ru/tekegram_catalog/

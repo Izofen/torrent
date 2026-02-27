@@ -1,3 +1,61 @@
+###  Публикация: 1020083   (746900) от 25.05.2016
+
+2002 - Land of forever (1998) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Summer of 300 years.
+02 - Sea of dreams.
+03 - Land of forever.
+04 - Realms of splendor.(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A84AECD921B38EDB6B75FAB841E5D11060D4996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020033   (746814) от 25.05.2016
+
+Morgan Frazier - The Best (2015) [MP3|~245 кб/с (V0)] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part Of My Show (4:01)
+02. Hallelujah Instead (3:16)
+03. Way That He Loves Me (3:07)
+04. One Of Those Nights (2:21)(   Читать дальше...   )Жанр: Modern CountryПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A9755822D028E2B94888D36CAC1E7863F0FF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216953   (746006) от 02.04.2018
 
 VA - Playing For Change - PFC 2 - Songs Around the World (2011) [MP3|320 Kbps] <Blues-Rock, Reggae, World Music>
@@ -682,61 +740,6 @@ Latin Jazz Relaxing Music Quartet - Besame Mucho (2014) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38536180C5A024F98112F3CEF44B44364A267661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127151   (740713) от 20.04.2017
-
-Gente de Zona - Visualizate (2012) [MP3|320 Kbps] <Reggaeton, Cubaton>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - La Gozadera (feat. Marc Anthony)
-02 - Algo Contigo
-03 - Piensas (Dile la Verdad) (feat. Gente de Zona)
-04 - Por Ti(   Читать дальше...   )Жанр: Reggaeton, CubatonПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F87626419B05C136B225E750BA9BD75F22288F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283098   (740662) от 15.02.2019
-
-Latin Jazz Relaxing Music Quartet - Besame Mucho (2014) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Besame Mucho (In the Style of Andrea Bocelli)Жанр: InstrumentalПродолжительность: 01:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E0FC24D398E90CA5F65D10460DAB48B63BE385
 ```
 
 https://mybot314.ru/tekegram_catalog/

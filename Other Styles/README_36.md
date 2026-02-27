@@ -1,3 +1,69 @@
+###  Публикация: 762266   (892522) от 02.03.2014
+
+David Arkenstone - Spirit of Tibet (2002) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Himalayan Caravan (5:49)
+02. Wheels of Prayer (6:34)
+03. Nirvana (6:22)
+04. On the Border (5:47)
+05. Rhythm of the High Road (6:11)
+06. Roof of the World (5:34)
+07. Midnight Fires (6:39)
+08. View from the Palace (6:23)Жанр: New AgeПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBF0005152843689F1D1ECABE7CB76541173D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184406   (892503) от 18.03.2010
+
+Наеховичи - 3 albums (2006-2008) [MP3|320 kbps] <Folk, Klezmer>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. New Russian Sher (feat. Daniel Kahn) текст (2:52)
+02. Rezinke (feat. Psoy Korolenko) (4:47)
+03. Borsht (feat. Daniel Kahn) (3:49)
+04. The Beauty Of 17 (3:39)
+05. Junkoi (4:56)
+06. Rumenye (feat. Daniel Kahn) (7:15)
+07. Iber Berg Un Iber Toln (feat. Mila Kikina) (8:17)
+08. Amol iz Geven a Mayse (feat. Psoy Korolenko) (2:35)Жанр: Folk, Klezmer
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 760886   (892480) от 02.03.2014
 
 Luc St-Pierre - Thief - Original Soundtrack (2014) [MP3|320 кб/с]<Score>
@@ -744,70 +810,6 @@ Donovan - Discography (30 albums) (1965-2007) [MP3|160-320 kbps] <Folk-Rock, Psy
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640299   (889230) от 06.04.2013
-
-Звезды 80-х / Stars 80 (2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 00:56:37
-
-01. Stars 80 - Dialogues [00:10]
-02. Jean-Luc Lahaye - Femme Que J'Aime [03:41]
-03. Stars 80 - Dialogues [00:11]
-04. Kiss - I Was Made For Lovin' You [04:26]
-05. Stars 80 - Dialogues [00:19]
-06. Peter & Sloane - Besoin De Toi [03:41]
-07. Stars 80 - Dialogues [00:21]
-08. Début de Soirée - Nuit De Folie (Version 2012) [04:14](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB4DD62D51068485D6649E9170DE2E73CF76B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493616   (889098) от 07.09.2021
-
-Pravin (Правин, Павел Новиков) - Swarg Ashram (2008) [FLAC|Lossless|tracks + .cue] <Indian, Mantras, Bansuri>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baro Anurage Daki Toma Pita
-02. Nimne Dharanir Gati Durbar
-03. Ar Sab Jai Jak
-04. Jharna Jharna(   Читать дальше...   )Жанр: Indian, Mantras, BansuriПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D391C1117C620DEFA1D1121A202B1171D3F29E42
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 488989   (129098) от 27.04.2012
+
+VA - Моя Прекрасная Леди (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стас Пьеха - Моя прекрасная леди
+02. Аслан Гусейнов - Боже мой
+03. T-Killah feat. Настя Кочеткова - Над землей
+04. Эльдар Далгатов - Милая
+05. Инфинити - Я так скучаю
+06. Дмитрий Колдун - Падал снег
+07. Верка Сердючка - Смайлик
+08. Сергей Солнцев - Чудеса бывают
+09. Анастасия Приходько - По волнам
+10. Митя Фомин - Не манекен (feat. Кристина Орса)2012Жанр: PopПродолжительность: 06:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764562329C13134AB7EC28B98D67B144DED5852B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489005   (129079) от 27.04.2012
+
+VA - Весенняя волна хитов к празднику (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129079.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Maxima - Ненавижу Любовь (3:37)
+2. Алексей Большой - Один Взгляд Назад (3:35)
+3. Влада - Я Для Тебя (3:21)
+4. Алексей Матиас И Alyosha - Песня Моря (3:44)
+5. Сергей Жуков - Hearts (4:01)
+6. T.O.T.A.L. И Антитeла - Весна-Любовь (Hard2V) (4:35)
+7. Бьянка - Без Сомнения (3:15)
+8. Dj Smash, Dj Рыжов, Chinlong - На Заре (3:38)
+9. 5sta Family - Spring Summer (2:50)
+10. Виктория Дайнеко - Я Буду Красивой Невестой (3:51)2012Жанр: PopПродолжительность: 05:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C2E87A4A1D8A4A77DA8B655C7CBDAB14F0A473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683219   (128742) от 10.12.2023
+
+VA - German Top 100 Single Charts 08.12.2023 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mariah Carey - All I Want for Christmas Is You (4:01)
+002. Wham! - Last Christmas (4:22)
+003. Shakin' Stevens - Merry Christmas Everyone (3:40)
+004. Chris Rea - Driving Home for Christmas (4:00)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C996DE0F9A46FB3709901F2BF225162D2C97784C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683823   (128268) от 12.12.2023
+
+LOBODA - This is LOBODA (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allo (3:48)
+02. Americano (3:30)
+03. Caro amico (La Boda Per Ciao 2021) (2:33)
+04. Indie Rock (Vogue) (UA) (3:24)(   Читать дальше...   )Жанр: PopПродолжительность: 02:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1241258453065AE5DB9D3242170245E6BE45860A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684381   (127827) от 15.12.2023
+
+VA - Музыка для машины Vol.53 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaas - Colors (00:02:28)
+02. The Kid Laroi Feat. & Jung Kook & Central Cee - Too Much (00:03:24)
+03. Надежда Гуськова - Хрусталь (00:02:55)
+04. Сакит Самедов - Господин (00:03:07)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B8675E2A68F4550527BE7AA67752B0F4786B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684173   (127799) от 15.12.2023
 
 VA - Музыка для машины Vol.52 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -600,151 +757,6 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 02 (2021) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E253834986C6ACF5ECD67C2FA1A4118AB1F6A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719787   (110442) от 02.05.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 06 (2022) [MP3|320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Summer - I Feel Love (Dario Caminita Revibe) (7:56)
-02. Patrick Hernandez - Born To Be Alive (Dario Caminita Revibe) (4:23)
-03. Electric Light Orchestra - Last Train To London (Dario Caminita Revibe) (4:26)
-04. Double - The Captain Of Her Heart (Dario Caminita Revibe) (5:03)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 01:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD261111B520647C27971E33BBA17B411A57DBC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719786   (110437) от 02.05.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 05 (2021) [MP3|320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Summer - Last Dance (Dario Caminita Revibe) (7:48)
-02. Boys Town Gang - Can't Take My Eyes Off You (Dario Caminita Revibe) (6:18)
-03. Earth, Wind & Fire - Let's Groove (Dario Caminita Revibe) (5:34)
-04. Indeep - Last Night A Dj Saved My Life (Dario Caminita Revibe) (5:29)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 01:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4367399DF793441F36A7C573B1E3C2B9EF6CE891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719789   (110434) от 02.05.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 07 (2022) [MP3|320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KC and the Sunshine Band - That's The Way (I Like It) (Dario Caminita Revibe) (6:11)
-02. Robin S - Show Me Love (Dario Caminita Revibe) (6:30)
-03. Gazebo - I Like Chopin (Dario Caminita Revibe) (5:20)
-04. Toto - Africa (Dario Caminita Revibe) (6:13)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 01:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF7279A1C76C03FA0E9CC66B2D9FD1283431224F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720261   (110276) от 04.05.2024
-
-Kovacs - Compilation (2024) [MP3|320 Kbps] <Pop, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  50 Shades Of Black
- 02.  My Love
- 03.  Adickted
- 04.  Goldmine(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE9DD42C07CFD9AEB2882F41C62966CF99D05BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730932   (107723) от 21.06.2024
-
-Mode - One  Compilation (2024) [MP3|320 Kbps] <Euro Disco /Pop Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Afterlife (Intro)
- 02.  Get the Chance
- 03.  I Still Love You (Feat Lian Ross)
- 04.  Heaven is Waiting(   Читать дальше...   )Жанр: Euro Disco /Pop DanceПродолжительность: 02:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC85A90834731F87453E6E8B6111058325979FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

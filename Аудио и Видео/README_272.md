@@ -1,25 +1,25 @@
-###  Публикация: 1426822   (185278) от 26.11.2020
+###  Публикация: 1520262   (142230) от 28.12.2021
 
-Крематорий - Hits Hotel (2019) [AAC|~355 Kbps] <Rock>
+VA - Deep Blue Sea, Vol. 1: Deep Ambient Moods (2013) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185278.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Крематорий (1:54)
-02. Ангел (3:22)
-03. Супермаркет (3:44)
-04. Маша (2:51)(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:22
+01. Marga Sol - Come & Love Me (Re-Edit) (4:36)
+02. Triangle Sun - Tonight (4:24)
+03. Gary B - Stronger Love (4:21)
+04. Wav-E - The Perfect Sunrise (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A98DB692FD2DF3416841EB5D1E278C80F1F1E353
+magnet:?xt=urn:btih:BD4A8962AEA0548ECDC2DBEA201323328AA7DF0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,54 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427034   (185247) от 26.11.2020
+###  Публикация: 1088018   (142224) от 29.12.2016
 
-Parov Stelar - Voodoo Sonic (The Album) (2020) [AAC|~310 Kbps] <Electro, Jazz, Swing>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185247.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Silver Line (2:59)
-1.02. Parov Stelar, Georgia Gibbs - Tango Del Fuego (3:04)
-1.03. Pink Dragon (4:23)
-1.04. Purple Moon (2:49)(   Читать дальше...   )Жанр: Electro, Jazz, SwingПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6315E28F9419F661CF8ED842F14C5E688A01291F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426999   (185084) от 26.11.2020
-
-Новые мутанты / Люди Икс: Новые мутанты / The New Mutants (2020) BDRip [1080p] ATV3
+Расплата / The Accountant (2016) BDRip [720p] ATV
 
 >>Аудио и Видео
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185084.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После нашествия на её резервацию загадочного торнадо и гибели отца Дэниель Мунстар приходит в себя связанной на больничной койке. Доктор Рейес сообщает девушке, что она - единственная выжившая, и теперь вместе с четырьмя подростками находится в специализированном учреждении, где их изучают и учат контролировать свои сверхспособности. Вскоре Дэни выясняет, что покинуть (   Читать дальше...   )Производство: США / 20th Century Studios, Marvel Entertainment, TSG EntertainmentЖанр: Ужасы, фантастика, боевикРежиссер: Джош БунАктеры: Блю Хант, Алиси Брага, Мэйси Уильямс, Аня Тейлор-Джой, Чарли Хитон, Генри Зага, Адам Бич, Томас Ки, Колби Ганнетт, Хэппи АндерсонПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:34:03
+Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему на хвост садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом, Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, драма, криминалРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон РайтПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Русские, Английские, Английские SDHПродолжительность: 02:07:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AA710DB0226F4C08EA293C054D3BB6FF56A87DE
+magnet:?xt=urn:btih:56DE00235754D6FD5A26ACA67C269A3BB0D70639
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427124   (184520) от 27.11.2020
+###  Публикация: 1520331   (142217) от 28.12.2021
 
-Koan - Munchausen Trilemma (Side A) (2020) [AAC|~325 Kbps] <Ambient, Chillout, Downtempo>
+VA - Swing Sisters, Volume One (2021) [AAC|~318 Kbps] <Electro Swing, Nu Jazz, Swing House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184520.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mendace Veritas? (7:27)
-02. Fern Thicket (Blue Mix) (8:55)
-03. Can You Lift Yourself Up by Your Hair? (8:36)
-04. The Mirror of Lady Fragrantia (8:52)(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 01:31:50
+01. Emma Clair, Alanna Lyes - Sisters Are Doin' It For Themselves (Radio Edit) (3:11)
+02. Kumiho - Legend (Radio Edit) (2:41)
+03. Rosantique - Bambola (Tu Mi Fai Girar) (Radio Edit) (2:58)
+04. Madam Misfit - Don't Girl (Radio Edit) (2:46)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Swing HouseПродолжительность: 00:28:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B9B1CD05E5E178632536185FFDE1EBAA856D17C
+magnet:?xt=urn:btih:943425734F51EB110719B3BE3ECAF3B6E32BE0F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427291   (184518) от 27.11.2020
+###  Публикация: 1520567   (142211) от 28.12.2021
 
-Сборная Союза, Майя Подольская - Ты будешь мой (2020) [AAC|~325 Kbps] <Chanson, Pop>
+VA - A Day to Relax: Chillout Your Mind (2021) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184518.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142211.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ты будешь мой! (3:20)
-02. Слепая любовь (4:05)
-03. Девчонка-весна (3:49)
-04. Возьмёшь, когда захочешь! (4:17)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:31:55
+01. Michael e - Happy Daze (Original Mix) (3:43)
+02. Leo de la Rosa - Easy Game (5:16)
+03. The Soul Crusaders - The Garden of Eden (5:11)
+04. Digby Jones - No Other Smile (Original Mix) (4:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:970BEAA5EDC8E5701F0B6E41C8A7EEC5D3D93B91
+magnet:?xt=urn:btih:72670051A1DD79C4D478ECB70F959414B013CDB0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427127   (184484) от 27.11.2020
+###  Публикация: 1195479   (142207) от 29.12.2017
 
-Koan - Munchausen Trilemma (Side B) (2020) [AAC|~320 Kbps] <Ambient, Chillout, Downtempo>
+Скайлайн 2 / Beyond Skyline (2017) WEB-DLRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184484.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142207.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deep Koan - Deep Koan (Koan Remix) (7:08)
-02. Commitment (Roeth & Grey Remix) (8:37)
-03. How Big Is a Blue Whale (8:46)
-04. Thawed Sounds (8:54)(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 01:23:51
+В мире — хаос и паника. Небо закрыли нависающие над городами космические корабли, которые через огромные столпы света затягивают к себе на борт тысячи людей прямо с улиц. Чтобы найти похищенного сына, бесстрашному детективу придется проникнуть на корабль агрессивных пришельцев, отбить атаку этих разъяренных тварей и… попытаться вернуть планету землянам.Производство: Сингапур, Индонезия, Китай, Великобритания, Канада, СШАЖанр: Ужасы, фантастика, боевик, триллер, приключенияРежиссер: Лайам О’ДоннеллАктеры: Фрэнк Грилло, Бояна Новакович, Ико Уайс, Каллэн Мулвей, Валентайн Пайен, Бетти Гэбриел, Джек Чоссе, Кевин О’Доннелл, Крис Т. Адамс, Тони БлэкПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:46:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B3CC0DD69D61D93347B8D5EE812F40B1A915DA8
+magnet:?xt=urn:btih:17B74D167B3CB6436C292ECBA0FF3BD79DE5A4CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427300   (184474) от 27.11.2020
+###  Публикация: 1272559   (142198) от 28.12.2018
 
-Сборная Союза - Золотые оба (2020) [AAC|~342 Kbps] <Chanson, Pop>
+Узел смерти / The Clovehitch Killer (2016/2018) WEB-DL [1080p] ATV [MVO]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184474.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Золотые оба (3:47)
-02. Барбарисовый чай (3:43)
-03. Мне с тобой повезло (3:43)
-04. Тот кому повезло с женой (3:27)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:11:57
+Несколько лет назад небольшой религиозный городок потрясла серия убийств женщин. Маньяк уже 10 лет не давал о себе знать, его так и не поймали, и теперь община каждый год проводит день памяти жертв убийцы. Подросток Тайлер живёт в небогатой, но дружной и счастливой семье, и считает отца идеалом для подражания. Однажды парень находит непристойную вырезку из журнала, (   Читать дальше...   )Производство: США / End CueЖанр: Ужасы, Триллер, Драма, ДетективРежиссер: Дункан СкайлзАктеры: Чарли Пламмер, Дилан МакДермотт, Саманта Мэтис, Мэдисен Бити, Бренна Шерман, Лэнс Шантилс-Уэртц, Лиа Хаттон Бисмор, Сара Кливленд, Майк КортезеПеревод: Профессиональный многоголосый (Jaskier)Субтитры: Английские (Full, SDH)Продолжительность: 01:49:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01178E831A7A3608831CB52481B96CB68227E403
+magnet:?xt=urn:btih:822758EB2248EC4DA53DABD38F5DFC988FB3E573
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427225   (184414) от 27.11.2020
+###  Публикация: 1520566   (142194) от 28.12.2021
 
-VA - Deep Sleep Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Lounge, Chillout>
+VA - Global Chill Out Masters, Vol. 4 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184414.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. La Estación Del Mar - A La Sombra De Un Roble (4:25)
-02. Finland & Aaskoven - Beauty and the Abyss (5:40)
-03. La Estación Del Mar - Descalzo Sobre La Hierba (4:33)
-04. Peter Pearson - Always in My Dream (Original Mix) (5:41)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:37:05
+01. 351 Lake Shore Drive, Genius Jane - Day of Light (2:21)
+02. S.W. - Angels Care for Us (1:51)
+03. Stuce The Sketch - Seventh Heaven (4:56)
+04. Artur Bayramgalin - Winter Song (3:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CB6F49DCA385D34462F959AE9F813DB809A7CB1
+magnet:?xt=urn:btih:EC67B216ED0A8A6391D1F9DFAA02A0522E0C1DD0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,28 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427155   (184354) от 27.11.2020
+###  Публикация: 1520267   (142187) от 28.12.2021
 
-Roxette - Bag Of Trix Vol. 3 (Music From The Roxette Vaults) (2020) [AAC|~336 Kbps] <Pop, Rock>
+VA - Deep Blue Sea, Vol. 4: Deep Chill Mood (2020) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184354.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142187.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Piece Of Cake (3:16)
-02. You Don't Understand Me (Abbey Road Sessions November 15, 1995) (3:42)
-03. Dangerous (Swedish Single Version 1989) (3:46)
-04. Every Day (Studio Vinden Demo March 2000) (3:22)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:44:19
+01. Weathertunes - Follow Your Heart (4:21)
+02. Eskadet - Te Revoir (Original Mix) (6:38)
+03. Marga Sol - What I Long For (Chill Mix) (5:24)
+04. Weathertunes - Parfum De La Provence (Original Mix) (5:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:35:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFF4B974B6AE4055971DC41C97D4E0D6329FB76D
+magnet:?xt=urn:btih:C8860EBABA2E5E6EF0BE0EB8766736C8C2F96CF5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,28 +221,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427237   (184314) от 27.11.2020
+###  Публикация: 1520264   (142181) от 28.12.2021
 
-Wayne Static - Pighammer (2011) [AAC|~344 Kbps] <Industrial>
+VA - Deep Blue Sea, Vol. 3: Deep Chill Mood (2019) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184314.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142181.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pighammer (0:28)
-02. Around the Turn (2:27)
-03. Assassins of Youth (3:13)
-04. Thunder Invader (4:47)(   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:42:10
+01. Michael e - Conversations (Chill Mix) (5:50)
+02. Peter Pearson - Endless Dream (Original Mix) (4:57)
+03. DMTunes - On the Beam (Original Mix) (6:21)
+04. Clelia Felix - Ocean Breeze (Original Mix) (2:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D760D4DD72A7AED6634C0D47DDFEACB9A8DE6CD
+magnet:?xt=urn:btih:3EFD14FD221469E30FD3994E7D7D50826A2911AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,28 +250,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427079   (184216) от 27.11.2020
+###  Публикация: 1087894   (142179) от 29.12.2016
 
-Сергей Трофимов (Трофим) - Пересмешник (2020) [AAC|~322 Kbps] <Pop, Chanson>
+Расплата / The Accountant (2016) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184216.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142179.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Эврибади (3:04)
-02. Малибу (2:57)
-03. На море (3:18)
-04. Изоляция (2:44)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:41:05
+Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему на хвост садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом, Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, драма, криминалРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон РайтПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Русские, Английские, Английские SDHПродолжительность: 02:07:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF71F6286101BC3DF07F88CD590116BA0B2CF85F
+magnet:?xt=urn:btih:56D48C0EEF40257EC0E2A85B99AB9DFFCA5EFFA7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,28 +276,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427444   (183606) от 28.11.2020
+###  Публикация: 1520263   (142129) от 28.12.2021
 
-Loudblast - Manifesto (2020) [AAC|~337 Kbps] <Death Metal>
+VA - Deep Blue Sea, Vol. 2: Deep Chill Mood (2018) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183606.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Todestrieb (3:22)
-02. Relentless Horror (2:17)
-03. Erasing Reality (5:11)
-04. The Promethean Fire (3:59)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:10
+01. Airstream - One Way (Dreamtime Mix) (6:14)
+02. Frank Borell - Mystic Colours (In Heaven Mix) (6:00)
+03. Island Sun - Wonderful Life (Golden Days Mix) (5:45)
+04. La Estación Del Mar - La Ultima Estacion (Original Mix) (4:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:327D5E6FD93780FE1C9941A99C69F3000DD3F708
+magnet:?xt=urn:btih:FD09DBDCEBF88950367D3652213459FAE833F5F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,28 +305,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427556   (183564) от 28.11.2020
+###  Публикация: 1520269   (142119) от 28.12.2021
 
-DJ Sven, Marc Hartman - The Revival (2018) [AAC|~335 Kbps] <Electro, Techno/House, Disco>
+VA - Deep Blue Sea, Vol. 5: Deep Chill Mood (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183564.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Disco Is the Music (5:23)
-02. Rhythm in My Immy Bo Home (6:08)
-03. Back in the Days (4:59)
-04. Riding in the Disco Train (5:27)(   Читать дальше...   )Жанр: Electro, Techno/House, DiscoПродолжительность: 01:02:09
+01. Gary B - Move (Original Mix) (3:34)
+02. Michael e - Recuring Dream (Original Mix) (6:00)
+03. Marga Sol - Calma (5:28)
+04. Michael e, Tim Gelo - Pescadores (Original Mix) (6:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:35:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80585AEE1E510F3A0CA1826B2C376FF82FB360D6
+magnet:?xt=urn:btih:DA942E019B2513F56001CBE70C3039283A48E9C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,28 +334,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427447   (183535) от 28.11.2020
+###  Публикация: 1520520   (142088) от 28.12.2021
 
-The Smashing Pumpkins - CYR (2020) [AAC|~318 Kbps] <Alternative, Rock>
+VA - Psychotic Episodes (Selected by Psycatrick) (2021) [AAC|~324 Kbps] <Psy-Trance>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183535.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Colour of Love (4:24)
-02. Confessions of a Dopamine Addict (3:14)
-03. Cyr (4:03)
-04. Dulcet in E (3:22)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 01:12:16
+01. Aum Shanti, Rishi - Wonders of Nature (6:47)
+02. Priest - First Contact (7:21)
+03. Lante - Strawberry Flavoured Gum (8:02)
+04. Breathead, Wintermute - Flying Circus (8:58)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:44:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:344ABC7F79CD0251CFCE45CA88931891A9D2CB17
+magnet:?xt=urn:btih:2E5C2720A8FCD7633DC4A8E5469478E81EC02CA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,28 +363,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427507   (183530) от 28.11.2020
+###  Публикация: 1195434   (142062) от 29.12.2017
 
-VA - Echelon, vol. 1 (2020) [AAC|~291 Kbps] <Rap, Hip Hop>
+Скайлайн 2 / Beyond Skyline (2017) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183530.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vald - Gotaga (2:18)
-02. Suikon Blaz AD - Echelon Music (3:02)
-03. Rafal - Magneto (2:39)
-04. SIRIUS - Après minuit (3:01)(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:30:48
+В мире — хаос и паника. Небо закрыли нависающие над городами космические корабли, которые через огромные столпы света затягивают к себе на борт тысячи людей прямо с улиц. Чтобы найти похищенного сына, бесстрашному детективу придется проникнуть на корабль агрессивных пришельцев, отбить атаку этих разъяренных тварей и… попытаться вернуть планету землянам.Производство: Сингапур, Индонезия, Китай, Великобритания, Канада, СШАЖанр: Ужасы, фантастика, боевик, триллер, приключенияРежиссер: Лайам О’ДоннеллАктеры: Фрэнк Грилло, Бояна Новакович, Ико Уайс, Каллэн Мулвей, Валентайн Пайен, Бетти Гэбриел, Джек Чоссе, Кевин О’Доннелл, Крис Т. Адамс, Тони БлэкПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:46:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFB5051E6E690452F3F6F37F79CE0CAFEDCAF947
+magnet:?xt=urn:btih:523BF27B4CBC36282D53894380F2033FE38D2D8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,28 +389,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427537   (183524) от 28.11.2020
+###  Публикация: 1195611   (142049) от 29.12.2017
 
-VA - Blue Notes & Jazzy Grooves (2020) [AAC|~319 Kbps] <Chillout, Trip-hop, Lounge>
+Скайлайн 2 / Beyond Skyline (2017) WEB-DL [720p]  AMAZON Version ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183524.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Deviance - Hypnosis (3:26)
-02. Marco Moli - Excuses (4:15)
-03. DJ Deviance - No Ordinairy Love (5:34)
-04. Marco Moli - Beating The Big Drum (5:18)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 00:54:03
+В мире — хаос и паника. Небо закрыли нависающие над городами космические корабли, которые через огромные столпы света затягивают к себе на борт тысячи людей прямо с улиц. Чтобы найти похищенного сына, бесстрашному детективу придется проникнуть на корабль агрессивных пришельцев, отбить атаку этих разъяренных тварей и… попытаться вернуть планету землянам.Производство: Сингапур, Индонезия, Китай, Великобритания, Канада, СШАЖанр: Ужасы, фантастика, боевик, триллер, приключенияРежиссер: Лайам О’ДоннеллАктеры: Фрэнк Грилло, Бояна Новакович, Ико Уайс, Каллэн Мулвей, Валентайн Пайен, Бетти Гэбриел, Джек Чоссе, Кевин О’Доннелл, Крис Т. Адамс, Тони БлэкПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:46:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DEC377D2903850BF24B4F43E503AE5E57EC2C039
+magnet:?xt=urn:btih:EFAA956AFF836D53A540D244F5AA6833B505256F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,28 +415,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427440   (183514) от 28.11.2020
+###  Публикация: 1087917   (141988) от 29.12.2016
 
-Sodom - Genesis XIX (2020) [AAC|~333 Kbps] <Thrash Metal>
+Девушка в поезде / The Girl on the Train (2016) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183514.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blind Superstition (1:03)
-02. Sodom & Gomorrah (4:06)
-03. Euthanasia (3:54)
-04. Genesis XIX (7:09)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:54:54
+Каждый день поезд проносит Рэйчел мимо очаровательного коттеджа, где живет идеальная на первый взгляд пара. Но однажды идиллия разрушится — прекрасная незнакомка бесследно исчезнет. Рэйчел окажется втянута в весьма запутанную историю, ведь только она видела из окна то, что было скрыто ото всех.Производство: СШАЖанр: Триллер, драма, детективРежиссер: Тейт ТейлорАктеры: Эмили Блант, Хейли Беннетт, Ребекка Фергюсон, Джастин Теру, Люк Эванс, Эдгар Рамирес, Лора Припон, Эллисон Дженни, Даррен Голдштейн, Лиза КудроуПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:52:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:327089DD8C53F7EC66CAF5FA1D2A0F0B5255EA8C
+magnet:?xt=urn:btih:39FD05379680C78B581EDD286F8C2BCD420757EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,28 +441,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427534   (183510) от 28.11.2020
+###  Публикация: 1195494   (141940) от 29.12.2017
 
-Chillson, Marc Hartman - Little Bit of Jazz (2020) [AAC|~322 Kbps] <Chillout, Trip-hop, Lounge>
+Скайлайн 2 / Beyond Skyline (2017) WEB-DL [1080p] AMAZON Version ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183510.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Just a Little Bit of Jazz (Original Mix) (4:37)
-02. The Closing Book (Original Mix) (4:52)
-03. Six String Jam (Original Mix) (5:14)
-04. Streets of Love (Original Mix) (3:52)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 01:03:25
+В мире — хаос и паника. Небо закрыли нависающие над городами космические корабли, которые через огромные столпы света затягивают к себе на борт тысячи людей прямо с улиц. Чтобы найти похищенного сына, бесстрашному детективу придется проникнуть на корабль агрессивных пришельцев, отбить атаку этих разъяренных тварей и… попытаться вернуть планету землянам.Производство: Сингапур, Индонезия, Китай, Великобритания, Канада, СШАЖанр: Ужасы, фантастика, боевик, триллер, приключенияРежиссер: Лайам О’ДоннеллАктеры: Фрэнк Грилло, Бояна Новакович, Ико Уайс, Каллэн Мулвей, Валентайн Пайен, Бетти Гэбриел, Джек Чоссе, Кевин О’Доннелл, Крис Т. Адамс, Тони БлэкПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:46:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3078CFCAF78DEDBB5628A05A28F852255AD905FD
+magnet:?xt=urn:btih:1F34BF4DE8D81FB1B750786FAC90397534B4679D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,28 +467,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427620   (182529) от 29.11.2020
+###  Публикация: 1520270   (141923) от 28.12.2021
 
-Marc Hartman - Set You Free (2015) [AAC|~345 Kbps] <Lounge, Ambient, Downtempo>
+VA - Christmas Jazz Night 2022 (Finest X-Mas Jazz Music) (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182529.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In The Beginning (1:46)
-02. Under A Pink Sky (5:56)
-03. For The Love Of Music (6:45)
-04. Set You Free (Song for Wensi) (5:28)(   Читать дальше...   )Жанр: Lounge, Ambient, DowntempoПродолжительность: 01:12:11
+01. Giacomo Bondi, Roberto Angelelli - Imagine (3:29)
+02. Gabrielle Chiararo - Holding Back the Years (4:23)
+03. La Boquita, Javier Nuñez - Come Away with Me (3:10)
+04. Sergio Coppotelli - Summer Dream (5:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:03:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48207528FA6B59910E9724BE12A046F72CE4E476
+magnet:?xt=urn:btih:C56667F39943A46FF13B928FD149C60CCE1A52C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,28 +496,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427647   (182524) от 29.11.2020
+###  Публикация: 1520440   (141914) от 28.12.2021
 
-Marc Hartman - Changes (2017) [AAC|~345 Kbps] <Chillout, Trip-hop, Lounge>
+Разыскивается Санта! / Io sono Babbo Natale (2020) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182524.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141914.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Place You've Never Been Before (3:37)
-02. A Simple Song (4:01)
-03. Solid State (4:04)
-04. Listen to Me (4:57)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 01:26:48
+Накануне Рождества не слишком удачливый вор Этторе влезает в дом к одинокому старику, в надежде поправить свое незавидное материальное положение. Однако в его огромной вилле он не находит ничего сколь-нибудь ценного, кроме залежей детских игрушек. Сам же старик уверяет его, что он не кто иной, как настоящий Санта Клаус.Производство: Италия / 3 Marys Entertainment, Lucky Red, Rai CinemaЖанр: КомедияРежиссер: Эдоардо Мария ФальконеАктеры: Марко Джаллини, Джиджи Пройетти, Барбара Рончи, Антонио Жерарди, Симона Коломбари, Даниэле Печчи, Алис Адаму, Лоренцо Джоиелли, Джорджия Салари, Фабрицио ДжанниниПеревод: Любительский многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:38:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BEA17FBC07DF6B142614E847AFD8E918EB05340
+magnet:?xt=urn:btih:04C7E47FF64F44CD33B02E2EA57D930E3F0090FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,28 +522,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427802   (182505) от 29.11.2020
+###  Публикация: 1520457   (141606) от 28.12.2021
 
-VA - Slow Down: Ibiza Grooves (2018) [AAC|~324 Kbps] <Lounge, Ambient, Chillout>
+CODA: Ребёнок глухих родителей / CODA (2021) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182505.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marc Hartman - Falling Apart (5:09)
-02. Marco Moli - French Love Poem (5:08)
-03. Marco Moli - Just A Fool (3:18)
-04. Marc Hartman - Under My Skin (5:21)(   Читать дальше...   )Жанр: Lounge, Ambient, ChilloutПродолжительность: 01:00:55
+Глостер, штат Массачусетс. Семья глухих ведет рыболовный бизнес. 17-летняя Руби — единственный слышащий член семьи — помогает глухим родителям и брату в рыбной ловле. В школе она присоединяется к местному хору, где понимает, что любит петь. Руководитель хора убеждает её подумать о музыкальной школе, и теперь девушка вынуждена выбирать между семьей и новой мечтой. (   Читать дальше...   )Производство: США, Франция, / Vendome Pictures, Pathé Films, Picture Perfect FederationЖанр: Драма, музыкаРежиссер: Сиан ХедерАктеры: Эмилия Джонс, Марли Мэтлин, Трой Коцур, Дэниел Дюрант, Эухенио Дербес, Фердия Уолш-Пило, Кевин Чэпмэн, Джон Фиоре, Армен Гаро, Лонни Фармер, Эми ФорсайтПеревод: ДублированныйСубтитры: Русские, английские, немецкие, французские, эстонские, латышские, литовские, украинскиеПродолжительность: 01:51:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE619F6FB42B919B911C4629A1C5596DB1BA67D8
+magnet:?xt=urn:btih:04456451E58A5F449A579BE57D392C97BF9F2381
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,28 +548,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427661   (182500) от 29.11.2020
+###  Публикация: 1272866   (141128) от 29.12.2018
 
-Marc Hartman - Emission of Love (2016) [AAC|~348 Kbps] <Chillout, Trip-hop, Lounge>
+Очень специальный репортаж / Envoyes tres speciaux (2009) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182500.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peope of Beijing (4:35)
-02. Become the Sky (4:44)
-03. Late Late Summer (6:10)
-04. I Can't Stop (5:14)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 01:21:05
+Вся Франция поднята на уши, и всё потому, что в Ираке похищены два французских журналиста… Однако только эти двое и знают, что данное похищение — не более чем их собственная выдумка.Производство: ФранцияЖанр: КомедияРежиссер: Фредерик ОбюртенАктеры: Жерар Жюньо, Жерар Ланвен, Омар Си, Валери Каприски, Энн Маривин, Серж Хазанавичус, Лоран Жерра, Эрик Наггар, Фредерик Тирмон, Гийом ДюранПеревод: Двухголосый закадровый (Владислав Данилов, Алёна Соколова)Субтитры: НетПродолжительность: 01:32:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8092ECA5FB36DAAFAE8A019963023B730F163C33
+magnet:?xt=urn:btih:248496685D1498862E77C6BCF80237B238EEAFAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +574,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427798   (182496) от 29.11.2020
+###  Публикация: 1435674   (140977) от 29.12.2020
 
-Marc Hartman - Chillicious (2018) [AAC|~339 Kbps] <Lounge, Ambient, Chillout>
+Ведьмы / The Witches (2020) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Language of Love (5:10)
-02. Walls of Sound (3:57)
-03. Underwater (5:17)
-04. Like Butterflies (4:52)(   Читать дальше...   )Жанр: Lounge, Ambient, ChilloutПродолжительность: 01:09:32
+В конце 1967 года после гибели родителей мальчик переезжает жить к бабушке. Та вскоре замечает, что в их городке отираются ведьмы, которые не прочь превратить её внука в какое-нибудь животное, поэтому решает спрятаться в самом шикарном отеле Алабамы, где работает её кузен. Бабуля думала, что там они встретят только скучающих богатых постояльцев, но именно в этом (   Читать дальше...   )Производство: США, Мексика, Великобритания / Warner Bros., ImageMovers, Canadian Film or Video Production Tax Credit (CPTC)Жанр: Фэнтези, комедия, семейныйРежиссер: Роберт ЗемекисАктеры: Джазир Бруно, Октавия Спенсер, Энн Хэтэуэй, Стэнли Туччи, Коди-Лей Истик, Крис Рок, Брайан Бовелл, Джозеф Зиньемба, Джозетт Саймон, Джонатан ЛивингстоунПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced), Английские (Full, SDH)Продолжительность: 01:44:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C08E9CE87FD39FF9971C9E4A3CECEEB7C04D7DD
+magnet:?xt=urn:btih:6B4AE601251466A5D9870698DC048C2473EF6D57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +600,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427792   (182483) от 29.11.2020
+###  Публикация: 1520735   (140867) от 29.12.2021
 
-Marc Hartman - The 5th Element (2018) [AAC|~324 Kbps] <Lounge, Ambient, Chillout>
+Above & Beyond - 10 Years of Group Therapy (2021) [AAC|~322 Kbps] <Progressive House, Trance, Melodic House & Techno, Drum & Bass>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182483.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Getting Closer to My Heart (4:18)
-02. Voices Inside (5:22)
-03. Bright Like the Night (4:58)
-04. Wait for Me (5:32)(   Читать дальше...   )Жанр: Lounge, Ambient, ChilloutПродолжительность: 01:22:57
+1.01. Filmic (CRi Remix) (5:06)
+1.02. Above & Beyond, Richard Bedford - Sun & Moon (ilan Bluestone Remix) (4:41)
+1.03. Prelude (Above & Beyond Future Summer Mix) (3:05)
+1.04. Above & Beyond, Zoë Johnston - Love Is Not Enough (Hybrid Minds Remix) (5:03)(   Читать дальше...   )Жанр: Progressive House, Trance, Melodic House & Techno, Drum & BassПродолжительность: 01:55:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:788BDC1ECDEB8BDC1EF267479E01E13EA9A364D9
+magnet:?xt=urn:btih:AFB2B9D41625AE36154FBBAE96D167CDCFB45360
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +629,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427674   (182474) от 29.11.2020
+###  Публикация: 1348861   (140784) от 29.12.2019
 
-Marc Hartman - Music of the Third Kind (2017) [AAC|~345 Kbps] <Chillout, Trip-hop, Lounge>
+Маяк / The Lighthouse (2019) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182474.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. If I Fall in Love (4:42)
-02. Into the Stone (4:16)
-03. Hearsay (5:24)
-04. Angels in the Sky (5:15)(   Читать дальше...   )Жанр: Chillout, Trip-hop, LoungeПродолжительность: 01:24:57
+1890-е годы. Молодой Ифраим Уинслоу приезжает на отдалённый остров работать новым ассистентом смотрителя маяка. Его начальник — хромоногий и бородатый Томас Уэйк. Он обращается с помощником как с личным рабом и запрещает ему подниматься на сам маяк и управлять светом. Ифраиму предстоит провести в компании Уэйка четыре тяжёлые недели, в течение которых спокойный парень (   Читать дальше...   )Производство: Канада, США / A24, New Regency Pictures, RT FeaturesЖанр: Ужасы, фэнтези, драмаРежиссер: Роберт ЭггерсАктеры: Уиллем Дефо, Роберт Паттинсон, Валерия КараманПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (fullx2), английские (full, SDH)Продолжительность: 01:49:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43B7F5F3B09118DE35BA15D770B190024C74C0D0
+magnet:?xt=urn:btih:764F37600518FCC70AA4971A156C5DAC2C88EB29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,28 +655,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427623   (182393) от 29.11.2020
+###  Публикация: 1348889   (140723) от 29.12.2019
 
-VA - Pop Ambient 2021 (2020) [AAC|~304 Kbps] <Electro, Ambient>
+Zомбилэнд: Контрольный выстрел / Zombieland: Double Tap (2019) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182393.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140723.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blank Gloss - Of A Vessel (4:31)
-02. Yui Onodera - Cromo 5 (3:33)
-03. Thore Pfeiffer - Grape (3:29)
-04. Morgen Wurde - Mittsommer (5:23)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 02:24:37
+Беспощадная и бесстрашная четверка охотников на зомби продолжает свое путешествие в глубь страны. На этот раз им предстоит сразиться не только с новыми видами живых мертвецов, но и познакомиться с другими выжившими. Кроме того, в собственных рядах наших героев намечается серьезный разлад.Производство: США / Columbia Pictures, PariahЖанр: Ужасы, комедия, боевикРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Эмма Стоун, Эбигейл Бреслин, Зои Дойч, Эван Джогиа, Розарио Доусон, Люк Уилсон, Томас Миддлдитч, Виктория ХоллПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), украинские (Full), английские (Forced, Full)Продолжительность: 01:39:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CDAAC263177780405272BF11C59AC7CA27C6B40
+magnet:?xt=urn:btih:65818C06F297B38D0D83AAD07C246AD317F266D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348895   (140657) от 29.12.2019
+
+Zомбилэнд: Контрольный выстрел / Zombieland: Double Tap (2019) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_140657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспощадная и бесстрашная четверка охотников на зомби продолжает свое путешествие в глубь страны. На этот раз им предстоит сразиться не только с новыми видами живых мертвецов, но и познакомиться с другими выжившими. Кроме того, в собственных рядах наших героев намечается серьезный разлад.Производство: США / Columbia Pictures, PariahЖанр: Ужасы, комедия, боевикРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Эмма Стоун, Эбигейл Бреслин, Зои Дойч, Эван Джогиа, Розарио Доусон, Люк Уилсон, Томас Миддлдитч, Виктория ХоллПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), украинские (Full), английские (Forced, Full)Продолжительность: 01:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D392641950C15610135143120BAF734CA5631EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

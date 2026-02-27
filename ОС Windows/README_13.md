@@ -1,3 +1,55 @@
+###  Публикация: 1222958   (680554) от 01.05.2018
+
+Microsoft Windows 10 10.0.17134.1 Business editions Version 1803 (Updated April 2018) - Оригинальные образы от Microsoft [MSDN] [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы Windows 10 April 2018 Update от 30 апреля 2018 года. С обновлением Redstone 4 должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3972DD1A47B0C7CB5CDF83997085A2C1CACD9F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222973   (678684) от 02.05.2018
+
+Microsoft Windows 10 10.0.17134.1 Consumer editions Version 1803 (Updated April 2018) - Оригинальные образы от Microsoft [MSDN] by WZT [Ru/En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы Windows 10 April 2018 Update от 30 апреля 2018 года. С обновлением Redstone 4 должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Русский/Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27445BD9A44A7D3CAF754129AA57830C9A04DB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290519   (677896) от 20.03.2019
 
 Microsoft Windows 10.0.17134.648 Version 1803 (Updated March 2019) - Оригинальные образы от Microsoft MSDN [En]
@@ -653,59 +705,6 @@ Windows 10 November 2021 Update (под кодовым названием "21H2"
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F33F306C0A58B8D4BB80B32D85BC357FDBC2CC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147094   (610706) от 01.07.2017
-
-Microsoft Windows 10 10.0.15063.0 Version 1703 (Updated March 2017) - Оригинальные образы от Microsoft VLSC [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D23D3941404DA5B86A340EAFAD526DF42239EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296789   (609916) от 18.04.2019
-
-Microsoft Windows 10.0.17763.437 Version 1809 (April 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.437 (Updated April 2019).
-Business Edition и Consumer Edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A205AFF32D22D4CD3F436B649EAADEEBE843E0A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

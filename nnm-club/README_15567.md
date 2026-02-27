@@ -1,25 +1,22 @@
-###  Публикация: 1172656   (392093) от 09.10.2017
+###  Публикация: 401608   (394200) от 19.10.2011
 
-Upcdownc - I, Awake (2017) [MP3|320 Kbps] <Post Rock, Metal, Experimental>
+Рестлинг / WWE Monday Night RAW [эфир от 17.10] (2011) HDTVRip
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392093.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Am I Awake?, Pt. 1
-02. Am I Awake?, Pt. 2
-03. Am I Awake?, Pt. 3
-04. Am I Awake?, Pt. 4(   Читать дальше...   )Жанр: Post Rock, Metal, ExperimentalПродолжительность: 00:52:37
+RAW (среди фанатов известная как Monday Night Raw) — профессиональная рестлинг программа от Международной федерации рестлинга (WWE), которая в настоящее время транслируется на USA Network в Соединенных Штатах. В настоящее время RAW является одним из брендов WWE.Жанр: СпортПеревод: Двуголосый закадровый, любительскийПродолжительность: 01:30:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE56D46F4613EC3481F4199F623D7035D08BD3F0
+magnet:?xt=urn:btih:585FA886A1436F3B8925BF79275633BBAA50CF1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,137 +24,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172810   (392092) от 09.10.2017
+###  Публикация: 400183   (394197) от 19.10.2011
 
-VA - Deep Flavors (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+Azumanga Daioh / Адзуманга Дайо [2002, TV, 26 эп. + Omake] DVDRip 960p upconvert raw
 
->>Electronic
->>House
+>>Аниме с субтитрами
+>>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392092.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ryan Murgatroyd - Kanna 07:03
-02. Beckers - Summer Lights (Ruede Hagelstein's Late Summer Mix) 09:55
-03. Mash+Yuko - Talking About House (Anthik & Felipe Puertes Remix) 06:57
-04. Soledrifter - Luv U 06:18(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AEAA3C323186F151437247D6F0E218FE09E76BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172796   (392091) от 09.10.2017
-
-VA - Empire Records - ANDRS Disco 2 (2017) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beastie Brothers - Next Week (Original Mix)
-02. Don Diablo - Cutting Shapes (Extended Mix)
-03. Deepjack - Funky Beat (Savin Pushkarev Remix)
-04. Joe Manina - Like A Virgin (Club Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB1F6AE531236D64C4E8E737DEAD1580F767215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172801   (392090) от 09.10.2017
-
-VA - New York Fashion House (A Finest House Selection) (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Ramirez, Hot Hands - The Sound of Gran Canaria 07:37
-02. Play Girls - Nitro West 04:28
-03. Mark Moragui - The Oath and the Man (Long Groove Mix) 05:44
-04. Riccardo Medri - Magnetic Attraction 06:13(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D25C0AA24E39D5C2AE7BF9C5D2A5C21AABEDEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717460   (392072) от 31.10.2013
-
-Мадлен / Madeline (1998) DVDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Персонаж Мадлен — «визитная карточка» семи детских книг американца Людвига Бемельманса (Ludwig Bemelmans, 1898—1962 гг.). Первая повесть вышла в 1939 году, последняя — уже после смерти автора. Про Мадлен снято несколько фильмов, мультфильмов и телесериалов, в том числе и уже в XXI веке. Фигура Мадлен — неизменный участник праздничных парадов. «Madeline» — зарегистрированный (   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Дэйзи Фон Шерлер МайерПеревод: Многоголосый закадровый
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6B0E8454D2C5058515BB54F3984749F7D4993C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172803   (392066) от 09.10.2017
-
-VA - Vinyasa Yoga Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethereal Moments - Salutations to the Sun
-02. Robyn Goodall - Yoga Mindfulness
-03. Bella Element - Liquidity
-04. Joefish - Moon Dance(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:22
+Никогда еще в школьном аниме не собиралась такая веселая и сплоченная девичья компания. 10-летний гений Тиё-тян – маленькое чудо с косичками. Красавица Сакаки-сан с фигурой супермодели и безответной любовью ко всем окрестным кошкам. Очкастая отличница Ёми, теряющая спокойствие (регулярно) только по двум причинам: первая – показания весов, вторая – проделки лучшей (   Читать дальше...   )Жанр: комедия, повседневность, школаРежиссер: Нисикиори Хироси / Nishikiori HiroshiПеревод: Otousan fansubЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: (26 эп.), 24 мин.
 
 ## Скачать торент
 ```bash
@@ -169,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172782   (392065) от 09.10.2017
+###  Публикация: 401192   (394182) от 19.10.2011
 
-VA - 5 Years of Saturate Audio (Mixed by Basil O'glue & Styller) (2017) [MP3|320 Kbps] <Trance,Progressive Trance,Progressive House>
+Щедрое лето (1950) DVDRip
 
->>Electronic
->>Trance
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392065.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394182.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Basil O'Glue & Styller – 5 Years of Saturate Audio (Continuous DJ Mix Pt. 1) (01:15:01)
-02. Diversion – Disturbed (Solid Stone Presents) (05:00)
-03. FACEPALM – Flatland (Andre Sobota Remix) (04:11)
-04. Christopher Vassilakis – Turqoise (Naden Remix) (05:58)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Progressive HouseПродолжительность: 05:07:11
+После войны, на пути домой в родной колхоз, Петр Середа наблюдает, как на вокзале с помпой встречают местную героиню труда Оксану. В колхозе председательствует его друг и однополчанин – хороший и разбитной парень по имени Назар. Петр становится главным бухгалтером в колхозе, и на фоне сельской идиллии, песен и прочих прелестей социалистических достижений доказывает (   Читать дальше...   )Жанр: КомедияРежиссер: Борис БарнетАктеры: Николай Крючков, Михаил Кузнецов, Виктор Добровольский, Елена Максимова, Константин Сорокин, Марина Бебутова, Муза Крепкогорская, Нина АрхиповаПродолжительность: 01:21:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06BEF9B7FAE5F83016760B360A08DDC82E0DD9C0
+magnet:?xt=urn:btih:C9B345B4B2DAC586F68AE579B632C200F2889D4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +76,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172789   (392064) от 09.10.2017
+###  Публикация: 568971   (394181) от 01.11.2012
 
-VA - Progressive Package Vol.2 (Compiled by Arnox & Benzoo)(2017) [MP3|320 Kbps] <Psy-Trance>
+Helioss - The Forthcoming Darkness (2012) [MP3|192 кб/с]<Symphonic Black/Death Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392064.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394181.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mono - Music is my Reality 07:25
-02. Diadem - Trick it 08:28
-03. Drop the Pain - Delight 06:33
-04. Larix - Sunday 07:18(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:51:46
+1. Era of Rain
+2. The Worm Inside
+3. From the Buddha to the Cross
+4. Genocide
+5. De Occulta
+6. The Last Glow of the Universe
+7. Architects
+8. The Legion of Pariahs
+9. At the Center of Infinites
+10. Demiange(   Читать дальше...   )Жанр: Symphonic Black/Death MetalПродолжительность: 00:54:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DB4E2B6049D3B0DEB7195C3EA81DB80DF46EC6E
+magnet:?xt=urn:btih:A432BF03119A8F784426945C88CCC0B376F171EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,117 +111,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172293   (392063) от 09.10.2017
+###  Публикация: 568853   (394180) от 01.11.2012
 
-PowerPhotos 1.3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392063.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerPhotos позволяет разбить ваши изображения Photos.app среди нескольких библиотек фотографий, вместо того, чтобы хранить все в один гигантский библиотеке. Вы можете легко переключаться между библиотеками, или просто просматривать фотографии в вашей библиотеке непосредственно из PowerPhotos, без необходимости открывать каждую библиотеку.
-
-PowerPhotos также поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.10.2017Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0462E56C0753341646A8E843149BEAF65377ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172731   (392061) от 09.10.2017
-
-А.Г. Дугин | Ноомахия: войны ума. Логос Европы: средиземноморская цивилизация во времени и пространстве (2014) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392061.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются основные структурные характеристики европейской цивилизации с архаических эпох по настоящее время. Выявляется баланс трех Логосов (аполлонического, дионисийского и кибелического) на разных этапах европейской истории и в разных регионах Европы. Развивается идея о двух Европах — римской и греческой, западносредиземноморской и восточносредиземноморской, (   Читать дальше...   )Жанр: ФилософияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C954E0D13C6186A869AC1F1AF37E3979013554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172875   (392059) от 09.10.2017
-
-Bohannon - Summertime Groove (1978) Reissue CD, Mercury, 2003 [MP3|320 Kbps] <Funk-Soul, Disco, Rhythm & Blues>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lets Start The Dance (5:52)
-02. Listen To The Children Play (4:21)
-03. Me And The Gang (5:17)
-04. Lets Start The Dance (Finals) (0:56)(   Читать дальше...   )Жанр: Funk-Soul, Disco, Rhythm & BluesПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F39543C9338993B98416887F26B148FA5E8002C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569950   (392058) от 03.11.2012
-
-VA-Four Seasons - Autumn by Paul Oakenfold (2012) [MP3|320 кб/с]<Trance>
+VA - Amsterdam Dance Essentials: Trance (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392058.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394180.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Yahel - Creatures (Mix Cut) - Original Mix (5:41)
-2. Symbolic - One Step Closer (Mix Cut) - Original Mix (2:36)
-3. 2nd Phase - Dragon Bomb (Mix Cut) - Original Mix (2:45)
-4. Ana Criado - No One Home (Mix Cut) - Original Mix (4:41)
-5. Corderoy - Mechanical Tears (Mix Cut) - Original Mix (4:44)
-6. Cold Blue - Atlantis (Mix Cut) - Original Mix (4:52)
-7. Wellenrausch - Shape Of Berlin (Mix Cut) - Enoh Remix (5:25)
-8. Yahel - Life Of Your Own (Mix Cut) - Darma Vocal Mix (3:23)
-9. Jason Knight - Deep Forest (Mix Cut) - Derek Ryan Remix (5:02)
-10. Brian Cameron - Serotonin Syndrome (Mix Cut) - Eshericks Remix (4:16)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:16
+01 Cecilia Luce - Strong (Albert Keyn Remix) 08:57
+ 02 Denis Sender - 2011 Remixes (Progressive Brothers Remix) 08:02
+ 03 Darren Porter - Sparkles (Brett Wood Remix) 07:37
+ 04 Steve Allen & Alpha Duo - Nocturnal Desire (Johann Stone Remix) 08:03
+ 05 DAVE LEYROCK - Kyle Style (Original Mix) 08:08
+ 06 Aron H - Stargate (Mike Oceanic's Emotional Remix) 06:27
+ 07 Dean Anthony - Stand As One (Airsoul Remix) 06:18
+ 08 Imperfect Hope - Beat Your Soul (Original Mix) 08:34
+ 09 Vast Vision feat. Fisher - Hurricane (Ost & Meyer Remix) 08:18
+ 10 Audien - The Reach (Intro Mix) 04:33(   Читать дальше...   )Жанр: TranceПродолжительность: 03:01:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13649EFB45A550CF6B18ECBAC24D1C76F994A9D9
+magnet:?xt=urn:btih:55AA7A57429F54D7D78B49692690C8E4FFA54BE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,25 +146,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172729   (392057) от 09.10.2017
+###  Публикация: 568757   (394179) от 01.11.2012
 
-А.Г. Дугин | Ноомахия. Войны ума. Германский Логос. Человек апофатический (2015) [DJVU]
+VA - Танцевальный хит Передайз! 8 50/50 (2012) [MP3|256 кб/с]<Dance, Pop>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392057.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394179.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нооомахия — сражение в сфере идеального. Автор представляет человечество как ансамбль цивилизационных парадигм, ведущих между собой непрерывный диалог (борьба, понимание, солидарность, оппозиционность, война) на протяжении всей мировой истории. Панорама современного человечества предстает во всем многообразии философских Логосов, типов рациональностей и мифологических (   Читать дальше...   )Жанр: ФилософияФормат: DJVU
+001. DJ Smash, DJ Рыжов, ChinKong, Дискотека Авария, Нюша - Moscow Never Sleep
+002. Xonia - Remember (Radio Edit)
+003. Pulse - Ты убиваешь меня
+004. Psy - Gangnam Style
+005. Макс Барских - Глаза-убийцы (DJ Tarantino Official Remix)
+006. Kat Deluna - Wanna See You Dance
+007. DJ Jim & Extasy Project feat. Timo - Very Good (Radio Mix)
+008. Calvin Harris Feat. Florence Welch - Sweet Nothing (Radio Edit)
+009. Макс Лоренс - Все Что Мне Надо (Summer Mix 2012)
+010. Kardinal Offishall Feat. Karl Wolf - Turn It Up(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 05:23:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:659A34E7D1FDED305F757EAC4971CE51A6B11730
+magnet:?xt=urn:btih:65E1DAADE35E7295BEF797F6CF5F5DD1D37B5DFD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,25 +181,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172730   (392055) от 09.10.2017
+###  Публикация: 568878   (394177) от 01.11.2012
 
-А.Г. Дугин | Ноомахия. Войны ума. Французский Логос. Орфей и Мелюзина (2015) [DJVU]
+VA-W&W - Mainstage 127 (29.10.2012) [MP3|256 кб/с]<Trance>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392055.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394177.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нооомахия — сражение в сфере идеального. Автор представляет человечество как ансамбль цивилизационных парадигм, ведущих между собой непрерывный диалог (борьба, понимание, солидарность, оппозиционность, война) на протяжении всей мировой истории. Панорама современного человечества предстает во всем многообразии философских Логосов, типов рациональностей и мифологических (   Читать дальше...   )Жанр: ФилософияФормат: DJVU
+01. Dave Silcox – Four19
+ 02. Aston Shuffle vs Tommy Trash – We Wont Get Lost (Tommy Trash Version)
+ 03. Mainstage ID: Adele – Skyfall (ID Remix)
+ 04. Tristan Garner – Meteor
+ 05. Firebeatz – Here We Fckn Go
+ 06. Cosmic Gate ft Emma Hewitt – Calm Down (Omnia Remix)
+ 07. Dannic – Flare
+ 08. Rank 1 – Airwave (Jullians Bootleg)
+ 09. Smash of the Week: Bartlett Bros pres Ronnie Play – Massive
+ 10. Ben Gold ft The Glass Child – Fall With Me(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2024E76DCBB4F1D03831FC4ED7A991586C63A37
+magnet:?xt=urn:btih:73FC2F4D0A7CDAF233CFBA9BCFB5115BA825BBF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -397,28 +216,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172790   (392053) от 09.10.2017
+###  Публикация: 568463   (394175) от 01.11.2012
 
-VA - Music For Sports Games Vol.11 (2017) [MP3|320 Kbps] <Electro, Dance House>
+VA - Супертанцевальный TOP 200 50+50 (2012) [MP3|128 кб/с]<Pop, Dance>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392053.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. E.M.C.K. - Tell Me You Love Me (Alex Denada Radio Edit)
-002. Flashmob - Melting
-003. Melbourne Freaks - Deep Deep Down (Workout Edit)
-004. DJ Soulstar - My Love Is Everlasting (Radio Edit)(   Читать дальше...   )Жанр: Electro, Dance HouseПродолжительность: 09:41:11
+01. Шима - Без Тебя (Ignition Studio Edit)
+02. Rihanna Feat. Carlo Secreto - Tengo Un Amor (We Found Love) (Remix)
+03. Эльдар Далгатов - Без Тебя Я Не Могу (Version 2012)
+04. Voxis Feat. Kamelia - Am Invatat (Radio Edit)
+05. Biffguyz - Bum-Bum-Bum (Dj Andy Wait Remix)
+06. Lolita Jolie - Non Non Non (Rob And Chris Remix)
+07. Отпетые Мошенники - Руссо Туристо
+08. Cascada - Summer Of Love (Michael Mind Project Radio Edit)
+09. Napoli - Бомба (Radio Edit)
+10. Alex Gaudino Feat. Taboo - I Don't Wanna Dance (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:17:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:932320FA4982CC0294D74B8121B86A51B215A2AA
+magnet:?xt=urn:btih:B6120D3F11851F5DB6E2A95AE5F2AED44D18C45B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,52 +251,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172898   (392051) от 09.10.2017
+###  Публикация: 568769   (394174) от 01.11.2012
 
-Анна Велес | Чаша волхва (2017) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Едва войдя в старинную часовню, хозяйка «Бюро магических услуг» Елена Давыдова поняла: здесь недавно кого-то убили, и это убийство связано с артефактом небывалой силы, который до сих пор находится где-то неподалеку. Этот артефакт – магическую чашу древнего бога – ищут те, кто готов убивать без счета, кто не остановится ни перед чем, чтобы завладеть им. Но у чаши (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B204B8AE9E3BC6D060D03B274B9FF7D3E816420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172755   (392047) от 09.10.2017
-
-Coda 2.6.7 [En]
+Журнал | ТелеMеню №43 [октябрь-ноябрь 2012] [PDF]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392047.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Редактор для веб-разработчиков. Сделайте свой код красивым вместе с Coda!
-Текстовый редактор, передача файлов, SVN, CSS-редактор, терминал, доступ к книгам по разработке и многое другое. Всего насчитывается порядка ста функций, например, встроенный редактор MySQL, живые подсказки кода, в CSS редактор встроены всплывающие палитры цветов и внедрен режим просмотра результата (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2017Разработчик: PanicПоддерживаемая ОС: OS X 10.10.5 или вышеЯзык интерфейса: Английский
+Издание предлагает удобную форму меню на неделю со специально подобранными рецептами блюд на завтрак, обед и ужин, позволяющими разнообразить свою домашнюю кухню, а также рецептами вкусных коктейлей, которыми можно порадовать близких на выходных.
+Из журнала изъяты блоки "Телетоп" - "Гороскоп"Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F105451BCFD9D9DFD92C058AA29BBAC572710D7
+magnet:?xt=urn:btih:7D9A71DC888A37B7026BB7DD13AE1D67F5747F50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,134 +278,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 765858   (392045) от 09.10.2017
+###  Публикация: 568762   (394172) от 01.11.2012
 
-Б.А.Успенский | Крестное знамение и сакральное пространство [Почему православные крестятся справа налево, а католики - слева направо?] (2004) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена истории крестного знамения и призвана ответить на вопрос, сформулированный в заглавии: почему одни христиане (православные и несториане) крестятся справа налево, а другие (католики и монофизиты) — слева направо. Показывается древность обеих традиций и анализируются стоящие за ними религиозные представления. Особый экскурс посвящен истории перстосложения (   Читать дальше...   )Жанр: Религиоведение. История религийФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AFF13ADE8627BD821B798C1FF22374ED8C25EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172787   (392043) от 09.10.2017
-
-save2pc Ultimate 5.5.2 Build 1572 RePack by вовава [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392043.jpg" />
-</div>
-
-
-###  Подробнее
-
-save2pc Ultimate - новая версия неплохой программы, которая позволяет скачивать видеофайлы со множества разнообразных онлайн-видеосервисов, таких как Youtube, Google Video, Myspace Video, Break.com и многих других. Крайне простая в использовании. Просто вставьте ссылку на нужный файл в окошке программы, выберите нужный формат и запустите автоматическую загрузку / (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C2813E8F63761CFDFF8DC6475F3DA4DF3D9601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569562   (392042) от 03.11.2012
-
-Нанкинский пейзаж (2006) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое мужчин начинают ухаживать за девушкой Надей. Являясь превосходными рассказчиками, делают все, чтобы ей понравится. Они абсолютно разные: один простой с криминальным прошлым, а другой интеллигент, побывавший в Китае. Максимальный накал страстей. Кого изберет девушка? Где правда и где вымысел? Кто из них все-таки говорит правду? Что будет впереди?Жанр: Драма, МелодрамаРежиссер: Валерий РубинчикАктеры: Константин Лавроненко, Дарья Мороз, Егор Баринов, Ольга Литвинова, Анастасия Аравина, Юлия Кошкина, Александр Миронов, Марианна Рубинчик, Ли У Сяо Фан, Юй ХаньПродолжительность: 01:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089449758F04F1F7E3887561C8F07AC6E01196D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172780   (392041) от 09.10.2017
-
-Mellel 4.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mellel – продвинутый мультилингвистический текстовый редактор, созданный специально для студентов, писателей, журналистов и всех, кто хочет комфортно набирать текст.
-
-Mellel предлагает специальные инструменты для написания и оформления длинных документов. Mellel отличный выбор для работы с документами на арабском, персидском, иврите и сирийском языках. Но даже если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2017Разработчик: RedleXПоддерживаемая ОС: OS X 10.6 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527E94FB136C3A74AFBFBACF65F93A8AE8F7BF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172727   (392039) от 09.10.2017
-
-Alix Perez - Nighthawks (2017) EP [MP3|320 Kbps] <Drum & Bass>
+VA - Mega дискотека: Super хиты 7 Осень (2012) [MP3|128 кб/с]<pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392039.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lucky Charm (05:18)
- 02. Blips (03:54)
- 03. Nighthawks (04:36)
- 04. Missing Pieces (feat. Javeon) (04:59)Жанр: Drum & BassПродолжительность: 00:18:47
+001. Тамерлан и Алена Омарголиева - Ты Только Мой
+002. Алёна Высотская - День и ночь
+003. Varda - Я Тебе Не Верю
+004. Инь-Ян - Инопланетянин
+005. Анжелика Варум - Нарисуи любовь (Radio Edit)
+006. Ирина Кулькова & CJ Alexey Lavrentev - ВКонтакте
+007. K.Melody - Никто кроме тебя
+008. Мари Краймбрери - Остыла
+009. Vetra-N - Долго нельзя
+010. Ранетки - Ревность(   Читать дальше...   )Жанр: popПродолжительность: 12:26:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C873490911A49BF0E8003951BAA162F645766F15
+magnet:?xt=urn:btih:5F3F9BE9291086F8B7712038294205836BE842AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,30 +313,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569160   (392038) от 03.11.2012
+###  Публикация: 568459   (394171) от 01.11.2012
 
-Pinkpop - The Vintage Years 1970-1974 (2004) DVDRip
+VA - XXXL Союз. Осенний драйв. Версия русская (2012) [MP3|256 кб/с]<Pop, Dance>
 
->>Театр и Музыкальное видео
->>Концерты (SD)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392038.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хороших съёмок этого фестиваля сохранилось весьма мало. Фильм, конечно,
-не уровня Вудстока и прочих, но посмотреть можно...очень интересные,редкие кадры
-групп которых трудно найти! Очень нестандартный подбор хороших исполнителей!01 - Alquin - Oriental Journey
-02 - Golden Earring - Back Home
-03 - Brainbox - Down Man
-04 - Supersister - Mexico(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 01:02:26
+001. Mainstream One - Под Тёмными Очками
+002. Егор Сесарев - Громче Музыка
+003. Archi-M Feat. Zip92 - История Моя
+004. Eva Kade - Твои Глаза
+005. White House - Я Так Люблю Тебя
+006. Т9 - Шаг
+007. David - Подожди
+008. Жасмин - От Любви До Любви
+009. Александр Панайотов - To Sade
+010. Филипп Левшин - Лечу На Море(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:13:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B12872259AC6FD52C49A760FFEDB22453243E28
+magnet:?xt=urn:btih:294426CF0AB292879B86C3DDDB21B4C62E2735F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,28 +348,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172779   (392037) от 09.10.2017
+###  Публикация: 1172216   (394167) от 07.10.2017
 
-Sander van Doorn pres. Purple Haze - SPECTRVM (2017) [MP3|320 Kbps] <House, Progressive House, Progressive Trance, Trance>
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Южная Америка. 17-й тур. Аргентина – Перу (05.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Electronic
->>House
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392037.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_394167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Purple Haze - Plum (03:19)
-02. Purple Haze - Fall In (feat. James New) (03:10)
-03. Purple Haze - Neiloj (04:49)
-04. Purple Haze - Contrast (04:50)(   Читать дальше...   )Жанр: House, Progressive House, Progressive Trance, TranceПродолжительность: 00:56:21
+06 октября 2017 года, пятница. 02:30 МСК
+Чемпионат Мира 2018. Отборочный турнир. Южная Америка. 17-й тур
+Аргентина – Перу
+Стадион: Альберто Армандо (Буэнос-Айрес, Аргентина), вместимость: 49000(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:490A33A5E40668888C65E3FDEB5EF4CB7AD02082
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,25 +377,276 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 569528   (392036) от 03.11.2012
+###  Публикация: 1172192   (394166) от 07.10.2017
 
-Cheek ft. Jonne Aaron - Anna Ma Meen (2012) [H.264] WEBRip
+Советы в Китае (1933) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материалы и документы о советском движении в Китае, публикуемые в настоящем сборнике, в основном собраны и подготовлены к печати немецким рабочим издательством „Verlag Carl Hoym Nachf.," Berlin для издания па немецком языке.
+
+Материалам и документам предпослана вводная статья К. Иогансон н О. Таубе, которая дает очерк развития советского движения в Китае и характеристику (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984CA1B1BC12F134F4F0A850BF7CD7B1166EFCD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172165   (394165) от 07.10.2017
+
+Art Blakey - The Prime Source (1954 - 1956) 4CD, 2007, Proper Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394165.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - That Night at Birdland:
+01. Alien Chase On Arabian Desert [08:57]
+02. Silent Story In Her Eyes [07:33]
+03. Roller Jubilee [04:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 05:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C065A3EAF299DD8F6D9CF5DB1D411AF26D189A57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172155   (394164) от 07.10.2017
+
+Terry Gibbs - Plays Jewish Melodies In Jazztime (1963) 2002, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bei Mir Bist Du Schon [05:02]
+02. Papirossen (Cigarettes) [04:25]
+03. Kazochok (Russian Dance) [02:51]
+04. Vuloch (A Folk Dance) [04:00](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D6E6D3E027C68800193CCC618A824FDD9C5AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172252   (394163) от 07.10.2017
+
+Д. И. Писарев | Литературно-критические статьи (1939) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дмитрий Иванович Писарев (1840 - 1868) - русский публицист и литературный критик, революционный демократ. По праву считается «третьим», после Чернышевского и Добролюбова, великим русским критиком-шестидесятником. Плеханов называл его «одним из самых выдающихся представителей шестидесятых годов». В книгу вошли самые известные литературно-критические статьи Д. И. Писарева: (   Читать дальше...   )Жанр: История, политология, искусство, философия, эстетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C569332CDB65EFCF0015D22898089E690537C25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171962   (394162) от 07.10.2017
+
+Chatty for Facebook 2.3.0 [En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_394162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chatty — замечательный Facebook-мессенджер для OS X.
+У него отличный внешний вид, он обладает всеми нужными функциями и, разумеется, поддерживает пуш-уведомления. В целом приложение выглядит как любой стандартный мессенджер. Как и в веб-версии Facebook, в Chatty можно пользоваться смайлами и прикреплять вложения.
+
+Настроек немного. Можно управлять внешним видом уведомления, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2017Разработчик: Adam PangerПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский, немецкий, французский и др.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172182   (394161) от 07.10.2017
+
+Газета | Тайны вселенной №10 (2017) [PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_394161.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тайны вселенной» – Познавательное издание, в котором каждый читатель найдет для себя интересную тему. На страницах журнала множество рубрик, посвященных различным областям знаний, в которых освещаются последние достижения науки и техники. Читая материалы этого издания вы откроете тайны генной инженерии и альтернативной энергетики, узнаете о последних разработках (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172198   (394160) от 07.10.2017
+
+С. И. Юткевич | Модели политического кино (1978) [DJVU]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_394160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного режиссера, доктора искусствоведения С. Юткевича посвящена в первой своей части анализу фильмов различных жанров на политическую тематику, выпущенных в 1970-1976 годах на экраны США, Франции, ФРГ, Греции и других капиталистических стран.
+
+Вторая часть книги рассматривает поэтику кинодраматургии В. Маяковского и ее роль в создании советского политического (   Читать дальше...   )Жанр: История, политология, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171927   (394159) от 07.10.2017
+
+Thunderhead - Thunderhead (1975) Reissue, 2009, Crossroad Productions [MP3|320 Kbps] <Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Busted In Georgia
+02. Lay It On The Line
+03. Got To Get Away
+04. Showdown(   Читать дальше...   )Жанр: Rock, Southern RockПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65D4AF84F409A9EA9E9665836712817303AB241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172172   (394158) от 07.10.2017
+
+QuartzCode 1.59.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394158.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuartzCode — это быстрый, легкий и мощный инструмент, который превращает векторную графику и анимации в код Objective C и Swift. Создание анимаций для вашего iOS или OS X проекта теперь проще некуда. Просто изменяйте любые параметры и смотрите на изменения в реальном времени. Используя QuartzCode вы можете создать любую анимацию за считанные секунды и тут же посмотреть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2017Разработчик: WAN LUTFI WAN MD HATTAПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE2D5B132DA40AB191349B871D6BBDA2A2B99CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172089   (394157) от 07.10.2017
+
+Rumpus PRO 8.1.10 [En]
 
 >>Архив торрентов
->>Архив Музыкального Видео
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392036.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_394157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 00:04:11
+Rumpus - простой в использовании, высокопроизводительный FTP, WebDAV сервер для macOS.
+Встроенные, удобные в администрировании пользовательские учетные записи, интегрированная передача файлов в сети Интернет, уведомления о загрузке файлов, обширные настройки безопасности, потрясающе высокая производительность, и многое другое... Также включает монитор активности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2017Разработчик: Maxum DevelopmentПоддерживаемая ОС: macOS 10.6.0 или более новаяЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65BA1C320BEDF59900AE1997C491263DD5D5FD52
+magnet:?xt=urn:btih:DEF17F394324DEF4D6A1485057988473ABD1AD96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,25 +654,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172715   (392035) от 09.10.2017
+###  Публикация: 1172163   (394156) от 07.10.2017
 
-Марта Таро | Галантный детектив (Книга 2). Охота на Менелая (2017) [MP3, Вероника Обоянка]
+21 условие приема в Коммунистический интернационал (1933) [PDF]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392035.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_394156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Охота на Менелая" – второй роман Марты Таро из увлекательного цикла «Галантный детектив», в котором карты Таро предлагают читателям новую загадку, жанр исторический детектив. 1826 год. Разведка Черноморского флота перехватывает донесение турецкого агента, подписанное кодовым именем Менелай. Командующий флотом поручает своему любимому ученику князю Ордынцеву (   Читать дальше...   )Жанр: Исторический детективПродолжительность: 11:41:48
+«Условия приема в Коммунистический Интернационал», принятые II конгрессом Коммунистического Интернационала (июль—август 1920 г.), принадлежат к числу важнейших боевых документов международной большевистской партии.
+
+«21 условие» было выработано конгрессом под непосредственным руководством Ленина. Эти условия являются ярким выражением того, как Владимир Ильич, исходя (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60637B6FD3E2F1CFACC35A161DE090A4942CB995
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172217   (394155) от 07.10.2017
+
+Журнал | Все загадки мира №21 (октябрь 2017) [PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_394155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для людей, которым нравится узнавать новое, расширять кругозор, быть в курсе научно-популярных событий. Удивительные явления, невероятные гипотезы, сенсации и мнения экспертов. А также интересные: открытия, феномены, версии. Авторитетное и увлекательное изложение познавательных фактов.Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172266   (394154) от 07.10.2017
+
+Журнал | Ступени Оракула №9 (2017) [PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_394154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание предлагает разнообразие точек зрения — от фантастических предположений до научных теорий, оставляя выбор за читателем. Мнения профессионалов и свидетельства очевидцев, факты, феномены, версии. Журнал, открывающий мир!Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172245   (394153) от 07.10.2017
+
+М. Корнфорт | Наука против идеализма. В защиту философии, против позитивизма и прагматизма (1967) [DJVU]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_394153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор настоящей книги, английский философ-марксист Морис Корнфорт, хорошо известен советскому читателю по переводам некоторых его работ, в том числе по переводу «Диалектического материализма», изданному на русском языке в 1956 году.
+
+«Наука против идеализма» — переработанное и объединенное в одном томе издание двух работ: «Наука против идеализма» (1948) и «В защиту (   Читать дальше...   )Жанр: История, политология, философия, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

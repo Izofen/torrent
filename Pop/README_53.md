@@ -1,3 +1,293 @@
+###  Публикация: 1370735   (893656) от 29.03.2020
+
+Пропаганда - Стихи в метро или одни дома (2005) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Скучаю (4:24)
+02. Любит - не любит (5:49)
+03. Стихи в метро (3:37)
+04. ...в 20 лет (Проститутка) (3:26)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A20F360DD9B565BFF1E23609DA54260C4AD905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370741   (893589) от 29.03.2020
+
+Пропаганда - Ты мой парень (2008) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Непростой (4:05)
+02. Гордая (3:37)
+03. Ты мой парень (2:50)
+04. По радио (3:45)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D055669E7DC96A6F1FD8686E831D15525BF4B4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370833   (893574) от 29.03.2020
+
+Турбомода - Для тебя (2008) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Турболюбовь (Remake 2008) (4:29)
+02. Зацелую (3:26)
+03. Девушка в погонах (2:54)
+04. Мама (Remake 2008) (4:08)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2790D529BC17EA599C0A8A4D650BC03A48CF8DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993927   (893572) от 06.03.2016
+
+Стрелки - Прости, прощай, не вспоминай... (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прости, прощай, не вспоминай...
+02. Капает дождь
+03. Валентинка
+04. Прощай, прощай(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3E0707B3CFAA1485E67769145F9ED4BE895785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370749   (893571) от 29.03.2020
+
+Пропаганда - Кто-то играет в любовь (2003) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я сама (4:20)
+02. Кто-то играет в любовь (3:23)
+03. Дождь (3:41)
+04. Кто? Кто ? (Youbon remix) (3:55)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A806343B0664DCE264E1B25A9A1A59F0EBF683C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370819   (893565) от 29.03.2020
+
+Балаган Лимитед - Не губи любовь (2000) [MP3|320 Kbps] <Pop, Folk, Country>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тапочки (3:50)
+02. Ты мне - я тебе (3:57)
+03. Не Губи Любовь (3:42)
+04. Маменька (4:17)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5AE550AA40919020E0CCEC2F5FAD84776D3B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370825   (893517) от 29.03.2020
+
+Балаган Лимитед - Что я наделала (2002) [MP3|320 Kbps] <Pop, Folk, Country>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Что я наделала (4:23)
+02. Казачок (3:29)
+03. Частушки (3:59)
+04. Три часа (3:22)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DFB8A87F076635AE1ABEF96BF751489D5861BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370671   (893513) от 29.03.2020
+
+Waxahatchee - Saint Cloud (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxbow (02:53)
+02. Can’t Do Much (03:44)
+03. Fire (03:37)
+04. Lilacs (03:15)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E9A020C13D9E040C9A66405F23B217A47C56C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101794   (892935) от 08.02.2017
+
+Karizma Duo - Unplugged (2017) [MP3|320 Kbps] <Pop, Acoustic, Covers>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Cars
+02. Torn
+03. Against All Odds
+04. Cry Me a River(   Читать дальше...   )Жанр: Pop, Acoustic, CoversПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2F55AB0C923BF9271C743BFA1D9DCCAA1526F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869177   (892594) от 14.02.2015
+
+VA - Radio 538: Hitzone 72 (2015) 2CD[FLAC|Lossless]<Pop, Dance, Top40>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мне приходилось уже выкладывать из этой серии диск из своей коллекции (помнится купленный по случаю за границей). И диск заезжен у меня до дыр. Именно поэтому слежу за появлением новых релизов из этой серии. И Вам рекомендую.CD1:
+01. Omi - Cheerleader (Felix Jaehn Remix)  (3:02)
+02. David Guetta ft. Sam Martin - Dangerous  (3:25)
+03. Anouk & Douwe Bob - Hold Me  (3:51)(   Читать дальше...   )Жанр: Pop, Dance, Top40Продолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FCB6525501A7F04A7F2A3E5ABF38B635085974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494022   (892566) от 05.09.2021
 
 Chantal Curtis - Get Another Love (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
@@ -456,296 +746,6 @@ ABBA - Still Have Faith In You, Don't Shut Me Down (2021) [FLAC 2.0|96/24|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74D202BFC3CA63B24B9E865904AA04B456B851F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640070   (890268) от 05.04.2013
-
-Alizee - 5 (2013) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Cause De L’automne (03:55)
- 02. 10 Ans (03:01)
- 03. Je Veux Bien (03:39)
- 04. Mon Chevalier (03:04)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF3FFD0C4EE5A3F313CD433B321CBB538A1AA82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370780   (890147) от 31.03.2020
-
-Балаган Лимитед - Письмо любимому (1998) [MP3|320 Kbps] <Pop, Folk, Country>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Проводы (3:15)
-02. Волна (4:23)
-03. Мы по городу идем (2:17)
-04. Письмо любимому (4:22)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D55DF0A93A62A49887FDE0DD09D4AB4844BD574B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371393   (890095) от 31.03.2020
-
-VA - For The Love Of You (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul & Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_890095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Hunningale - Rocking You Eternally (3:43)
-02. Christine Lewin - Juicy Fruit (3:58)
-03. Pure Silk - Don't let Love Get You Down (4:24)
-04. Al Charles - Oustanding (5:51)(   Читать дальше...   )Жанр: Soul & Funk, DiscoПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEDE79945E8D2BC6CBDA8438F8B375976D13CBA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370775   (890093) от 31.03.2020
-
-Балаган Лимитед - Чё Те Надо? (1997) [MP3|320 Kbps] <Pop, Folk, Country>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_890093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тустёп (4:40)
-02. Чё те надо? (3:56)
-03. У меня младой муж гнедой (3:17)
-04. Отелло-Мавр (2:57)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:463868FE4892D428C24387D33EBA1D9AF25C498F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371525   (889983) от 31.03.2020
-
-Вадим Мулерман - Лада-Золотая коллекция ретро (2005) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Советская эстрада, РетроПродолжительность: 01:12:23Трэклист: 01. Лада 3:27
-02. Тундра 3:46
-03. От Владивостока до Карпат 2:17
-04. Судьба 4:16(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9E306296007B43F0E96296216757C69FAF5CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371526   (889930) от 31.03.2020
-
-гр. Электроклуб - Музыка Давида Тухманова (2008) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:07:53Трэклист: 01. Нервы, нервы, нервы...
-02. Воздушные замки
-03. Чистые пруды
-04. Но всё-таки лето(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC6A06FAC01D7E913E96398D163FC60E1306302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994661   (889825) от 08.03.2016
-
-The Twins - Hold On To Your Dreams (1987) Remastered, 2003, Passion Factory Records [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Euro Disco, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold on to your dreams
-02. Love can change it all
-03. Time will tell
-04. What do you live for(   Читать дальше...   )Жанр: Synthpop, Euro Disco, New WaveПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5FCE22047611FD339D924FA0CD41B7CCC8CD4D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994600   (889795) от 08.03.2016
-
-Wax - A Hundred Thousand In Fresh Notes (1989) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anchors Aweigh
-02. Wherever You Are
-03. Railroad To Heaven
-04. He Said She Said(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05454FFACBD57D6531A0E40B432E8E8C5EFDB23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994576   (889782) от 08.03.2016
-
-Wax - American English (1987) [OGG|453-489 кб/с] <New Wave, Pop Rock, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American English
-02. In Some Other World
-03. Ready Or Not
-04. Call It Destiny(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93AEF5C30E13EB81C82949CD29690F989764C5DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994469   (889641) от 08.03.2016
-
-VA - Die Hit-Giganten - Sommerhits (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haiducii - Dragostea Din Tei (3:33)
-02. Bellini - Samba de Janeiro (2:48)
-03. Loona - Bailando (3:34)
-04. Mr. President - Coco Jamboo (3:38)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F6F0C185F9CF6AFAE3C46EC426C4DAB72EB566D
 ```
 
 https://mybot314.ru/tekegram_catalog/

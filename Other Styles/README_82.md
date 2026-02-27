@@ -1,3 +1,61 @@
+###  Публикация: 1133416   (695124) от 12.05.2017
+
+Micki Free - The Native American Flute As Therapy (2016) [MP3|320 Kbps] <New Age, World, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Candle Light
+02. The Healing Bath
+03. Lavender Kiss
+04. The Native American Flute as Therapy(   Читать дальше...   )Жанр: New Age, World, Native AmericanПродолжительность: 01:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A387A52E2DF2066CA7080EA27E6D4E3057AFD15F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027842   (694834) от 20.06.2016
+
+Kavin Hoo - Chi: Music for Balance & Relaxation (2011) [FLAC|Lossless|tracks + .cue] <New age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Footsteps in the Snow [00:08:13]
+02. Melodies from the Night Fisherman [00:02:45]
+03. Jade River Sampan [00:04:03]
+04. Peach Garden [00:05:53](   Читать дальше...   )Жанр: New age, Meditative, RelaxПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F749E95BBABA092B4FE33AB77465A4DE373C353E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 211771   (694820) от 20.06.2010
 
 Anugama - 19 albums (1986 - 2000) [MP3|320 kbps]<New age>
@@ -690,64 +748,6 @@ Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D9C34918842D297E8EA908409B64CEEF2AFF13F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134081   (691069) от 14.05.2017
-
-Terry Oldfield and Carlos Garo - Sky Dancer (2017) [MP3|320 Kbps] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky Dancer
-02. Reach Out
-03. Orbital
-04. The Man with No Face(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237FB0B37098948431ABF6F2644C864FBA5355B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134199   (690879) от 14.05.2017
-
-Audiomachine - Worlds of Wonder (2017) [MP3|320 Kbps CBR] <Soundtrack, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby of the Siren [02:42]
-02. No Retreat, No Surrender [03.24]
-03. The Wandmaker [01:52]
-04. Peculiar Magic [02:39](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Classical CrossoverПродолжительность: 01:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D932D64AAE948747AB8DC116195BCB1B04603A
 ```
 
 https://mybot314.ru/tekegram_catalog/

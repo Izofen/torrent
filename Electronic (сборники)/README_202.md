@@ -1,31 +1,31 @@
-###  Публикация: 497770   (254330) от 19.05.2012
+###  Публикация: 588013   (153172) от 14.12.2012
 
-VA - Energy Super Dance Vol.7 (2012) [MP3|320 кб/с]<Electro-House, Trance, Dance, Club, Dubstep>
+VA - Creative Electro Box 1 (2012) [MP3|320 кб/с]<House/Electro House/Electro>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254330.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alex Gray & Rolvario feat. Kaysee - Crazy (Original Mix) (5:32)
- 02. Alpha Duo feat Fisher - Fight For Love (Binary Finary Remix) (7:40)
- 03. Archie Feat. Anna Yvette - Villo (Extended Edit) (5:11)
- 04. Arhod - Giving Love To Me (Original mix) (6:05)
- 05. Avicii - Silhouettes (Original Mix) (7:00)
- 06. Ayah Marar - Mind Controller (Cutline Remix) (5:06)
- 07. Bodybangers - Sirens 2012 (Club Mix) (4:50)
- 08. Carly Rae Jepsen - Call Me Maybe (Trifo Club Mix) (7:00)
- 09. Chase & Status - Flashing Lights Ft. Takura (Mac Miller Remix) (2:53)
- 10. Chrizz Luvly - Here We Go (Original Mix) (4:41)(   Читать дальше...   )2012Жанр: Electro-House, Trance, Dance, Club, DubstepПродолжительность: 04:29:45
+1. Albin Myers feat. Tiesto vs. Depeche Mode - Maximal Hells Bells, Jesus! (Riverhouse Bootleg)
+2. Andrew Bennett - Roadtrip
+3. Arno Cost - Lifetime
+4. Audien - Sup
+5. Benny Benassi - House Music
+6. Benny Benassi feat. Pink Is Punk - Perfect Storm
+7. Duvoh feat. Tess Marie - Come Over (Deorro Remix)
+8. Far East Movement - Dirty Bass (James Egbert Remix)
+9. Fedde Le Grand feat. Nicky Romero vs. Matthew Koma - Sparks (Jochen Miller Remix)
+10. Franky Rizardo feat. Roul And Doors - Elements (Hardwell feat. Dannic Remix)(   Читать дальше...   )Жанр: House/Electro House/ElectroПродолжительность: 02:41:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24A24E748E5EF7F3B33345BB971E5E96F139298C
+magnet:?xt=urn:btih:AA3C4BA38220A45AEF3989EEAC931B50C7D796EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,28 +33,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836635   (254255) от 12.11.2025
+###  Публикация: 588627   (153138) от 14.12.2012
 
-VA - No name compilation electronic vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
+VA - Pure Trance Emotions (2012) [MP3|320 кб/с]<Trance, Progressive Trance, Vocal Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254255.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Xezzo - You and the Rain
-02 - Dova Music - Hold Me Tight
-03 - Isskoy - Heavy Weight
-04 - Riltim - Raindrops(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:53:44
+1. Aly & Fila Feat. Jwaydan - We Control The Sunlight (Original Mix)
+2. Parka feat. Anna Basel - Momentarily Gone (Mike Nichol Remix)
+3. Trance Arts featuring DaJan - Beneath The Shadows (Astuni Remix)
+4. Steve Allen & Ian Holing Feat. - Control It Down (Aurosonic Mas
+5. Smart Apes Vs DJ Anna Lee - Running Away (Fat Kid Remix)
+6. Noel Gitman - Endless Love Oen Bearen Remix
+7. Shogun Feat Emma Lock - Run To My Rescue (Original Mix)
+8. A.T.M. - Broken Dreams (Mindful Innovations Remix)
+9. Fast Distance - Pacifica (Temple One Remix)Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 06:31:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4204D453BE54E51B3254B33B9391F6E42457BD5A
+magnet:?xt=urn:btih:2A3C39835694E25DC0B21699CED7BF9863E2F46D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -62,28 +67,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836633   (254254) от 12.11.2025
+###  Публикация: 589095   (152763) от 14.12.2012
 
-Jumanov - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic>
+Dj Parafich - Dub Step Romantica (vol. 2) [more harder] (2012) [MP3|192 кб/с]<Dub Step>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254254.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Life is Fast
- 02 - Define Happiness
- 03 - Testosterone
- 04 - We Exist Today(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:34
+01 J.Viewz - Oh, Something's Quiet (BeatMagik Remix)
+02 La Roux - I'm Not Your Toy (Nero Remix)
+03 J.Rabbit - Ninja GaidenЖанр: Dub StepПродолжительность: 00:38:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6717AA3B6EAE289CD977A0A0E38C23B3592644CE
+magnet:?xt=urn:btih:DBE482057B39F5A40B41201BFCD21370C3E2B78C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -91,34 +95,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498405   (253955) от 18.05.2012
+###  Публикация: 1086415   (152729) от 24.12.2016
 
-VA - Ministry of Sound: Louder! (2012) [MP3|320 кб/с]<Dubstep, Drum & Bass, House>
+VA - Empire Records - Chill Out 4 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253955.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Fresh feat. Rita Ora - Hot Right Now (Radio Edit) [03:02]
- 02. Utah Saints and Drumsound & Bassline Smith - What Can You Do for Me (Radio Edit) [02:48]
- 03. Example - Playing In The Shadows [04:39]
- 04. Laidback Luke feat. Sander van Doorn - Who’s Wearing The Cap (Hizzleguy Remix) [04:19]
- 05. Nadia Ali - Rapture (Avicii New Generation Radio Edit) [03:41]
- 06. Avicii - Fade Into Darkness (Original Edit) [05:29]
- 07. Starkillers feat. Nadia Ali - Keep It Coming (Original Mix) [06:47]
- 08. Dada Life - Let's Get Bleeped (Tiesto Remix) [07:39]
- 09. Nicky Romero - Toulouse [06:05]
- 10. Afrojack feat. NERVO - The Way We See the World (Tomorrowland Anthem Afrojack Vocal Edit) [07:23]2012Жанр: Dubstep, Drum & Bass, HouseПродолжительность: 04:18:07
+01. Spielwiese - Inside Outside
+02. Emmett Zetto - Pursuit of Happiness
+03. Abakus - Dreamer
+04. Sensitive - Gully(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:34:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34CB9CE90F90C610D3534429C6A8A6C31684DC34
+magnet:?xt=urn:btih:0A1F82BE4AE2905FFA180D81F64EC8BEFDC0BC0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -126,32 +124,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498250   (253946) от 18.05.2012
+###  Публикация: 1194822   (152655) от 26.12.2017
 
-VA - Vocal Passion Vol.27 (2012) [MP3|320 кб/с]<Vocal Trance>
+VA - Лучшие клубные новинки Vol.7 (2017) [MP3|320 Kbps] <Uplifting Trance, Deep House, Drum & Bass>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Vocal Passion Vol. 27(2012)
+01. Above & Beyond Feat. Richard Bedford - Northern Soul (Spencer Brown Remix) 9:03
+02. Aevion & Sir Felix feat. Cider Sky - Weekend Love (Extended Mix) 5:02
+03. Alessandra Roncone - Down the Rabbit Hole (Original Mix) 5:31
+04. Alesso & Anitta - Is That For Me (3LAU Remix) 2:58(   Читать дальше...   )Жанр: Uplifting Trance, Deep House, Drum & BassПродолжительность: 14:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0E811BA9632620EEB63983488407BC60CB939B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271177   (152600) от 22.12.2018
+
+VA - Chingona: Psychedelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152600.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aora Paradox - Pulsar Alpha
+002. Hanumann - Newen Weichafe
+003. Twodelic - Way Out (Original Mix)
+004. Wicked - Haze (Original Mix)(   Читать дальше...   )Жанр: Psy Trance, Goa TranceПродолжительность: 12:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE96A10DB8BCD4A3420C0B608398C526FF892BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271174   (152452) от 22.12.2018
+
+VA - Beautiful Light: New Trance Music (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152452.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A & Z - Mesmerized (Original Mix)
+002. Andrew Rayel - My Reflection (Roman Messer Remix)
+003. Khairy Ahmed - Broken Wings (Extended Mix)
+004. Anima And Alexmo - Augmented (Alexmo Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 10:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594BAA7F2B49952E1712A5D259D713A15EE7E699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271164   (152178) от 22.12.2018
+
+VA - Корпоратив 2019 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Funky House, Dance, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152178.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Preparty
+Продолжительность: 01:02:41
 
-Год: 2012
-Жанр: Vocal Trance
-Продолжительность: 02:51:12Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-001. BBE feat. Zoexenia - 7 Days & One Week (Armin Prayd Remix)(   Читать дальше...   )
+01-Syntheticsax - Jingle Bells (Choir Extended Mix)(   Читать дальше...   )Жанр: Club House, Funky House, Dance, Deep HouseПродолжительность: 03:04:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:164412E261F008850DA6F9F3FCFEBF8D7893B23A
+magnet:?xt=urn:btih:3BA48B61A5DF26F346FB8022D64AC521B4DE65FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -159,34 +240,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497792   (253924) от 18.05.2012
+###  Публикация: 1824123   (151687) от 17.10.2025
 
-VA - Sense Of Trance #30 (16.05.2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
+VA - 60 minutes. Old School Dance Music vol.28 (mixed by Dj V) (2024) [MP3|320 Kbps] <Club House, Dancecore, Hard Trance, Euro Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dabruck & Klein - 2.48AM (Extended Mix) [06:45]
-02. Umek & Beltek - Army Of Two (Jay Lumen Main Stage Remix) [08:10]
-03. Faruk Sabanci - As Faces Fade (Alexander Popov Remix) [06:50]
-04. Orjan Nilsen - Atchoo! (Original Mix) [07:16]
-05. Sied van Riel - Audio 52 [05:45]
-06. Oliver Smith - Butterfly Effect (Club Mix) [06:53]
-07. Vascotia - Calibro 2011 (Jonas Stenberg Remix) [07:36]
-08. Super8 & Tab - Cre8 (Mike Saint-Jules Remix) [07:51]
-09. Matt Bowdidge - Crossing North (Original Mix) [07:52]
-10. Mike Danis - For You (Juventa Club Mix) [07:16](   Читать дальше...   )16.05.2012Жанр: Uplifting Trance, TranceПродолжительность: 04:23:00
+01-ATB - The Summer (Clubb Mix)
+02-Gian Piero - Children 2000 (Gardeweg Mix)
+03-DJ Jurgen Pres. Alice Deejay - Better Off Alone (Pronti & Kalmani Remix)
+04-Sash! with Dr. Alban - Colour The World (Dale Cooper & Vincent Price Remix)(   Читать дальше...   )Жанр: Club House, Dancecore, Hard Trance, Euro TranceПродолжительность: 01:01:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18DCA7ACE638E8786E6DE6FC95F6943AF4F6208A
+magnet:?xt=urn:btih:A29F2AE1E70200ECD0598688869C7A349CFED4C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,34 +269,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498170   (253915) от 18.05.2012
+###  Публикация: 1677189   (151106) от 17.11.2023
 
-VA - Trance Maniacs Party: Uplifting Breeze #38 (17.04.2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
+VA - D.Trance 104 (2023) [MP3|320 Kbps] <Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253915.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aly & Fila - 200 - FSOE 200 Anthem (Original Mix) [08:12]
-02. Andrew Rayel - 550 Senta (Aether Mix) [07:48]
-03. Akira Kayosa & Hugh Tolland feat. Stine Grove - Always With You (Lee Canning Remix) [08:22]
-04. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Shogun Remix) [08:23]
-05. Ralphie B - Delphi (Original Mix) [08:29]
-06. NatLife - Don't Kill The Nature (Original Mix) [09:41]
-07. Fabio XB feat. Simona Barbieri - Flash Of Life (Original Vocal Mix) [06:32]
-08. Ronski Speed & Cressida - Glueck (Club Mix) [08:01]
-09. Matt Skyer - Locust (Original Mix) [07:31]
-10. Kenan Teke - Love Switch (A & Z Remix) [09:30](   Читать дальше...   )17.04.2012Жанр: Trance, Uplifting TranceПродолжительность: 02:40:29
+01. Alexander Popov & Heatbeat - VIVALDI (Extended Mix) [4:49]
+02. Maarten De Jong & Frank Spector & Luca Morris - Minuetto (Extended Mix) [6:14]
+03. DJ T.H. & Duncan MacPherson - Energetic World (Extended Mix) [5:37]
+04. Ahmed Romel vs. Philippe El Sisi & Omar Sherif - The Homecoming (FSOE 800 Anthem) (Extended Mix) [6:40](   Читать дальше...   )Жанр: TranceПродолжительность: 04:39:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEA1BE8F4FD511FFD314601D9A9C8C7C5FF9B945
+magnet:?xt=urn:btih:C3AA66F3190949FC9542DC8D1EB83E73EAC5FA88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,34 +298,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498171   (253905) от 18.05.2012
+###  Публикация: 1434286   (151062) от 24.12.2020
 
-VA - Trance Maniacs Party: Uplifting Breeze #39 (28.04.2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
+VA - Club Hits 2021 (2020) [MP3|320 Kbps] <Funky, Club House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Extended Mix) [07:55]
-02. Sied van Riel - Audio 52 [05:45]
-03. Van Dresen - Back To Start (Orjan Nilsen ReChunk Mix) [07:50]
-04. Pedro Del Mar & illitheas - Bahia Del Sol (Illitheas Mix) [08:12]
-05. John Askew - Bastard (Original Mix) [07:56]
-06. Richard Durand - Chopstick [08:21]
-07. Super8 - Cre8 (Mike Saint-Jules Remix) [07:51]
-08. Mark Young & Damo Kay - Eight Legged Freak (Original Mix) [08:19]
-09. Too Many Artists - Get Exact Blackout (Indecent Noise Bosh-Up) [05:56]
-10. Evgeny Bardyuzha - Meet Me Yesterday [06:24](   Читать дальше...   )28.04.2012Жанр: Trance, Uplifting TranceПродолжительность: 02:27:20
+001. Timmy Trumpet, Gabry Ponte - Mad World (2:33)
+002. VIZE, Alan Walker, Edward Artemyev, Leony - Space Melody (3:00)
+003. Galwaro, LIZOT, Gabry Ponte - Like A Prayer (2:44)
+004. Dosko - All in My Head (2:31)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:41:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DEF1E2B4FC063A2F5420D7DDC14EBBC03D51256D
+magnet:?xt=urn:btih:20EEB7CD639A233DB04020F36EC599591193E2B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,34 +327,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497686   (253673) от 17.05.2012
+###  Публикация: 968856   (150835) от 25.12.2015
 
-VA - 50 Electro House Club Hits (2012) [MP3|320 кб/с]<Electro House>
+VA - Авто. Музыка. Дорога (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с] <Deep, House, G-House, Nu Disco, Indie, Trap, Dubstep, Drum & Bass, Electro, Progressive, Techno, Tech, Tranc ...
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150835.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Andrea Dub - The Crowd (Original Mix) (5:00)
-2. Andrew Spencer - Tease Me, Please Me (Gordon & Doyle Remix) (5:50)
-3. AnnaGrace - Ready To Fall in Love (David Puentez Remix) (5:37)
-4. Beltek - Party Voice (Original Mix) (6:44)
-5. Bream & Blinders - The Doors (Original Mix) (6:13)
-6. Buzzy - Fly In A Rocketship (Original Mix) (8:00)
-7. Candyland & Dirtyrock - Four Loko (Original Mix) (3:52)
-8. Carl Tricks - Mad Dash (Bingo Players Edit) (4:56)
-9. Cascada - Summer Of Love (Michael Mind Project Remix) (4:52)
-10. Chris Van Dutch meets Inverno - Hangover 2k12 (Ryan Street Remix) (5:46)2012Жанр: Electro HouseПродолжительность: 04:39:36
+01. 3D Stas - Grab Run (Remaster)
+02. 5prite - Work Things (Original Mix)
+03. Aaren San - Resilience (Original Mix)
+04. Adele - Hello (Consoul Trainin Remix)(   Читать дальше...   )Жанр: Deep, House, G-House, Nu Disco, Indie, Trap, Dubstep, Drum & Bass, Electro, Progressive, Techno, Tech, TranceПродолжительность: 16:31:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5D5CC80B1F7EA5728749C9024C092CCD63B58B0
+magnet:?xt=urn:btih:72597B9B26360F7C6F232499FF030C6D1DCD5373
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,32 +356,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 498037   (253667) от 17.05.2012
+###  Публикация: 1824156   (150676) от 18.10.2025
 
-VA - Trance Maniacs Party: Melody Of Heartbeat #85 (17.05.2012) [MP3|320 кб/с]<Vocal Trance>
+VA - Trance In Motion Vol.391 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253667.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Trance Maniacs Party: Melody Of Heartbeat #85 (17.05.2012)
-
-Год: 17.05.2012
-Жанр: Vocal Trance
-Продолжительность: 03:38:13Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-001. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix)(   Читать дальше...   )
+01. John O'Callaghan Official - Fragmentos (Original Mix)
+02. Solarstone. - Over The Mountains (Club Mix)
+03. RAM Official, Christina Novelli & Asteroid - All Gone 2025 (Extended Mix)
+04. Andrea Ribeca - Summer Bliss (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:26:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D4564580B8E9CC0C28EBCBD23E3A62FDDDB7E47
+magnet:?xt=urn:btih:413A169CD41C4CFB9E70AFBAE43F7158CEB89B01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,32 +385,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497782   (253653) от 17.05.2012
+###  Публикация: 1271247   (150185) от 23.12.2018
 
-VA - Vocal Passion Vol.26 (16.05.2012) [MP3|320 кб/с]<Vocal Trance>
+VA - Record Super Chart 567 (2018) [MP3|320 Kbps] <House, Club, Dance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253653.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Vocal Passion Vol.26 (16.05.2012)
-
-Год: 16.05.2012
-Жанр: Vocal Trance
-Продолжительность: 02:55:53Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-001. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix)(   Читать дальше...   )
+01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+02.  Fisher  -  Losing It
+03.  Gaulin  -  Moonlight
+04.  Rompasso  -  Ignis(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:52:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F401865EA0D3DDA86A041E8012719D946A03C49
+magnet:?xt=urn:btih:1DD040E2689A534DD7A5449769E7E3065EF05BC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,32 +414,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497868   (253649) от 17.05.2012
+###  Публикация: 1271473   (150180) от 23.12.2018
 
-VA - Trance Maniacs Party: Melody Of Heartbeat #84 (2012) [MP3|320 кб/с]<Vocal Trance>
+VA - Chill Winter Relaxed (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253649.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150180.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VA - Trance Maniacs Party: Melody Of Heartbeat #84 (2012)
-
-Год: 2012
-Жанр: Vocal Trance
-Продолжительность: 03:32:58Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-001. Tiff Lacey feat. Der Mystik - A Story Told (Original Mix)(   Читать дальше...   )
+01. SoundLift - Emperor Of China (Original Mix) 7:36
+02. The Swan & The Lake feat. Emil De Waal & Johan Liepstack - Portofino 7:21
+03. Steve Brian - Kyoto (Steve Brian Ocean Influence Mix) 5:21
+04. Moonnight - Love Is The Key (Original Mix) 4:32(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Orchestral, Cinematic, Acoustic, AmbientПродолжительность: 02:29:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:197D9C1F404EEFF3734E86D380230FC992F9BFE0
+magnet:?xt=urn:btih:7CDB58E64B421DB480E38FECDCE1C30DD802FFE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,34 +443,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 496605   (252877) от 14.05.2012
+###  Публикация: 1271464   (150014) от 23.12.2018
 
-VA - Big Beat Anthems - Ministry Of Sound (2012) [MP3|320 кб/с]<BigBeat, BreakBeat>
+VA - Tranceformation 2018 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150014.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-Продолжительность: 01:19:01
- 01. Fatboy Slim - The Rockafeller Skank (04:26)
- 02. Cornershop - Brimful Of Asha (The Norman Cook Remix) (03:37)
- 03. The Prodigy - Smack My Bitch Up (04:52)
- 04. Groove Armada - Superstylin (04:08)
- 05. Les Rythmes Digitales - Jacques Your Body (Make Me Sweat) (03:32)
- 06. Armand Van Helden Presents Old Skool Junkies Part 2 - The Funk Phenomena (03:22)
- 07. Primal Scream - Kowalski (04:26)
- 08. Death In Vegas - Dirt (04:16)(   Читать дальше...   )2012Жанр: BigBeat, BreakBeatПродолжительность: 02:35:21
+01. Mhammed El Alami & Emma Horan - Warriors (Extended Mix)
+02. Rene Ablaze & Tiff Lacey - Tonight
+03. FloE & Alex Byrka - Intuition (Extended Mix)
+04. HyperPhysics - Starlight (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 13:44:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAB52CEF7F2C231EE8921C52A9F22C221861F683
+magnet:?xt=urn:btih:AF3C7CC2F9E1EE7420CDC854240570142562012F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,34 +472,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 496529   (252859) от 14.05.2012
+###  Публикация: 968696   (149762) от 25.12.2015
 
-VA - Voices in my Head Volume 32 (12.05.2012) [MP3|320 кб/с]<Vocal Trance>
+VA - Корпоратив 2016 (mixed by Dj V) (2015) [MP3|320 кб/с] <Club House, Disco House, Dance, Deep House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DNS Project feat. Madelin Zero - Another Day (KhoMha Remix) [07:22]
-02. DJ Hashish feat. 3PM - Be Careful (My Love) (Summer Nights Mix) [06:31]
-03. Bluesolar - Believe In Me (Kyota Remix) [06:55]
-04. Danilo Ercole feat. Marcie - Broken Wings (Original Mix) [08:06]
-05. Beat Service feat. Neev Kennedy - But I Did (Extended Mix) [06:04]
-06. Eco feat. Radmila - Change The World (Original Mix) [07:45]
-07. Emma Hewitt - Colours (Jerome Isma-Ae Remix) [06:53]
-08. B Craack - Crazy (Moti Brothers Remix) [06:42]
-09. Forgotten feat. Blackfeel Wite - Earth (Abstract Vision & Elite Electronic Remix) [07:35]
-10. Fabio XB feat. Simona Barbieri - Flash Of Life (Cressida Remix) [07:00](   Читать дальше...   )12.05.2012Жанр: Vocal TranceПродолжительность: 02:48:29
+01-Slider & Magnit vs. Karmin - Last Christmas Brokehearted
+02-Pitbull - I Know You Want Me (DjChe.Ru MashUp)
+03-DJ Zhukovsky feat. Laura Grig - I Will Survive (DJ Favorite & DJ Lykov vs. DJ T'Paul Sax Remix)
+04-Gregor Salto & Kaoma - Lambada 3000 (Cubrasil Mix)(   Читать дальше...   )Жанр: Club House, Disco House, Dance, Deep HouseПродолжительность: 03:05:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:123E8815EB4FA9B8CADEEF3C43BCAD40A7D3CBB8
+magnet:?xt=urn:btih:1496B436A3674AEE8E648EB0112E733878CB8389
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,34 +501,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 495969   (252609) от 13.05.2012
+###  Публикация: 1271293   (149745) от 23.12.2018
 
-VA - Sexy Trance #34 (12.05.2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
+VA - Options Remake Of Tracks December -B- (2018) [MP3|320 Kbps] <Electronic, Club, House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kyau & Albert - A Night Like This (Original Mix) [06:03]
-02. Lunar Motion - Aozora (Original Mix) [08:13]
-03. Ingsha & Di - Binary Code (Transit Passengers Remix) [06:44]
-04. Mark Eteson feat. Audrey Gallagher - Breathe On My Own (Daniel Kandi Remix) [06:29]
-05. Lost Witness vs. Antillas & Dankann feat. Sarah Jane Neild - Chasing Rainbows (Antillas & Dankann Dark Mix) [08:25]
-06. Justin Dobslaw - Cold Snap (Andrew Rayel Remix) [06:21]
-07. Jo Micali feat. Hanna Finsen - Fade Away (C-Systems Remix) [06:42]
-08. Kamil Esten - Fields Of Love (Dan Stone Remix) [07:11]
-09. Gareth Emery feat. Ben Gold - Flash [06:19]
-10. Manuputty - Foggy Fields (Original Mix) [06:51](   Читать дальше...   )12.05.2012Жанр: Uplifting Trance, Trance, Vocal TranceПродолжительность: 03:35:00
+01. Maksim Palmaxs - Across the Sands of Sahara
+02. Following Light - Existence
+03. Christian Monique - Renaissance (Original Mix)
+04. Fuenka - Yantra (Original Mix)(   Читать дальше...   )Жанр: Electronic, Club, HouseПродолжительность: 05:53:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:113B8A8FC3226B87CDB73F8E5078AD92BB7D4A88
+magnet:?xt=urn:btih:01B35E8E40C5026176A76C084A03198B29E60B8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,28 +530,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836318   (252584) от 10.11.2025
+###  Публикация: 589796   (149410) от 15.12.2012
 
-VA - Autumn Mix (2025) [MP3|320 Kbps] <House>
+VA - Euphoric Emotions 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252584.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Joy Wellboy, DC Salas - Lay Down Your Blade - DC Salas Secret Weapon Remix (8:59)
-02. Joachim Pastor - Reykjavik (7:34)
-03. Hernan Cattaneo, Soundexile - Stimulation (7:25)
-04. Sascha Ottenburg, AnnaFabienne, Ben Yoo Suk - Stones Beneath My Feet - Ben Yoo Suk Remix (6:48)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:42:58
+01. E.P.I.C. feat. Julie Thompson - Breathe (K.Blank & Moelamonde Remix)
+02. Luke Bond feat. Emel - Amaze
+03. DJ Hashish feat. 3PM - Be Careful (My Love) (Summer Nights Mix)
+04. Corderoy feat. Little Neve White - Run into the Sun (Original Vocal Mix)
+05. Cathy Burton & Omnia - Hearts Connected (Original Mix)
+06. Chicane - Going Deep (Club Mix)
+07. Sean Tyas feat. David Berkeley - Believe (Original Mix)
+08. Lange & Gareth Emery - This Is All Out (Heatbeat vs. Andy Moor Remix - Lange Mash Up)
+09. Mark Eteson & MerEdith Call - Together (Original Mix)
+10. Evgeny Bardyuzha - USSR-2061 (Club Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 06:11:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACB98E8D6FB84FABC692F8741B2CFF58113978E1
+magnet:?xt=urn:btih:B357A91D2C70ACCB020B0D519CCFF0528FC756F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,28 +565,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836299   (252412) от 09.11.2025
+###  Публикация: 1434746   (148963) от 25.12.2020
 
-VA - 60 minutes. Old School Dance Music vol.30 (Special 90's) (mixed by Dj V) (2024) [MP3|320 Kbps] <Club House, Euro House, Hip House, Euro Dance, Euro Trance>
+VA - Корпоратив 2021 (mixed by Dj V) (2020) [MP3|320 Kbps] <Club House, Disco House, Dance, Pop>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252412.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01-Black Box - Ride On Time (Massive Mix)
-02-Vision Masters & Tony King Feat. Kylie Minogue - Keep On Pumpin' It (Astral Flight Mix)
-03-Ce Ce Peniston - Finally (Erick Kupper Classic Funk Mix)
-04-Nightcrawlers - Push The Feeling On (MK Mix 95)(   Читать дальше...   )Жанр: Club House, Euro House, Hip House, Euro Dance, Euro TranceПродолжительность: 01:00:18
+Preparty:
+Продолжительность: 01:01:36
+Треклист
+(   Читать дальше...   )Жанр: Club House, Disco House, Dance, PopПродолжительность: 02:04:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:021862F5FDDCD49681353B73A90DAC2733D7D050
+magnet:?xt=urn:btih:9DBFF61CA3CB140293E261E538295F228BD7C814
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,34 +594,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 495510   (252370) от 13.05.2012
+###  Публикация: 1347704   (148855) от 24.12.2019
 
-VA - Voices in my Head Volume 31 (04.05.2012) [MP3|320 кб/с]<Vocal Trance>
+VA - Greatest Drum Sounds (2019) [MP3|320 Kbps] <Drum And Bass, Bassline>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ReOrder & Dave Deen feat. Irena Love - Again [07:17]
-02. Van Dresen - Back To Start (Orjan Nilsen ReChunk Mix) [07:50]
-03. Solarstone feat. Bill Mcgrudy - Electric Love (Piotro Microprog Love Mix) [09:16]
-04. Myon & Shane 54 feat. Aruna - Helpless (Monster Mix) [08:55]
-05. Solid Stone feat. Hanna Finsen - Helpless (Original Mix) [06:14]
-06. Santerna feat. Vadim Kapustin - I Believe in Life (Original Mix) [08:10]
-07. Three Drives - Letting You Go (Greece 2000) (Dabruck & Klein Vocal Remix) [07:27]
-08. Temple One feat. Neev Kennedy - Love The Fear (Original Mix) [06:40]
-09. Noel Sanger vs. Soul In The Machine - Mad World (Chase Costello Remix) [05:27]
-10. W&W feat. Bree - Nowhere To Go (Shogun Remix) [08:07](   Читать дальше...   )04.05.2012Жанр: Vocal TranceПродолжительность: 02:58:19
+001. Enei - Faded
+002. Calibre & Jet Li - Push Through It
+003. A.M.C. & Turno - Alliance Vip
+004. Benny L & Shimon - Monsters(   Читать дальше...   )Жанр: Drum And Bass, BasslineПродолжительность: 10:33:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47FD91BBF446EE120C6F1E4409FBE52F9EF5513A
+magnet:?xt=urn:btih:BEC3F245C4E9B41D310161AC0D3C7134C2F95DD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,28 +623,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835676   (251669) от 07.11.2025
+###  Публикация: 1271636   (148803) от 24.12.2018
 
-VA - No name compilation part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal, Easy listening>
+VA - Beats Drum Jungle (2018) [MP3|320 Kbps] <Jungle, Drum and Bass>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251669.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148803.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Echønova - Where Are You Going Like That
-02 - Limora - Where Are U
-03 - Echønova - Still Hear You
-04 - Umideep - My Tears(   Читать дальше...   )Жанр: Electronic, Vocal, Easy listeningПродолжительность: 00:45:46
+001. Disperto Certain - Determined (Original Mix)
+002. Tim Legend - Favorite Thing
+003. Fish Feat. Navigator - Champion Sound (Original Mix)
+004. Merovingian - The Equalizer(   Читать дальше...   )Жанр: Jungle, Drum and BassПродолжительность: 11:09:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52B42DCE26B88B9606AB05A45A94A3CD733ABB6E
+magnet:?xt=urn:btih:454F63AB94D8E3B6814F931A5E7F3E2E620898AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,28 +652,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835675   (251668) от 07.11.2025
+###  Публикация: 1347703   (148759) от 24.12.2019
 
-VA - No name compilation part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
+VA - Panorama Electro Sound (2019) [MP3|320 Kbps] <Synthwave, Electronic, Dance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251668.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Menda - Listen
-02 - Mr Salama - Radio
-03 - Dova Music - Golden Night
-04 - Kasimoff - It's Killing Me(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 02:34:00
+001. Hante. - Waiting For A Hurricane
+002. Nima Gorji - A Better World
+003. Stilz - Anomaly
+004. Clock And Dagger - Planet X(   Читать дальше...   )Жанр: Synthwave, Electronic, DanceПродолжительность: 12:33:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:457BFDFBA2CF764FF91BB432A0AAFC4C4C55D532
+magnet:?xt=urn:btih:86C59B62E2734D3088D3B5F155616A0C012917D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -654,34 +681,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 495448   (251389) от 12.05.2012
+###  Публикация: 1347708   (148708) от 24.12.2019
 
-VA - Voices in my Head Volume 30 (2012) [MP3|320 кб/с]<Vocal Trance>
+VA - Electronic Cosmic Party (2019) [MP3|320 Kbps] <Electronic, Synthwave, Synthspace>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148708.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. JES & Andy Duguid - Before You Go (Taxigirl Edit) [05:09]
-02. Estiva feat. Josie - Better Days (Norin & Rad Remix) [07:07]
-03. Mark Eteson feat. Audrey Gallagher - Breathe On My Own (Daniel Kandi Remix) [06:29]
-04. Kenneth Thomas feat. Roberta Harrison & Steven Taetz - Drive (Ryan Mendoza Remix) [07:47]
-05. Luca De Maas - E-Motions 2011 (original mix) [05:39]
-06. Lemon & Einar K feat. Paul Johannessen - Everlasting (Dub Mix) [06:57]
-07. Fabio XB feat. Simona Barbieri - Flash Of Life (Original Vocal Mix) [06:32]
-08. JIR3H-3 - Fly (Original Mix) [08:01]
-09. Eximinds - Forever Love (Original Mix) [07:30]
-10. Kurt feat. K.I.R.A. - Forget Me (Original Mix) [04:44](   Читать дальше...   )2012Жанр: Vocal TranceПродолжительность: 02:53:37
+001. Deaky Ear Candy - The Pure Tour (Original Mix)
+002. Neon Lights - Bad Boy
+003. Simian Mobile Disco - V Formation
+004. Tone Of Arc - Loosen Up The Vibe(   Читать дальше...   )Жанр: Electronic, Synthwave, SynthspaceПродолжительность: 12:36:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72F9E94521449E8BB8A018DC09A8DF8BC3C10475
+magnet:?xt=urn:btih:7FAEADB0D955FB10B848CABABA4F189165036DB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,34 +710,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 495442   (251383) от 12.05.2012
+###  Публикация: 1519456   (148688) от 24.12.2021
 
-VA - Voices in my Head Volume 29 (2012) [MP3|320 кб/с]<Vocal Trance>
+VA - Secret Mission: Jackin House Party (2021) [MP3|320 Kbps] <Jackin, Funky, Disco House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix) [07:17]
-02. DNS Project feat. Madelin Zero - Another Day (Original Mix) [06:25]
-03. Cosmic Gate & Emma Hewitt - Be Your Sound (Extended Mix) [06:26]
-04. Armin van Buuren feat. Fiora - Breathe In Deep (The Blizzard Remix) [07:28]
-05. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix) [06:33]
-06. Eco feat. Radmila - Change The World [06:04]
-07. Emma Hewitt - Colours (Armin Van Buuren Remix) [08:47]
-08. Arcane Science feat. Melissa Loretta - Confession (Original Mix) [06:08]
-09. Cerf, Mitiska & Jaren - Down To You (Pulser Vocal Mix) [07:46]
-10. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Dennis Sheperd Club Mix) [07:51](   Читать дальше...   )2012Жанр: Vocal TranceПродолжительность: 02:57:32
+Лёгкая танцевальная музыка с богатыми традициями от Disсо 80-х - и есть то, что ожидаешь услышать в данном сборнике. Своеобразный выразительный вокал и неповторимый мелодизм. Каждая песня сборника насыщена всем тем необходимым, что требуется для приятного времяпровождения, пассивного или активного отдыха. Несмотря на то, что этот стиль, как и многие другие предшественники, (   Читать дальше...   )001. Danros - Can't Get Enough
+002. The Sunburst Band - Rough Times
+003. French La Touche - Hard Life
+004. Holy Aliens & Dawn Tallman - Dance With You(   Читать дальше...   )Жанр: Jackin, Funky, Disco HouseПродолжительность: Jackin, Funky, Disco House
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F21F4EF9283352CF478E301CA26D4E16BE101CA
+magnet:?xt=urn:btih:0DBF1DE9B9DBFDAD0D53B201B5CFB654CA850180
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -724,127 +739,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 494933   (250763) от 10.05.2012
+###  Публикация: 1519430   (148684) от 24.12.2021
 
-VA - Trance Tattoe #11 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Tiff Lacey feat. Der Mystik - A Story Told (Original Mix) [08:13]
-02. Cosmic Gate feat. Myon & Shane 54 vs. Aruna - All Around You (Original Mix) [05:29]
-03. DNS Project feat. Madelin Zero - Another Day (KhoMha Remix) [07:22]
-04. David Forbes feat. Antonia Lucas - Because Of You (Pulser Remix) [07:02]
-05. Armin van Buuren feat. Fiora - Breathe In Deep (The Blizzard Remix) [07:28]
-06. Mark Eteson feat. Audrey Gallagher - Breathe On My Own (Daniel Kandi Remix) [06:29]
-07. Eco feat. Radmila - Change The World [06:04]
-08. Karanda feat. Radmila - Coming Closer (Karanda Club Mix) [06:09]
-09. Matt Bowdidge - Crossing North (Original Mix) [07:52]
-10. Running Man - Eastern Sun [07:30](   Читать дальше...   )2012Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 03:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D27549EABED4382BB59C91D1BFBDA455EC3EF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494470   (250711) от 10.05.2012
-
-VA - Ultra Records (2012) [MP3|320 кб/с]<Dance>
+VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-Продолжительность: 00:57:13
-1. Alexandra Stan - Mr. Saxobeat (Extended Mix) (4:22)
- 2. Medina - Addiction (Extended Mix) (3:32)
- 3. Benny Benassi feat. Gary Go - Cinema (Skrillex Remix) (4:58)
- 4. Deadmau5 - Raise Your Weapon (8:04)
- 5. Sander van Doorn feat. Carol Lee - Love Is Darkness (Original Mix) (5:29)
- 6. Kaskade feat. Mindy Gledhill - Eyes (Extended Mix) (6:06)
- 7. Calvin Harris - Feel So Close (Extended Mix) (4:41)
- 8. Alex Gaudino feat. Kelly Rowland - What A Feeling (Extended Mix) (4:45)(   Читать дальше...   )2012Жанр: DanceПродолжительность: 02:03:13
+Очередной презент для любителей танцевальной музыки на треках сборника под названием "Best White Party"! Веселые ритмичные мелодии поднимающие настроение и под которые так сложно не пуститься в зажигательный танец.001. Colle - Nowhere To Follow
+002. Grum - Price Of Love
+003. Lezcano - In My Time Of Need
+004. Dany Dz - Strangers(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 12:26:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25D279399A43726CD32094E02F3D15F206BC67F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618396   (250004) от 11.03.2023
-
-zero-project - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkness Falls (Jabberwock Version)
-02. Killing Earth
-03. Once Upon a Time
-04. Princess of My Heart(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 03:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4445BA5F2537ABDFB48E4EA6F35D07D744B9516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618911   (249672) от 16.03.2023
-
-VA - 60 minutes. Old School Dance Music vol.16 (mixed by Dj V) (2023) [MP3|320 Kbps] <Club House, Dancecore, Euro Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-The Rhythm Masters & Klubbheads - Enter The Scene (Klubbheads Vs Rollercoaster Mix)
-02-Silvio Ecomo - Uprising (Speedgarage Mix)
-03-Moloko - Indigo (Club Caviar Mix)
-04-Fascinator - Here We Go (Strike Force Remix)(   Читать дальше...   )Жанр: Club House, Dancecore, Euro TranceПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B778A8C1870DB8D1E5B8AC6DB1CC3359AF8131D2
+magnet:?xt=urn:btih:F231AFEF2B6B2ACA49F622524763BCAB2A9E7F5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,410 +1,3 @@
-###  Публикация: 598617   (999464) от 06.01.2013
-
-M.PRAVDA - Live in Motion 101 (16.07.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. ARS - Wonderwork (LTN Remix)
-2. Basil O'Glue - Dropout
-3. Alex Pich, Shinobi, Julius Beat - Satisfaction Love (Willem De Roo Remix)
-4. Johnny Yono - Break These Chains
-5. Neev Kennedy - A Bridge (DNS Project remix)
-6. Maarten De Jong - Raw
-7. Redstar - The Problem (Mike Shiver Remix)
-8. Alan Morris and Sequentia - Blind
-9. Mr.Pit - River of Hearts (Ben Gold remix)
-10. Andrew Rayel - Aeon of RevengeЖанр: Progressive Trance, TranceПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97563897FCE19DEB6D1289594D5F46DDB34E00EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598879   (999463) от 06.01.2013
-
-M.PRAVDA - Live in Motion 095 (05.05.2012) [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Karanda - Cloud Nine (Juventa Remix)
-2. Arnej - We Unite (Club Mix)
-3. Super8 - Alba (Maor Levi remix)
-4. Beat Service feat. Ben Hague - Why Me (Dub mix)
-5. Bartlett Bros - Sweet Child (Lele Troniq Remix)
-6. Andy Tau - Passport (Store n'Forward Remix)
-7. Emma Hewitt - Miss You Paradise (Shogun Remix)
-8. Shogun - Amplify
-9. Broning - Reinspired
-10. Tritonal - RetakeЖанр: Progressive Trance, TranceПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58776CB98DE71CD58D33EC430CB84CF11806DC35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598882   (999462) от 06.01.2013
-
-M.PRAVDA - Live in Motion 094 (28.04.2012) Best of April  [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Paul van Dyk and Arty - The Ocean
-2. Cosmic Gate and Jes - Flying Blind (Extended mix)
-3. Moonbeam feat. Avis Vox - Disappearance (Aerofeel5 Remix)
-4. Orjan Nilsen - Amsterdam
-5. Lele Troniq - Under the Spotlight
-6. Markus Schulz & Dennis Sheperd - Go!
-7. Protoculture - Cobalt
-8. Second Way - Around the Earth
-9. Suncatcher and Mihai M pres Starshifters - Driveby
-10. Solarstone and Clare Stagg - The Spell (Pulser club Dub)Жанр: Progressive Trance, TranceПродолжительность: 01:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2499A230723BC7064FEB4DCDB934B7FD4D7E4C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599406   (999461) от 06.01.2013
-
-Agressor - Medieval Rites (1999) [WavPack|Lossless]<Death / Thrash Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medieval Rites (06:21)
-02. Bloodshed (03:13)
-03. The Woodguy Vs. The Black Beast (01:44)
-04. The Sorcerer (04:07)
-05. (I Am The) Spirit Of Evil (02:12)
-06. Wondering Soul (04:22)
-07. Tye-Melane Melda (01:13)
-08. God From The Sky (03:17)
-09. Welcome Home (King Diamond) (04:20)
-10. On Dolinde (01:22)(   Читать дальше...   )Жанр: Death / Thrash MetalПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599541   (999459) от 06.01.2013
-
-Журнал | Большой спорт №12 [декабрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999459.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Большой спорт» – самое популярное ежемесячное спортивное издание России. Согласно исследованию TNS Gallup Media, полугодовая общефедеральная аудитории журнала составляет 691 000 человек. По этому показателю журнал значительно превосходит ведущие премиальные издания России мужской, автомобильной и спортивной тематик, в том числе – Esquire, GQ, Автопилот и PROспорт.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2A228672A509398B4956E0158F905E4E37D456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599168   (999458) от 06.01.2013
-
-Axehammer - Lord of the Realm (1987) /Sentinel Steel Reissue, 1998/[WavPack|Lossless]<Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Princess [04:24]
-02. Lord Of The Realm [03:46]
-03. Sands Of Time [03:29]
-04. Break Down The Walls [04:37]
-05. Axehammer [05:34]
-06. (Radio Commercial) [01:06]
-07. Wings Of Fire [02:52]
-08. Sword And Shield [04:03]
-09. Axehammer '84 [05:17]Жанр: Heavy MetalПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599225   (999457) от 06.01.2013
-
-Blaze Of Sorrow - Echi (2012) [WavPack|Lossless]<Atmospheric Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All'Ignoto [06:43]
-02. Empatia [08:27]
-03. In Memoria [05:10]
-04. Il Soffio Del Sole [08:18]
-05. Alberi [03:25]
-06. Echi [06:35]
-07. Ma Il Vento Ricordo Il Mio Nome [07:40]
-08. Aspettando Il Tempo [06:14]Жанр: Atmospheric Black MetalПродолжительность: 52:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598620   (999456) от 06.01.2013
-
-M.PRAVDA - Live in Motion 100 Юбилейный Выпуск (09.06.2012) National Sound Exclusive [MP3|320 кб/с]<Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Platinum Monkeys - I Remember
-2. Platinum Monkeys feat. Ange - Why
-3. M.Pravda - Hocus Pocus (John Dubs Remix)
-4. Platinum Monkeys - Return (Igor Voevodin Remix)
-5. John Dubs - No Ice (Original Mix)
-6. A.Galchenko - She Autumn (Original)
-7. Max Fishler - Ghost Planet (Original)
-8. Danny Ocean - Next To You (Original)
-9. M.Pravda - Hocus Pocus (Radio Edit)
-10. Souldanny - Lost Connection (Original)(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3C60DE22C72F3FADFB340EE606F9603815CDD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598763   (999455) от 06.01.2013
-
-Attacker - The second coming (1988) [MP3|320 kbps]<Trash Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Lords Of Thunder [02:57]
- 02. Zero Hour [03:23]
- 03. Captivities Of Babylon [03:25]
- 04. Octragon [01:55]
- 05. The Madness [03:38]
- 06. Desecration [04:12]
- 07. Emanon [03:30]
- 08. Revelations Of Evil [05:28]
- 09. Lords Of Thunder (Demo) [03:13]
- 10. Zero Hour (Demo) [03:45](   Читать дальше...   )Жанр: Trash MetalПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1FAE95356CA31E0B767D7C63C55E15BEF05834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599177   (999454) от 06.01.2013
-
-Avian - Ashes and Madness (2009) [WavPack|Lossless]<Power / Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashes And Madness [07:31]
-02. The Lost And Forsaken [05:08]
-03. Into The Other Side [04:38]
-04. Esoteric Lies [05:16]
-05. Fall From Grace (Instrumental) [01:10]
-06. Beyond The Hallowed Gates [04:59]
-07. Thundersoul [05:02]
-08. All The King's Horses [05:10]
-09. Never Fade From Me [05:24]
-10. Time And Space Part Ii:  Unlock The Mystery [10:14]Жанр: Power / Heavy MetalПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599663   (999453) от 06.01.2013
-
-VA - Force Carriers (2012) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Pavel Ambiont - While She Sleeps (parts 1 & 2) (09:42)
-02. S4DS - Space Trip (alexei sfourds rmx) (04:00)
-03. S4DS - Space Trip (pavel ambiont rmx) (04:51)
-04. Pavel Ambiont - Ufobeats (05:12)
-05. Nieviadomy Artyst - Effervescence (04:55)
-06. Nieviadomy Artyst - Tephra (forest version) (06:24)
-07. Nieviadomy Artyst - Tephra (04:41)
-08. Pavel Ambiont - Solar Pulse (05:42)
-09. Alexei Sfourds - To All Astronauts (03:58)
-10. Alexei Sfourds - Inspiration (04:15)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8711C2DCB167E8ABC7EB38D19F21613D1F55ACF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599189   (999452) от 06.01.2013
-
-All I Could Bleed - Burying the Past (2011) [WavPack|Lossless]<Modern Melodic Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclipse [01:12]
-02. Private Hell [04:22]
-03. Burying The Past [04:33]
-04. Plague [05:04]
-05. Under The Moon [05:50]
-06. Into The Black Clouds [04:10]
-07. Follow Me [03:46]
-08. Valhalla [06:52]
-09. Farewell [01:29]Жанр: Modern Melodic Death MetalПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598737   (999450) от 06.01.2013
 
 Nature Wallpapers (03.01.13) [Wallpapers]
@@ -795,6 +388,384 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:707989E3C14D64CFD51743484D3FA589045A52CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599428   (999431) от 06.01.2013
+
+Фотография - Фотограф Anna Bodnar
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Anna BodnarРазрешение файлов: ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D74910BDFB314D0396031F0F1EBAFC15AD8ADE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599617   (999430) от 06.01.2013
+
+Журнал | Дачная кухня: к столу и впрок №1 [2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Супы - традиционное русское блюдо. Нам в наследство досталось множество старинных рецептов. Одни прабабушки томили щи в русской печке, другие стряпали молочник со снежками на курсах благородных девиц. Холодные и горячие, сладкие и остро-соленые, на мясном или овощном бульоне, на молоке или кефире - все это супы. Они такие разные! Супы на каждый день и для особых случаев, необычные заморские и наши исконно русские. Мы предлагаем вам рецепты на разные вкусы от традиционных щей до популярных сейчас супов-пюре. Ведь суп, каким бы он ни был, всегда остается первым блюдом, которое украшает наш стол.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED869C3AB4B49FBED1BBF71148A9EB09AFF64633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598136   (999429) от 06.01.2013
+
+Kaizen - Любим делать красиво (2011) [MP3|320 кб/с]<Alternative>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любим делать красиво (4:27)
+02. Поколение Пох*й (3:36)
+03. Саломея (3:15)
+04. Я люблю с тобой молчать (3:35)
+05. Все Мы Гоним (3:07)
+06. По слогам (3:35)
+07. Web-Dr'Ocher (3:39)
+08. Шаг За Край (3:45)
+09. Шум inc (2:29)
+10. Dolphin (5:14)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68541AB594C2588717CC0E6141DEB5937D01B958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599294   (999427) от 06.01.2013
+
+Битва цивилизаций с Игорем Прокопенко. Выпуск №10.  Древние гении (2013.01.05) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+«Битва цивилизаций» – так называется новый проект известного журналиста Игоря Прокопенко.
+Закрытая до сих пор информация из секретных архивов станет доступна только зрителям РЕН ТВ.
+15 уникальных документальных расследований: неопровержимые факты, шокирующие открытия, громкие сенсации.
+РЕН ТВ откроет все тайны.В выпуске: Археологи часто находят таинственные артефакты - статуэтки и рисунки, изображающие различные высокотехнологичные аппараты. Где и когда древние могли их видеть? Кто их создал, и кто на них летал?Жанр: ТелепередачаПродолжительность: ~ 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F0B8FF4DEB4A4C00AF9AC1CC627679FE6B2833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598772   (999426) от 06.01.2013
+
+Guy Mann-Dude - Sleight of hand (1989) [MP3|192 kbps]<Hard Rock Guitar>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. On The Verge [03:20]
+ 02. Riff Rock 'N' Rebel [04:41]
+ 03. Shredd'n It Down [04:20]
+ 04. Paint It Black (Rolling Stones Cover) [04:14]
+ 05. The Clincher [03:56]
+ 06. Guitar Solo: Sleight Of Hand [02:27]
+ 07. Pedal To The Metal [04:14]
+ 08. Clusterphuk [04:59]
+ 09. (Beware) The Stalker [04:47]
+ 10. Legend Of Loch Ness [05:02](   Читать дальше...   )Жанр: Hard Rock GuitarПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0C1C8130F275D4AEC108FA5F1C5C4D72F00826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599366   (999425) от 06.01.2013
+
+Битва цивилизаций с Игорем Прокопенко. Выпуск №13.  Тайна людей в черном (2013.01.05) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+«Битва цивилизаций» – так называется новый проект известного журналиста Игоря Прокопенко.
+Закрытая до сих пор информация из секретных архивов станет доступна только зрителям РЕН ТВ.
+15 уникальных документальных расследований: неопровержимые факты, шокирующие открытия, громкие сенсации.
+РЕН ТВ откроет все тайны.В выпуске: О членах тайных организаций, осуществляющих сбор, анализ и засекречивание информации о НЛО.Жанр: ТелепередачаПродолжительность: ~ 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04BDDC623B85829DBD0181266564E3E444F64D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599161   (999424) от 06.01.2013
+
+Aeternitas - Requiem (2000) [WavPack|Lossless]<Gothic Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introitus [03:29]
+02. Kyrie [01:53]
+03. Graduale [04:12]
+04. Tractus [03:13]
+05. Sequenz - Dies Irae [04:38]
+06. Sequenz - Mors Stupedit [05:54]
+07. Sequenz - Rex Tremendae [02:59]
+08. Sequenz - Confutatis [04:45]
+09. Sequenz - Lacrymosa [03:24]
+10. Offertorium [04:29](   Читать дальше...   )Жанр: Sympho Gothic MetalПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599656   (999423) от 06.01.2013
+
+VA - Basic Force Interactions (2013) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. S4DS - Inertia (04:00)
+02. Nieviadomy Artyst - Time Shift (04:48)
+03. UVL - Dead Tissue (05:14)
+04. Nieviadomy Artyst - Ekpyrosis (05:01)
+05. UVL - Multitude (05:27)
+06. S4DS - Effort (03:50)
+07. Nieviadomy Artyst - Battery Juice (04:34)
+08. S4DS - Mechanical Stresses (04:00)
+09. UVL - Broken Twin (05:40)
+10. Pavel Ambiont - Peace Dub (N/A rmx) (04:06)Жанр: TechnoПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8400AF54744233249DF20837534DA8F2F4F65657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599036   (999422) от 06.01.2013
+
+Битва цивилизаций с Игорем Прокопенко. Выпуск №5.  Затерянный мир (2013.01.05) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+«Битва цивилизаций» – так называется новый проект известного журналиста Игоря Прокопенко.
+Закрытая до сих пор информация из секретных архивов станет доступна только зрителям РЕН ТВ.
+15 уникальных документальных расследований: неопровержимые факты, шокирующие открытия, громкие сенсации.
+РЕН ТВ откроет все тайны.В выпуске: Исследователи считают, что параллельные миры существуют вместе с нами, но независимо от нас. В какие-то моменты границы, разделяющие нас, становятся почти прозрачными, и... в нашем мире появляются незваные гости...Жанр: ТелепередачаПродолжительность: ~ 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CDB07B38E6FC87001BF3A6EC4E8A59DBF68236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599291   (999421) от 06.01.2013
+
+Битва цивилизаций с Игорем Прокопенко. Выпуск №8.  Битвы древних королей (2013.01.05) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+«Битва цивилизаций» – так называется новый проект известного журналиста Игоря Прокопенко.
+Закрытая до сих пор информация из секретных архивов станет доступна только зрителям РЕН ТВ.
+15 уникальных документальных расследований: неопровержимые факты, шокирующие открытия, громкие сенсации.
+РЕН ТВ откроет все тайны.В выпуске: На Земле есть следы от атомных взрывов и ракетных ударов, которым... несколько тысяч лет. В свою очередь, в древних текстах описаны сверхсущества, которые перемещаются на летательных аппаратах, владеют супероружием и совершенными технологиями. Что за боги прилетали с далеких звезд? Кто в древности вел атомные войны на Земле?Жанр: ТелепередачаПродолжительность: ~ 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2172E641ACB09438A6815D4032B04652B13627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598749   (999420) от 06.01.2013
+
+The Project Hate MCMXCIX - The Cadaverous Retaliation Agenda (2012) [MP3|320 кб/с]<Industrial Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. DCLXI [00:00:42]
+02. I Feed You the Flesh of Your Poisonous Christ [00:15:00]
+03. DCLXII [00:01:13]
+04. We Watch in Silence as the Earth Turns to Blood [00:10:37]
+05. DCLXIII [00:01:05]
+06. Conquering the Throne of the Cadaverous [00:13:16]
+07. DCLXIV [00:01:08]
+08. The Great Retaliation is Upon Them [00:11:58]
+09. DCLXV [00:01:12]
+10. Carving Out the Tongues Which Speak of Salvation [00:11:16](   Читать дальше...   )Жанр: Industrial Death MetalПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7153BB04F50AB6F5168D106042A9CF60D050B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598773   (999418) от 06.01.2013
+
+Scar Limit - Threshold (2012) [MP3|320 kbps]<Industrial, EBM>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Begin [01:04]
+ 02. Nothing Left [05:09]
+ 03. Indiffernt Illusion [05:24]
+ 04. We Are A Sickness [05:13]
+ 05. Live [04:58]
+ 06. The Keepers [04:47]
+ 07. Without Me [06:10]
+ 08. Synthetic Dream [05:32]
+ 09. Faithless [05:48]
+ 10. Legacy [05:02](   Читать дальше...   )Жанр: Industrial, EBMПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA9D25A0BA3C04AB554E147CC457E6B530DB813
 ```
 
 https://mybot314.ru/tekegram_catalog/

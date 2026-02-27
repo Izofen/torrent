@@ -1,3 +1,58 @@
+###  Публикация: 1335677   (285516) от 03.11.2019
+
+Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Темные судьбы (Music from the Motion Picture) (2019) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terminated (01:28)
+02. My Name Is Dani (03:39)
+03. REV 9 (03:10)
+04. Iron Spike (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D6939C7A2C0C3281DA792B93889F2C0226C079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 733667   (285051) от 13.12.2013
+
+Хоббит: Пустошь Смауга / The Hobbit: The Desolation of Smaug (2013) /Special Edition/ by Howard Shore [FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_285051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ScoreПродолжительность: 02:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0816EEF795B6DE841DE791E1765C15F71CB329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335808   (284555) от 04.11.2019
 
 Kacey Musgraves - Pageant Material (2015) [FLAC|Lossless|tracks] <Country, Folk>
@@ -684,64 +739,6 @@ Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59D3EE24F746A570E01C82B280D430B8AB5CF436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336302   (280668) от 06.11.2019
-
-Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music from the HBO Series) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HOW THE WEST WAS REALLY WON (03:45)
-02. ORPHANS OF KRYPTON (01:57)
-03. GARRYOWEN (01:18)
-04. NUN WITH A MOTHERF*&*ING GUN (03:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA9D19C1A49CB5523FCE180766BF186B944953E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187487   (280601) от 28.11.2017
-
-Maryada Ram - Eternal Tibet (2017) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Invocation (4:06)
-02.  Mindful Chant (3:51)
-03.  Healing Tibet Bowls (3:20)
-04.  Offering (3:21)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4636FF080523E5117B6BF11C01E2CED769CC59
 ```
 
 https://mybot314.ru/tekegram_catalog/

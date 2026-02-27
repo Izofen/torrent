@@ -1,3 +1,291 @@
+###  Публикация: 995375   (886325) от 10.03.2016
+
+Tanita Tikaram - Closer To The People (2016) [MP3|320 кб/с] <Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Love Train (04:31)
+02. Cool Waters (04:11)
+03. The Way You Move (02:54)
+04. Closer To The People (03:37)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95D0AE9FD55CE22890DE53BA8C73FC7C2088CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870414   (886051) от 18.02.2015
+
+VA - Pure... 80s Dance Party (2011) [FLАС|Lоssless]<Pop, Electronic, Rock, Funk & Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nena - 99 Red Balloons (1983) - 3:51
+02. Daryl Hall & John Oates - Maneater (Edited Version) (1982) - 4:00
+03. Prefab Sprout - The King Of Rock 'n' Roll (1988) - 4:23
+04. Modern Talking - You're My Heart, You're My Soul (Original No. 1 Mix '84) (1984) - 3:21(   Читать дальше...   )Жанр: Pop, Electronic, Rock, Funk / Soul, Pop, Italo-Disco, Pop Rap, Disco, Hi NRG, New Wave, Synthpop, Rock & Roll, Pop RockПродолжительность: 04:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:025C2928058370473990A632355F4FE65B36E183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870399   (886047) от 18.02.2015
+
+VA - Pure... 70s Dance Party (2011) [FLАС|Lоssless]<Pop, Rock, Funk / Soul, Europop, Rock & Roll, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Ocean - Red Light Spells Danger (1977) - 3:32
+02. Daryl Hall & John Oates - Rich Girl (1976) - 2:25
+03. Odyssey - Native New Yorker (1977) - 3:27
+04. Melba Moore - This Is It (1976) - 3:30(   Читать дальше...   )Жанр: Pop, Rock, Funk / Soul, Europop, Rock & Roll, Pop Rock, DiscoПродолжительность: 04:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC5E3BEA1FC87F65766A69C79B5814E6547F29C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995347   (886033) от 10.03.2016
+
+VA - Romantic Collection: Tet-A-Tet (2000) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Варум Анжелика, Агутин Леонид - Все В Твоих Руках (4:58)
+02. Пугачева Алла, Моисеев Борис - Две свечи (3:56)
+03. Рыбин Виктор, Сенчукова Наталья - Ни Слова О Любви (4:58)
+04. Иванов Александр - Счастье На Двоих (5:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94BE4C70080920CE5C0A9A83E487AFDE1551AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870276   (885996) от 18.02.2015
+
+VA - Pure... 80s Remixes (2014) [FLАС|Lоssless]<Pop, Electronic, Dancepop, Hi NRG, Disco, Funk / Soul, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nena - 99 Red Balloons (Club Mix) - 4:44
+02. Men At Work - Down Under (Extended Mix) - 5:24
+03. A Flock Of Seagulls - I Ran (Album Version) - 5:02
+04. B.A.D. (Big Audio Dynamite) - E = MC² (Extended Remix) - 6:28(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, Hi NRG, Disco, Danceflor, Funk / Soul, New Wave, Synthpop, Pop RockПродолжительность: 05:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC79D3C6DB0DE1BA8373996C10C41DEB4EA54DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995317   (885995) от 10.03.2016
+
+VA - Romantic Collection: Лирика (1999) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Несчастный Случай - Генералы Песчаных Карьеров (4:14)
+02. Алсу - Зимний Сон (4:21)
+03. Борис Моисеев - Глухонемая Любовь (5:19)
+04. Алла Пугачева - Не Отрекаются Любя (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB06272A757CE70945E3C05A05259B5DE8F40233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103420   (885808) от 12.02.2017
+
+Kinnie Lane - V (2017) [FLAC|Lossless|tracks] <Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je te suivrai
+02. Heartbreaker (feat. Loup)Жанр: Pop, Female VocalПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A308A31164163F682682C566DEDA3C54ACD43949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372505   (885618) от 03.04.2020
+
+Tops - I Feel Alive (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Direct Sunlight (03:27)
+02. I Feel Alive (02:34)
+03. Pirouette (03:06)
+04. Ballads & Sad Movies (03:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A6978F9ABC4D4D94BD59B05D3791226927DAF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372526   (885456) от 03.04.2020
+
+Anna Burch - If You're Dreaming (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Sleep (04:36)
+02. Party's Over (02:42)
+03. Jacket (03:36)
+04. So I Can See (03:22)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1838B7F074EE4AD39767375A3502C33DF09C94EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372094   (885447) от 03.04.2020
+
+Сергей Лазарев - Лазарев (2012) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:06:52Трэклист: 01. Make You Say
+02. Take It Off
+03. Stumblin'
+04. Under The Moon(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C0B14CD10CEFC30B44720C579400D2816129CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372093   (885401) от 03.04.2020
 
 P!nk (Pink) - I'm Not Dead (2006) [FLAC|Lossless|tracks + .cue]<Pop, Pop Rock>
@@ -456,297 +744,6 @@ Lipps, Inc. - 4 Albums (1979-1983) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFFDB945A492BAF88FFAC26E09440CB2E454204A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372821   (883154) от 04.04.2020
-
-The Kelly Family - 25 Years Later (2020) Live [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Why Why (Live 2019)
-02. Fathers Nose (Live 2019)
-03. First Time (Live 2019)
-04. Baby Smile (Live 2019)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B014B3FB0BA2FEB06CEE0AB98CF919A5E7CB7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372914   (883141) от 04.04.2020
-
-Весёлые Ребята - Музыкальный Глобус (1979/ 2008) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Уходило лето (2:54)
-02. Белладонна (5:59)
-03. Люба-Любовь (3:36)
-04. Никогда не поверю (4:42)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE937B08A9049B7FF3526CA60692C0E71B3FC2AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995963   (882944) от 12.03.2016
-
-Tracy Spencer - Tracy (1987) [MP3|320 кб/с] <Synth Pop, Disco-Funk, Italo Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Back
-02. Tonight
-03. Never Too Late
-04. Dancing In The Moonlight(   Читать дальше...   )Жанр: Synth Pop, Disco-Funk, Italo DiscoПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9C0BA2EAD05ECD986EEDADF630D03674161DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995691   (882844) от 12.03.2016
-
-VA - Got Hits! Perfect Pop Album (2003) [FLAC|Lossless|tracks + .cue] <RnB, Swing, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Can’t Get You Out of My Head (3:51)
-02. Justin Timberlake - Like I Love You (Basement Jaxx vocal mix) (4:29)
-03. Aaliyah - Try Again (4:46)
-04. DJ Sammy & Yanou feat. Do - Heaven (3:53)(   Читать дальше...   )Жанр: RnB, Swing, EuropopПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F05296EDD8D1BD5044C0DF0D63159AB531B0062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871109   (882698) от 20.02.2015
-
-VA - Pure... Crooners (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Vocal Pop, AM Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882698.jpg" />
-</div>
-
-
-###  Подробнее
-
-По многочисленным просьбам одноклубников ускоряю публикацию всего того что есть у меня в серии Pure... Вот дошла очередь до Crooners, а ведь в переводе с английского это просто эстрадные певцы. Как то не принято у нас называть зарубежных поп-заезд эстрадными певцами. Хотя многие из современных великих подходят под это определение.
-Вот и здесь собраны звезды - великие (   Читать дальше...   )CD1:
-01. Andy Williams - Where do I begin (Love story)  (3:12)
-02. Tony Bennett - A taste of honey  (2:54)
-03. Perry Como - Magic moments  (2:40)(   Читать дальше...   )Жанр: Pop, Vocal Pop, AM PopПродолжительность: 03:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4759763F29BC53CF57EA4DC5785E711DDA4AB4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995913   (882582) от 12.03.2016
-
-Tanita Tikaram - Closer To The People (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Love Train
-02. Cool Waters
-03. The Way You Move
-04. Closer To The People(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69EB02F10F3295667DC0FD0414F7F4920B30699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495262   (882463) от 11.09.2021
-
-Uropa - Harmony (1980) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harmony (6:40)
-02. She Was Fine (4:17)
-03. Turn Me Off - Turn Me On (6:29)
-04. Feeling High (8:35)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B3CA53AC6ED6B5FD159611731CFEB9A4F57CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495257   (882299) от 11.09.2021
-
-Lady Gaga - Dawn Of Chromatica (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Remixes, Electropop, Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice (LSDXOXO Remix)
-02. Stupid Love (COUCOU CHLOE Remix)
-03. Rain On Me ft. Ariana Grande (Arca Remix)
-04. Free Woman (Rina Sawayama & Clarence Clarity Remix)(   Читать дальше...   )Жанр: Remixes, Electropop, Pop, HouseПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B774A3C13A283955FF7576F99749431FA59A994E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493682   (882256) от 11.09.2021
-
-Lady Gaga - Dawn Of Chromatica (2021) [MP3|320 Kbps] <Pop, Electro, Dance-Pop, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice (LSDXOXO Remix) (Feat. LSDXOXO) 2:40
-02. Stupid Love (COUCOU CHLOE Remix) (Feat. Coucou Chloe) 2:37
-03. Rain On Me (Arca Remix) (Feat. Ariana Grande, Arca) 4:23
-04. Free Woman (Rina Sawayama & Clarence Clarity Remix) (Feat. Rina Sawayama, Clarence Clarity) 3:54(   Читать дальше...   )Жанр: Pop, Electro, Dance-Pop, HouseПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCB3DE7A0E741B9414E3A28339BFBEF7D8D48A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373026   (881816) от 05.04.2020
-
-Юрий Антонов - Крыша дома твоего / Музыка и песни из кинофильмов (2002) [FLAC|Lossless|image + .cue]<Pop Rock, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop Rock, RetroПродолжительность: 01:18:45Трэклист: Крыша дома твоего.
-01. Жизнь
-02. Вот как бывает
-03. Море(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1854ED00A85E4F5D4FAC0969E7F1EF51A64E54
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 958000   (325690) от 19.11.2015
+
+Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|tracks]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Humming.... (03:46)
+02. So I Could Find My Way (04:27)
+03. Even In The Shadows (04:15)
+04. The Forge Of The Angels (05:15)(   Читать дальше...   )Производство: Warner Bros.Жанр: New AgeПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B2AF0CBE7BA4B1C119FE3923E84CC8A98A38A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958049   (325632) от 19.11.2015
+
+Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|image + .cue] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Humming
+02. So I Could Find My Way
+03. Even In The Shadows
+04. The Forge Of The Angel(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C4874557D8317CE8EF8721961593D38C3F38B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958050   (325628) от 19.11.2015
 
 VA - Die Hit-Giganten: Instrumental Hits (2009) 2CD [FLAC|image+.cue]<Pop, Electronic, Jazz, Rock, Latin, Funk / Soul>
@@ -685,70 +743,6 @@ Era - Era (1998) [FLAC|Lossless|image + .cue]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC205D55590D891A6937D639831F5CF95CEEAC6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075588   (320109) от 22.11.2016
-
-Ennio Morricone - All The Best (2016) [MP3|320 Kbps] <Instrumental, classical, soundtrack>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel’s Oboe (The Mission) (02:17)
-02. Deborah’s Theme (C’Era Una Volta In America) (04:28)
-03. Il Buono, Il Brutto, Il Cattivo (Il Buono, Il Brutto, Il Cattivo) (02:43)
-04. Gi? La Testa (Gi? La Testa) (04:19)(   Читать дальше...   )Жанр: Instrumental,classical,soundtrackПродолжительность: 01:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF96C0FBC19BC20C48F08ECBAE4105BF35558C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581549   (319520) от 29.11.2012
-
-Two Steps From Hell - Skyworld (2012) [MP3|320 кб/с]<Trailer Music, Epic>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319520.jpg" />
-</div>
-
-
-###  Подробнее
-
-1) All is Hell That Ends Well
-2) Titan Dream
-3) SkyWorld
-4) El Dorado
-5) The End Is The Beginning
-6) All The Kings Horses
-7) Realm Of Power
-8) Winterspell
-9) Blackheart
-10) Juggernaut(   Читать дальше...   )Жанр: Trailer Music, EpicПродолжительность: 01:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C7595C7FC563080FED573C0FE442ED74D06BB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

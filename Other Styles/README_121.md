@@ -1,3 +1,61 @@
+###  Публикация: 317973   (479961) от 30.07.2022
+
+Sucker Punch / Запрещенный прием Soundtrack (2011) [FLAC|Lossless]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emily Browning - Sweet Dreams (are made of this) (05:19)
+02. Björk feat. Skunk Anansie - Army Of Me (Sucker Punch Remix) (06:51)
+03. Emiliana Torrini - White Rabbit (05:09)
+04. Queen with Armageddon a.k.a Geddy - I Want It All/We Will Rock You (05:09)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD26ACF023B62D94C9336805E7E94A26AF394ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244741   (479924) от 02.09.2018
+
+Helen Jane Long - Perspective (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Modern Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outside
+02. Given
+03. Journey
+04. Perspective(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF6C3EB1FC09F61EFFFEE051FC6CB55CBA45B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244617   (479923) от 02.09.2018
 
 Stephen Rhodes - Pure Angel Healing (2018) [MP3|320 Kbps] <New Agе, Relax, Meditative>
@@ -695,64 +753,6 @@ VA - Sax Is The Best! Showa Kayo Listening At Sax (2012) 5CD [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8E09CAAEE9B183F891127868D80A5923EB0FCF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939410   (473564) от 22.09.2015
-
-Jason James - Jason James (2015) [MP3|320 кб/с]<Texan Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes the Heartache (03:27)
-02. I've Been Drinkin' More (03:34)
-03. Hot Mouth Mama (02:32)
-04. Fancy Limousine (03:29)(   Читать дальше...   )Жанр: Texan CountryПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E1CD728A3D576164054C50FF6EBADE04390C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939416   (473558) от 22.09.2015
-
-Jesse Lafser - Raised On The Plains (2015) [MP3|320 кб/с]<Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Hat Blues (02:49)
-02. When It Comes To Loving You (02:41)
-03. Darlin Its A Waste Of Time (03:28)
-04. The Chores Song (03:06)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B785EC0BA5D2F1562051DE74912CA3073BB14A
 ```
 
 https://mybot314.ru/tekegram_catalog/

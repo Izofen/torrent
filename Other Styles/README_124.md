@@ -1,3 +1,61 @@
+###  Публикация: 941759   (460057) от 28.09.2015
+
+Dario Marianelli - Everest (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Call
+02. Setting Off From Kathmandu
+03. First Trek: Base Camp
+04. Arriving At The Temple (feat. The Monks Of Tharig Monastery)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0529A82C2E2BC88C5060A436FAF6291655999752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568718   (459623) от 09.08.2022
+
+The Studio London Orchestra & Singers - Memory - 20 Love Themes (1985) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello
+02. Tonight I Celebrate My Love
+03. Body Talk
+04. All Time High(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29F21CBC21CCFF5153BC32737E8FEDB7CD97DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246839   (459168) от 12.09.2018
 
 Evgeny Grinko - Evgeny Grinko (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
@@ -692,64 +750,6 @@ Prem Joshua - Breath Of Voavah (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52535AF5B93B884D5D05551279C3EC2EF6C98651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163327   (450215) от 05.09.2017
-
-Ennio Morricone - Ennio Morricone Lounge Vol 2 (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cinema paradiso (From "Cinema paradiso") (Titles)
-03. The Verdict (Dopo la condanna) (From "La resa dei conti - The Big Gundown")
-04. La califfa (From "La califfa - The Lady Caliph / The Queen")
-05. Belinda May (From "L'Alibi")(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA64642B0CC0192D1AF826A0004663F4B323D34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163307   (450102) от 05.09.2017
-
-Ennio Morricone - Ennio Morricone Lounge Vol 1 (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chi mai (From "Maddalena")
-02. Il colore dei suoi occhi (From "La disubbidienza - La désobéissance")
-03. Sotto la pioggia (From "La califfa - The Lady Caliph / The Queen")
-04. Four Interludes (From "Cinema paradiso")(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B9B16F0EAC48D5BDB547F84B3294349D4DBD78
 ```
 
 https://mybot314.ru/tekegram_catalog/

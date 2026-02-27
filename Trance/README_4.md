@@ -1,3 +1,61 @@
+###  Публикация: 1448899   (1030481) от 19.02.2021
+
+VA - The World Series Of Trance Vol.1 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John 00 Fleming - The 10th Life (Original Mix)
+02. Carlo Mathaye - Digitalize (Hiroki Nagamine Remix)
+03. Jens Lonnberg - Red Skies (Radio Edit)
+04. Chris Turner - Phat Giraffe (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B390EB7D3A9E365BE5068240001D66E2DF678A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448893   (1030475) от 19.02.2021
+
+VA - Global Trance Masters Vol.1 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neo Kekkonen - Mirage (Intro Mix)
+02. Dirkie Coetzee & Corrie Theron - Engel (Original Mix)
+03. Feel-X & Robin Vane - Found Myself (A&M Remix)
+04. Chris SX - Go! (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D39C7862D00BBF2E643A59C144364A9BF48D649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448896   (1030473) от 19.02.2021
 
 VA - Global Trance Masters Vol.2 (2021) [MP3|320 Kbps] <Trance>
@@ -381,107 +439,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 742613   (979164) от 06.01.2014
-
-VA - Paul Oakenfold DJ Box: Best Of 2013 (2013) [MP3|320 кб/с]<Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Maison & Dragen - Hour Of The Wolf (Original Mix) (06:31)
-02. Benjani - Insane (Original Mix) (08:06)
-03. Andain - What It's Like (John Dahlback Remix) (06:11)
-04. Sonic Element - Away Without You (Thomas Datt Remix) (07:28)
-05. Paul Oakenfold feat. Austin Bis - Who Do You Love (Original Mix) (05:52)
-06. Shogun - Drop (Original Mix) (07:19)
-07. Astrix - High On Mel (Original Mix) (07:46)
-08. Rex Mundi - Watch (Original Mix) (07:52)
-09. Simon Patterson & Blazer - Contraband (Simon Patterson Remix) (06:19)
-10. John O'Callaghan feat. Ria - I'll Follow (Solarstone Pure Mix) (09:09)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:27:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F0791702A2D2FEC48DD606F8CC9601CF09CD15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616022   (976537) от 09.02.2013
-
-VA - 20 Vocal Trance Anthems 2013 Winter Edition (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-VA - 20 Vocal Trance Anthems 2013 Winter Edition (2013)
-Год: 2013
-Жанр: Vocal Trance, Uplifting Trance
-Продолжительность: 02:25:19Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Armin Van Buuren - I'll Listen - John O'Callaghan Dark Mix
-02. Markus Schulz - Love Rain Down - 4 Strings Remix(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C2A936ECC027F19DDB932BDC3182BDE9355661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440207   (971135) от 22.01.2012
-
-Blank And Jones - Substance 10th Anniversary Edition (2012) [MP3|320 kbps]<Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Blank And Jones - Substance 10th Anniversary Edition (2012)
-Год: 2012
-Жанр: Progressive Trance, Progressive House
-Продолжительность: 02:50:47Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-CD1:
-Продолжительность: 01:21:28(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DEA10BD762FCE6B6B8328CEDB1E5B69F9BD528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359427   (963270) от 13.02.2020
 
 VA - Defragmentation (Mixed by DJ Бинокль) (2008) [MP3|320 Kbps] <Trance, Progressive, Deep House>
@@ -765,6 +722,35 @@ VA - Trance Up In A Dream (2017) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D29763D2D1123346F019ED0326F33CF07AB75D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090407   (947531) от 06.01.2017
+
+VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz feat. CeCe Peniston - Make You Fall 04:31
+02. Dash Berlin feat. Kate Walsh - When You Were Around 02:59
+03. Alex M.O.R.P.H. feat. Sylvia Tosun - Antara (The Circle) (Den Rize Remix) 03:45
+04. MaRLo feat. Sarah Swagger - Always Be Around 03:57(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 01:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0615B328DC0FE778B4171032DF61CB43B583CEEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

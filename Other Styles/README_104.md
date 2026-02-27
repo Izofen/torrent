@@ -1,3 +1,61 @@
+###  Публикация: 919678   (582944) от 19.07.2015
+
+Golana - Meditations for Two (2014) [MP3|320 кб/с]<New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditations For Two
+02. A Walk On The Beach
+03. Prayer For Our People
+04. Star Filled Sky(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE086DB00269F3C630F39DF15391F1D9F0103F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918644   (582851) от 19.07.2015
+
+VA - Cab Canavaral - Electro Swingster (2015) [MP3|320 кб/с]<Electro Swing, Broken beat, House, Electronic>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Swing Towers - Mr Saxo Phone (4:55)
+02. 5 In Love - Swing What You Got (extended Cab Canavaral remix) (4:07)
+03. Cab Canavaral - Missing Link (5:22)
+04. 5 In Love - Bubba Don't Forget Your Rubber (Cab Canavaral remix) (3:25)(   Читать дальше...   )Жанр: Electro Swing, Broken beat, House, ElectronicПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52856031F7F6A4B619E0AA1E36F8226EC55B2553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357764   (582664) от 05.07.2011
 
 Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
@@ -681,64 +739,6 @@ Shinnobu - The Enigma V (Masterminds) (2018) [MP3|320 Kbps] <New Age, Enigmatic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26EC4359CF115E8443CF54FA85531C5A276570AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921823   (573699) от 26.07.2015
-
-Catherine Duc - Voyager (2015) [MP3|320 кб/с]<New Age, Ambient, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Owen's Boat
-02. Inishowen Dawn
-03. Vardo
-04. Mantra(   Читать дальше...   )Жанр: New Age, Ambient, CelticПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5408E3A8BE17A9659E2AD7BDECB020C09BF7143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921611   (573592) от 26.07.2015
-
-Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573592.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Parameshwara Mantra (Deep in Love) - 14:03
-2. Sarveshaam Mantra - 6:37
-3. Ganapati Mantra (Strong My Roots) - 7:20
-4. Karuna - 4:38(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A941B857E4FAA4506D831795656F682C5C866C54
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -355,67 +355,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 165095   (984124) от 09.01.2010
-
-Van Cliburn - My Favorite Brahms (1999) [FLAC|Lossless]<Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 01:15:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739931   (981786) от 04.01.2014
-
-Beethoven - Piano Sonatas 8, 14, 15, 17, 21, 23, 26: Wilhelm Backhaus [2 CD] (2002) [FLAC|Lossless]<Classical, Sonata, Classicism, Классическая музыка>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Piano Sonata no. 8 in C minor, op. 13 'Pathetique'
-01 (1) Grave - Allegro di molto e con brio
-02 (2) Adagio cantabile
-03 (3) Rondo. Allegro
-Piano Sonata no. 14 in C-sharp minor, op. 27 nr. 2 'Moonlight'
-04 (1) Adagio sonstenuto - attacca
-05 (2) Allegretto & Trio
-06 (3) Presto agitato
-Piano Sonata no. 23 in F minor, op. 57 'Appassionata'(   Читать дальше...   )Жанр: Classical, Sonata, Classicism, Классическая музыкаПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67EB8DEF5DB3C1732F69AD2F636CF38AC600B376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973590   (978946) от 09.01.2016
 
 Chopin - The Nocturnes (Maria Joao Pires)(2CDs) (1996) [FLAC|Lossless|image + .cue] <Classical, Recitals, Romantic Period, Chamber Music, Nocturne>
@@ -531,98 +470,6 @@ Erik Satie performed by Pascal Rogé - 3 Gymnopédies & Other Piano Works (1984)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8A9407E2B376920E5EC95328694855A1FC2FCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858860   (944534) от 14.01.2015
-
-Chopin - Variations, Mazurkas, Rondos (Tatiana Shebanova) (2010) [FLAC|Lossless]<Classical, Romantic Period, Chamber Music, Recitals, Variations, Rondo, Mazurka, Fugue, March, Polonaise, Waltz>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical, Romantic Period, Chamber Music, Recitals, Variations, Rondo, Mazurka, Fugue, March, Polonaise, WaltzПродолжительность: 01:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F626D8CE0476BBE86AAEA9F467C1D96D88075C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861034   (934632) от 20.01.2015
-
-Chopin - Polonaises, Nocturnes, Mazurkas: Janusz Olejniczak (2009) [FLAC|Lossless]<Classical, Romantic Period, Concerto, Polonaises>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturne in C minor, Op.48 No.1 (07:08)
-02. Polonaise in F-sharp minor, Op.44 (12:06)
-03. Nocturne in B major, Op.62 No.1 (07:54)
-04. Mazurka in A-flat major, Op.17 No.3 (05:32)
-05. Mazurka in B minor, Op.30 No.2 (01:28)
-06. Polonaise in A major, Op.40 No.1Жанр: Classical, Romantic Period, Concerto, PolonaisesПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049B51811044710378EAAEF730AF845AECA8FA3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861039   (934493) от 20.01.2015
-
-Schubert - "Wanderer - Fantasie", Piano Sonata D 845: Maurizio Pollini (1987) [FLAC|Lossless]<Classical, Romantic Period, Chamber Music, Recitals, Sonata, Fantasy>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Fantasia for piano in C major ("Wanderer"), D. 760 (Op. 15)
-01. Allegro con fuoco ma non troppo (06:26)
-02. Adagio (06:37)
-03. Presto (04:49)
-04. Allegro (03:58)
-Piano Sonata No. 16 in A minor, D. 845 (Op. 42)
-05. Moderato (12:12)
-06. Andante, Poco Moto (12:11)
-07. Scherzo. Allegro Vivace-Trio.  Un poco più lento (06:50)
-08. Rondo. Allegro Vivace (05:16)Жанр: Classical, Romantic Period, Chamber Music, Recitals, Sonata, FantasyПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F80D183560EE835765C653C3E88F59E98DA3C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -748,29 +595,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 869412   (891274) от 15.02.2015
+###  Публикация: 995214   (886143) от 10.03.2016
 
-Grieg - Lyric Pieces (Daniel Adni) (1995) [FLAC|Lossless]<Classical, Romantic Period, Chamber Music, Recitals, Character Piece, Dance, Waltz, March, Nocturne, Lullaby, Elegy, Piece, Canon, Song  ...
+Klara Min - Scriabin: Piano Works (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 
 >>Классика
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Book VI, op.57
-01. She Dances (02:47)
-02. Home sickness (03:50)
-Book VII, op.62
-03. Sylph (01:35)(   Читать дальше...   )Жанр: Classical, Romantic Period, Chamber Music, Recitals, Character Piece, Dance, Waltz, March, Nocturne, Lullaby, Elegy, Piece, Canon, Song Without WordsПродолжительность: 01:17:19
+01. 3 Pieces, Op. 2 - 3 Pieces, Op. 2: No. 2. Prelude (1:08)
+02. 2 Impromptus, Op. 14 - No. 1 in B Major (3:24)
+03. 2 Impromptus, Op. 14 - No. 2 in F-Sharp Minor (5:01)
+04. 3 Pieces, Op. 45 - No. 1. Feuillet d'Album (1:44)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:02:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:879AF59D047AC40927CD10FFB1030D7112A731E0
+magnet:?xt=urn:btih:FBF9F47DACE6C74D65514BBC6B0F7DB29DCFA720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995262   (886125) от 10.03.2016
+
+Sviatoslav Richter - Beethoven Piano Sonatas № 8, 23, 8 Bagatelles, Choral Fantasy (Melodiya Edition Vol.2) (2003) [FLAC|Lossless|image + .cue] <Classical, Chamber Music>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соната для фортепиано №8 до минор соч.13 "Патетическая"
+01. Piano Sonata No.8 in C minor, Op.13 - Grave, Allegro di molto e con brio
+02. Piano Sonata No.8 in C minor, Op.13 - Adagio cantabile
+03. Piano Sonata No.8 in C minor, Op.13 - AllegroЖанр: Classical, Chamber MusicПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF3529563D9C8E6561DC057CF8E93D56C0328FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996840   (877199) от 15.03.2016
+
+Ivan Moravec - Plays Chopin (2001) [FLAC|Lossless|tracks] <Classical, Keyboard>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballade for piano No. 1 in G minor, Op. 23, CT. 2  10:11
+02. Ballade for piano No. 2 in F major, Op. 38, CT. 3  07:41
+03. Ballade for piano No. 3 in A flat major, Op. 47, CT. 4  07:52
+04. Ballade for piano No. 4 in F minor, Op. 52, CT. 5  12:03(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1476D7DAA5338279075CEF7090985B0476AD0899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998839   (866117) от 21.03.2016
+
+Ivan Moravec - Chopin: Nocturnes (1991) 2 CD [FLAC|Lossless|tracks] <Classical, Romantic>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 00:52:22 
+
+01. G Minor, Op. 37, No. 1.flac  06:24
+02. G Major, Op. 37, No. 2.flac  05:48(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 03:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7F1E22DB10506E8B3B85D0A9EA7E2E25F80758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999254   (864344) от 22.03.2016
+
+Chopin - 4 Ballades, Prelude, 4 Scherzi (Ashkenazy) (2000) [FLAC|Lossless|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ballade no. 1 in G minor, op. 23
+02 Ballade no. 2 in F major, op. 38
+03 Ballade no. 3 in A-flat major, op. 47
+04 Ballade no. 4 in F minor, op. 52(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608B83D840200BAE6750B5C1BD98672F9BD6011E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002037   (850257) от 30.03.2016
+
+Стравинский, Шостакович, Каретников - Piano Music (Анатолий Ведерников) (2005) [FLAC|Lossless|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стравинский - Piano Sonata no. 2
+01 -1- q=112
+02 -2- Adagietto
+03 -3- q=112(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D87792FEE8F9661116014DC413581FC8DE2393
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,105 +1,22 @@
-###  Публикация: 1089788   (950139) от 04.01.2017
+###  Публикация: 634136   (912961) от 24.03.2013
 
-Дискотека 80-х 15 лет. Авторадио (полная версия) (26.11.2016) (2017) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950139.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 ноября в московском спорткомплексе «Олимпийский» состоялся 15-й международный музыкальный фестиваль «Авторадио» «Дискотека 80-х». Организаторы шоу подготовили уникальную программу с участием любимых исполнителей. На сцене такие звезды как С.С. Catch, Сандра, Dschinghis Khan, Ricchi e Poveri, Тото Кутуньо, Secret Service. Из отечественных - Олег Газманов, Юрий (   Читать дальше...   )Производство: РоссияЖанр: Музыка, концертПродолжительность: 04:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEAF18DDDDD1F8F51F6A1059CB69CC38D2DC9014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088813   (950119) от 04.01.2017
-
-Песня года 2016 (2017.01.01-02) SATRip (части 1-2 из 2)
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950119.jpg" />
-</div>
-
-
-###  Подробнее
-
-На телеканале "Россия" - главный концерт страны! Участвуют все звезды!
-Каждый год в первые дни Нового года мы с радостью слышим позывные любимой программы: "Через годы, через расстояния, на любой дороге, в стороне любой Песне ты не скажешь "до свидания", Песня не прощается с тобой…"
-На сцене "Олимпийского" соберутся лучшие (   Читать дальше...   )Телекомпания: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D31757A42B8DA6A468E6DAB2A767D4910B1EE6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089672   (950100) от 04.01.2017
-
-Дискотека 80-х 15 лет. Авторадио (полная версия) (26.11.2016) (2017) HDTV [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950100.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 ноября в московском спорткомплексе «Олимпийский» состоялся 15-й международный музыкальный фестиваль «Авторадио» «Дискотека 80-х». Организаторы шоу подготовили уникальную программу с участием любимых исполнителей. На сцене такие звезды как С.С. Catch, Сандра, Dschinghis Khan, Ricchi e Poveri, Тото Кутуньо, Secret Service. Из отечественных - Олег Газманов, Юрий (   Читать дальше...   )Производство: РоссияЖанр: Музыка, концертПеревод: ОтсутствуетПродолжительность: 04:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3798C0C12FC8975A95D07E7212AB46AD5D5E86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981782   (949881) от 02.02.2016
-
-VA – Fetenhits: The Real Classics (2002) DVDRip
+Vanessa Hudgens vs. YLA - SSSex (2013) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949881.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Janet Jackson - Rhythm Nation
-02. Cameo - Word Up
-03. Kool & The Gang - Celebration
-04. ABC - The Look Of Love(   Читать дальше...   )Жанр: Hi NRG, Pop Rock, DiscoПеревод: ОтсутствуетПродолжительность: 01:43:00
+Жанр: HouseПродолжительность: 00:02:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8E6BCF894E8589E430A8D7CB7BA4F4808A35C6B
+magnet:?xt=urn:btih:8D2A9BC5481573712DDE0DFD31670048A65D0E18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -107,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 981645   (949811) от 02.02.2016
+###  Публикация: 634324   (912944) от 24.03.2013
 
-Radiohead – 27 5 94 The Astoria London Live (1995, remastered 2005) DVD9
+Katalina Rusu - My Name Is Love (2013) [H.264/1080p] WEBRip
 
 >>Театр и Музыкальное видео
->>Концерты (DVD)
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949811.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1	You	3:48
-2	Bones	3:08
-3	Ripcord	3:17
-4	Blackstar	3:44(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:06:53
+Жанр: DanceПродолжительность: 00:03:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD8C91560ED61C57586AEC59B833C6E37B924FDF
+magnet:?xt=urn:btih:D762673395D3CD0F98AD67CC87D842B9977C8F3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 981443   (949798) от 02.02.2016
+###  Публикация: 633919   (912782) от 24.03.2013
 
-New Order - A Collection (2005) DVD9
+Alex Clare - Too Close (2nd Version) (2012) [1080p] HDRemux
 
 >>Театр и Музыкальное видео
->>Концерты (DVD)
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949798.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.Confusion
-2.The Perfect Kiss
-3.Shellshock
-4.State Of The Nation(   Читать дальше...   )Жанр: New Wave, Synth-pop, Indie RockПродолжительность: 01:44:24
+Жанр: Pop, Dubstep, SoulПродолжительность: 00:04:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CCFD2BC53A2B4E37C0AB14DED4EFEB96EF097B0
+magnet:?xt=urn:btih:5AC7A926F092DECF6E09E9817127136D78834CF9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -165,28 +76,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 982080   (949645) от 02.02.2016
+###  Публикация: 634057   (912663) от 24.03.2013
 
-Joe Dassin - a Toi... Live a L'Olympia (1977) 2005 Sony&BMG, DVDRip
+Louna - Проснись и Пой! (live) (2012) DVDRip [H.264]
 
 >>Театр и Музыкальное видео
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949645.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912663.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ouverture
-01. Le Musique
-02. Oh la la
-03. L'Ete Indien(   Читать дальше...   )Жанр: Pop RockПеревод: ОтсутствуетПродолжительность: 00:50:48
+Концертная видеосъемка и аудиозапись были осуществлены на большом сольном концерте группы Louna, который состоялся 26 октября 2012 года в московском клубе MILK. Интервью с группой было снято в помещении фотостудии "GetShot" (Москва). В фильме также использованы видеоматериалы выступлений группы на фестивалях "Нашествие-2012" и "Кубана-2011". (   Читать дальше...   )DVD1:
+01. Проснись и пой
+02. Кризис Крайст Суперстар
+03. Время Х(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:28:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:114E2369720A735033DC1335D4218B52718193DA
+magnet:?xt=urn:btih:FADCA78A0946C8FA766A15CEEDC1CEA31BF5FAF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,28 +105,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 981751   (949642) от 02.02.2016
+###  Публикация: 634137   (912642) от 24.03.2013
 
-Radiohead - The Best Of (2008) DVD9
+Mz Mikal Blair (Model) - Broke Bitch (Uncensored) (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF50E9C7ED836031A446EE2229C27388CE3DBB85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757926   (911782) от 19.02.2014
+
+The Freddie Mercury Tribute Concert for AIDS Awareness (1992) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911782.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Freddie Mercury Tribute Concert for AIDS Awareness (Концерт памяти Фредди Меркьюри для информирования о СПИДе) - концерт состоялся под открытым небом в пасхальный понедельник, 20 Апреля 1992 года, на стадионе «Уэмбли» в Лондоне, с аудиторией в 72 000 человек.01.Intro
+02. Brian May, Roger Taylor, John Deacon — Introduction
+03. Metallica — Enter Sandman
+04. Metallica — Sad But True(   Читать дальше...   )Жанр: RockРежиссер: David MalletЯзык субтитров: English, German, Spanish, French, ItalianПродолжительность: 03:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC12293967EDE7E0619E33FA2DB94D2D33CDEE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096679   (911761) от 28.01.2017
+
+Машина Времени - Концерт в Киеве 2012 (2014) DVD9
 
 >>Театр и Музыкальное видео
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949642.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Creep	3:58
-2. Anyone Can Play Guitar	3:24
-3. Pop Is Dead	2:17
-4. Stop Whispering	4:09(   Читать дальше...   )Производство: Parlaphone  212 1079, 50999-212107-9-2, EuropeЖанр: Alternative Rock, Indie Rock, ExperimentalПродолжительность: 01:33:50
+В Ваших руках не просто очередной концерт «Машины Времени». По утверждению самих музыкантов – это их лучшая съемка за все времена. Очень рад, что к этой записи имеют отношение команды «Авторадио» в России и на Украине, наш любимый режиссер Герман Садченков и его профессионалы. Посмотрите внимательно этот концерт. Вслушайтесь в тексты песен, вглядитесь в лица людей. (   Читать дальше...   )Производство: CD LAND/Sintez RecordsЖанр: МузыкаРежиссер: Герман СадченковПродолжительность: 01:57:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8F53F61AF5D074D1DD9763EAAFFD8B8CEEF22F4
+magnet:?xt=urn:btih:F59C4EDA4CC40472CCE5121E44DCD63B323F7216
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -223,28 +186,175 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 982050   (949634) от 02.02.2016
+###  Публикация: 990445   (911715) от 25.02.2016
 
-Chris Rea – The Road To Hell & Back (2006) DVDRip
+Shania Twain - UP! Close & Personal (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911715.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	I'm Gonna Getcha Good!
+2	Ain't No Particular Way
+3	From This Moment On
+4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BB855D5E16B4EE367A2BBE179DA9126A5DA44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989610   (911625) от 25.02.2016
+
+Shania Twain - LIVE (1999) Come On Over, DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911625.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Man! I Feel Like A Woman!
+2	Honey, I'm Home
+3	You Win My Love
+4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243AEB90D0BA91E864008650CA168BF66B44524E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990195   (911616) от 25.02.2016
+
+Shania Twain - The Platinum Collection (2001) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911616.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	What Made You Say That
+2	Dance With The One That Brought You
+3	You Lay A Whole Lot Of Love On Me
+4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country, Pop, Rock.Продолжительность: 01:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BE4BF66D410451215F2953D81F5B40ADDBB042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990261   (911603) от 25.02.2016
+
+Shania Twain - UP! Live In Chicago (2003) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911603.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Man! I Feel Like A Woman!
+2	Up!
+3	Honey, I'm Home
+4	She's Not Just A Pretty Face(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DD9E0BD15DF352A8F8292F4A18C65A591EED51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989811   (911599) от 25.02.2016
+
+Shania Twain - The Specials (2001) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911599.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Man! I Feel Like A Woman!
+2	Honey, I'm Home
+3	All I Have To Give (Featuring Backstreet Boys)
+4	You're Still The One/Something About The Way You Look Tonight (	Featuring Elton John)(   Читать дальше...   )Жанр: Country, Rock, PopПродолжительность: 01:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8C4E8FB9856D9738CB2161DAB73A3B206038FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761949   (911550) от 03.02.2015
+
+Joe Bonamassa - Tour De Force (Hammersmith Apollo) (2013) HDRip
 
 >>Театр и Музыкальное видео
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949634.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jazzee Blue	(3:45)
-02. That's The Way It Goes (5:03)
-03. Where The Blues Come From (5:38)
-04. Josephine (5:08)(   Читать дальше...   )Жанр: Pop RockПеревод: ОтсутствуетПродолжительность: 01:50:00
+Первый беспрецедентный концерт, записанный немногим ранее в
+некоторых самых известных и культовых лондонских залах:
+Royal Albert Hall, Hammersmith Apollo, Shepherd’s Bush Empire, and The Borderline.01. Albion (intro)
+02. Seagull
+03. Jelly Roll
+04. Richmond(   Читать дальше...   )Жанр: Концерт, Blues RockПродолжительность: 02:02:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B71EAA6521F3677308AF20CB5948D14BAD1E6C3
+magnet:?xt=urn:btih:13B1353C78128915BDDE721E39FE574B8DF85688
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -252,29 +362,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 624935   (949504) от 02.03.2013
+###  Публикация: 1368089   (910778) от 19.03.2020
 
-Дельфин - Я буду жить (2000) + 4 клипа DVDRip
+Kreator - London Apocalypticon - Live at the Roundhouse (2020) BDRip [H.264/720p]
 
 >>Театр и Музыкальное видео
->>Концерты (SD)
+>>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949504.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Концерт, записанный в Московском Дворце Молодежи 28 января 2000 года, и клипы которые входили в официальный DVD который вышел не большим тиражом в 2001 году.
-Солист группы: Андрей Вячеславович Лысиков (он же Дельфин).Концерт:
- 01. Дилер
- 02. Убийца
- 03. Тишина(   Читать дальше...   )Жанр: Концерт, Rock, Alternative, Noise, RapПродолжительность: 00:46:27 концерт и 00:16:29 клипы
+001 London Apocalypticon - Live at the Roundhouse (01:16:22)
+01. Choir Of The Damned / Enemy Of God
+02. Hail To The Hordes
+03. Awakening Of The Gods(   Читать дальше...   )Производство: Nuclear Blast ‎– 27361 48105Жанр: Thrash, Heavy MetalПродолжительность: 01:16:22 + 01:00:07 + 01:33:59 + 00:25:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:596C860515F929C375618A495B92E3BE2384EDEA
+magnet:?xt=urn:btih:EA817CCE1DA443116DF818398B16340CCEADC091
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,25 +391,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 623821   (949083) от 02.03.2013
+###  Публикация: 634981   (910682) от 25.03.2013
 
-Ирландские танцы / Lord Of the Dance (1996), Micael Flatley's Feet of Flames (1998) (1996-1998) DVDRip
+Роман Полонский / Годится! Ягодица! (Uncensored) (2013) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клип Романа Полонского - Годится! Ягодица! (+18)Жанр: Музыка, PopПродолжительность: 00:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E78EDD360F17F70D4ADDEAE08F7D25534A7F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635072   (910556) от 25.03.2013
+
+Цирк дю Солей: Сказочный мир / Cirque du Soleil: Worlds Away (2012) HDRip
 
 >>Театр и Музыкальное видео
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949083.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910556.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Два в одном" - параллельно два концерта Майкла Флэтли в одном экране (для сравнения)Жанр: МюзиклРежиссер: Майкл Райан ФлэтлиАктеры: Майкл Райан ФлэтлиПеревод: ОтсутствуетПродолжительность: 01:08:47
+Производство: США / Reel FX Creative Studios, Strange Weather Films, Cirque du Soleil BurlescoЖанр: фэнтезиРежиссер: Эндрю АдамсонАктеры: Эрика Линц, Игорь Зарипов, Лутс Халбхюбнер, Джон Кларк, Даллас Барнетт, Таня Дрюери, Сара Хуболт, Аскья Мэйбери, Дэмиен Гордон, Зэк БриклэндПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:31:12
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:1711C3927941AA7725B3C926E84EC22767CCF261
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,279 +443,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 281155   (949003) от 11.01.2011
+###  Публикация: 1368274   (910520) от 19.03.2020
 
-Юбилейный вечер Р. Паулса на "Новой волне"  (2011.01.10) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юбилейный вечер Р. Паулса на "Новой волне"
-
-В этот вечер выступают: Раймонд Паулс, Алла Пугачева, София Ротару, Валерий Леонтьев, Лайма Вайкуле, Игорь Крутой, Анжелика Варум, Ирина Дубцова, Сергей Лазарев, Кристина Орбакайте, Ивар Калныньш, Наталья Ветлицкая, Полина Гагарина, гр."Сливки", гр."Отпетые мошенники", Jay Stever, гр."ВИА (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C5F7DA83564F489EF9FB091DE517C93F281862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 281100   (948916) от 11.01.2011
-
-Хиты и Звезды. Концерт Виктора Дробыша  (2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948916.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эфире первый творческий вечер российского композитора, автора огромного количества шлягеров Виктора Дробыша. Творческий вечер Виктора Дробыша станет уникальным концертом, в котором прозвучит большинство самых популярных песен нашей страны последних десяти лет.1. Валерия - Была любовь
-2. Валерия - Часики
-3. Филипп Киркоров и Челси - Любовь всегда права
-4. Илья Резник - Поздравление (Праздничное стихотворение)(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:25:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 281161   (948911) от 11.01.2011
-
-Юбилейный концерт.  Борис Моисеев: Десерт (2011.01.10) DVBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запретный плод подают на сладкое. И женщины не могут отказаться…  На одной сцене — Борис Моисеев и все дамы его сердца!01.Паганини
-02.Маленьким не умереть
-03.Это боль
-04.Московские звезды(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:971851E2E38B3BD1BBA464114048EF15E87FE9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089299   (948820) от 05.01.2017
-
-Ярослав Гашек - Швейк, или Гимн идиотизму (2005) TVRip (Московский академический театр Сатиры)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы инсценировки перекроили знаменитый роман, выстроив спектакль в форме аукциона в пользу голодающих актеров, на котором продавались исторические раритеты и личные вещи персонажей книги. Например, железный таз, в котором парил свои больные ноги бравый солдат Йозеф Швейк, 27 томов уголовных дел, подписанных им же, или клистир, которым лечили от всех болезней дезертиров. (   Читать дальше...   )Производство: Россия, Московский академический театр СатирыЖанр: Спектакль, комедияРежиссер: Александр ШирвиндтАктеры: Эдуард Радзюкевич, Михаил Державин мл., Юрий Авшаров, Фёдор Добронравов, Игорь Лагутин, Виктор Бакин, Константин Карасик, Сергей Чурбаков, Сергей Бурунов, Александр ЖигалкинПродолжительность: 02:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628BA8B5A1B1A22A4CAB95339589E9EC60C44830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857896   (948355) от 11.01.2015
-
-Инфинити - Крылья (2014) [1080p] [hand made 60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: MKVПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0787182C69D07A479EDD901BBD13D0607A286418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982441   (948132) от 03.02.2016
-
-Sade – Life Promise Pride Love (1993) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Programme Start (0:10)
-02. Your Love Is King (3:37)
-03. Smooth Operator (Red Eye) (8:27)
-04. Hang On To Your Love (3:59)(   Читать дальше...   )Жанр: Smooth Jazz, DowntempoПеревод: ОтсутствуетПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C96D72D1A6CD02B7097100F035A13A566C37D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982327   (947991) от 03.02.2016
-
-Michael Jackson – HIStory - Video Greatest Hits (1995) 2000 Sony Music Video,  DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Program Start
-02. Brace Yourself
-03. Billie Jean
-04. The Way You Make Me Feel(   Читать дальше...   )Жанр: Pop Rock, Downtempo, DiscoПеревод: ОтсутствуетПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC179D3398A95ABCA35FDDFD5D71D0E8214ADCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362157   (947732) от 24.02.2020
-
-Сборник клипов 02 (02.2020) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник зарубежных и отечественных видеоклипов за февраль 202001_Jax Jones, Martin Solveig, RAYE, Europa - Tequila
-02_MOZGI - Девчонка
-03_Alex Sensation, Silvestre Dangond - Dame Un Chance
-04_Хлеб - Бамбалейла(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B218674E1FBA6DF222D892D3364222C72E60826E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 281500   (947517) от 12.01.2011
-
-20 лучших песен 2010 года (2010) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947517.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом году Первый канал подвел музыкальные итоги года по-новому. Состав участников итоговой новогодней программы подбирался по результатам ротаций на радио, обсуждаемости и количеству скачиваний песни в интернете, частоты появления артиста в телеэфире, мнений экспертов, продюсеров и блогеров. Таким образом, на одной сцене оказались очень разные представители шоу-бизнеса. (   Читать дальше...   )01.	Валерия - Капелькою
-02. Филипп Киркоров - Цыганизация
-03. "Фабрика" - Али-баба
-04. Стас Михайлов и Таисия Повалий - Отпусти(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 02:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA87672B43796413243FEA7FF3B3E3A63F4DDCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090087   (946917) от 06.01.2017
-
-БИ-2 с симфоническим оркестром в Минске (2015) HDTVRip [H.264/1080p]
+Lindemann - Live at Moscow (VTB Arena) (15.03.2020) WEB-DLRip [VP9/2160p-LQ]
 
 >>Театр и Музыкальное видео
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946917.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910520.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«The best of…» Би-2 с симфоническим оркестром в "Минск-Арене" 5 апреля 2015Производство: Канал ОНТ (Беларусь)Жанр: МузыкаПродолжительность: 01:20:18
+(time markers)
+00:01:20     Skills in Pills
+00:06:07     Ladyboy
+00:09:30     Fat(   Читать дальше...   )Жанр: Industrial Ural MetalПродолжительность: 01:27:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:872D335C27B95117C349BC37A873391C998A3A8C
+magnet:?xt=urn:btih:30F5B78FF263342C36E3A5F5366CF50EFC198004
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,28 +472,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 982377   (946898) от 04.02.2016
+###  Публикация: 1078297   (910124) от 25.08.2021
 
-VA - Divas – VH1 Divas Live (1998) DVDRip
+The Rolling Stones: Havana Moon (2016) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_910124.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ноябре 2016 года The Rolling Stones на лейбле Eagle Rock выпускают «HAVANA MOON (LIVE)» сразу в нескольких форматах: на Blu-ray, DVD, CD и в цифровом виде. 25 марта 2016 года состоялось уникальное событие - знаменитая британская группа The Rolling Stones приехала на Кубу, чтобы сыграть первый рок-концерт на Острове свободы. Тысячи людей собрались, чтобы послушать (   Читать дальше...   )01. It's About Time...
+02. Jumpin' Jack Flash
+03. It's Only Rock 'N Roll (But I Like It)
+04. Out Of ControlПроизводство: Великобритания / Eagle Rock EntertainmentЖанр: Rock, Clasic Rock, КонцертРежиссер: Paul DugdaleСубтитры: EnglishПродолжительность: 01:50:05 + 00:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257F305C8ED30EC7CBB61677B67B253FA81814CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098281   (909898) от 29.01.2017
+
+Brit Floyd - Space & Time - Live in Amsterdam (2016) DVDRip
 
 >>Театр и Музыкальное видео
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946898.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No Artist	Start
-02. Jennifer Aniston - Mariah Carey Introduction
-03. Mariah Carey - My All
-04. Mariah Carey - Make It Happen(   Читать дальше...   )Жанр: Pop Rock, Downtempo, DiscoПеревод: ОтсутствуетПродолжительность: 01:20:00
+Профессиональная запись в "Мьюзик-Холл Хайнекен", г. Амстердам 12 ноября 2015 года с концерта "Space and Time" к 50-летию образования группы Pink Floyd. Как всегда красиво оформленный концерт, оформление сцены как у Pink Floyd и исполнение на высоте. Качественное видео, многокамерная съёмка, качественно-чистый звук. Удивительное, совершенно новое (   Читать дальше...   )1. Shine On You Crazy Diamond
+2. See Emily Play
+3. The Happiest Days of Our Lives
+4. Another Brick in the Wall (Part 2)(   Читать дальше...   )Производство: CMP EntertainmentЖанр: Concert, Art rock, prog rock, psychedelic rockПродолжительность: 01:00:15 + 01:29:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:080478D3F8527641466B98C8623CF734ECEE3E73
+magnet:?xt=urn:btih:553001328497E30D85FCA22C6012E11E7CD9B9B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,28 +530,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 982104   (946808) от 04.02.2016
+###  Публикация: 1248084   (909861) от 25.08.2021
 
-Saga - World Apart Revisited (2007) 2 x DVD5
+Europe: The Final Countdown – Live At The Roundhouse (2017) 30th Anniversary Show [H.264/1080i] Blu-ray [Custom]
 
 >>Театр и Музыкальное видео
->>Концерты (DVD)
+>>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946808.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Full Concert Recorded 8th December 2005 In Pratteln, Switzerland
-1	The Pitchman
-2	Give 'Em The Money
-3	You're Not Alone(   Читать дальше...   )Жанр: Progressive Rock, Arena Rock, Classic RockПродолжительность: DVD1 - 01:56:00; DVD2 - 01:21:43
+Europe: The Final Countdown 30th Anniversary Show - Live at the Roundhouse празднует тридцатилетний успех мультиплатинового альбома. Группа сыграла альбом в своей последовательности в серии избранных городов в 2016 году, причем самое исторически почитаемое место Лондона, в котором участвовала исключительно особенная ночь 12 ноября 2016 года, которая была захвачена (   Читать дальше...   )01. Hole In My Pocket
+02. The Second Day
+03. Praise You
+04. Nothin To Ya(   Читать дальше...   )Производство: Германия | AdaЖанр: Hard RockРежиссер: Patric UllaeusПродолжительность: 01:43:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2AF74A2D1A0B6210CE0313FA171F83212A1180A
+magnet:?xt=urn:btih:AEA053D8C0D526A29A181EC02253CA88A4A8BDAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,86 +559,155 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 982553   (946796) от 04.02.2016
+###  Публикация: 635445   (909706) от 26.03.2013
 
-Shakira – MTV Unplugged (2002) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Octavo Día
-02. Si Te Vas
-03. Donde Estan Los Ladrones
-04. Ciega, Sordomuda(   Читать дальше...   )Жанр: Pop Rock, Latin, PopПеревод: ОтсутствуетПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6841BBB70532176250CACCF1ED8BBCD340BD9E3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982549   (946585) от 04.02.2016
-
-Enigma - A Posteriori (2006) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946585.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Posteriori	53:52
-1.	Eppur Si Muove	3:44
-2.	Feel Me Heaven	5:00
-3.	Dreaming Of Andromeda	3:59(   Читать дальше...   )Производство: Virgin Music, Division Of EMI Music, 00946 382326 9 8, GermanyЖанр: AmbientПродолжительность: 02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF85A5472A09A1F6638839BE76C012C14CBAED89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982519   (946554) от 04.02.2016
-
-VA - Зимний марафон № 223: Презент Новинок Россыпью (2015-2016) WEBRip [H.264/1080p-LQ]
+Stooshe - Slip (2013) WEBRip [H.264/1080p]
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946554.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909706.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Зимние (03.02.2016) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. Abraham Mateo - Are You Ready (Official Video) (00:03:51)
-02. Andreea Balan - Baby Be Mine (Official Video) (00:03:41)
-03. Brod' Earth - So Sexy (Official Video) (00:03:21)
-04. Christopher ft. Madcon - Limousine (Official Video) (00:04:00)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Electronic, TechnoПродолжительность: 01:25:56
+Жанр: PopПродолжительность: 00:04:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CF65F6C84D86FE47C3EFE9148F34261AC3C6F0E
+magnet:?xt=urn:btih:A0125B6AA5DFF73D4F1521E1D1DB5BF3EC1AB6E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635447   (909525) от 26.03.2013
+
+Dj Sava feat. Misha - Tenerife (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F695E2FF9794065A303A1321FBD8579DC1C98A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635452   (909505) от 26.03.2013
+
+Elena ft. Glance - Ecou (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF8A52CE9EA3AF9C2A97D06878BEED5E029C763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864509   (909481) от 04.02.2015
+
+Демонстрационный DVD-Video диск #3. Dolby Digital 5.1, DTS Multichannel Sound 5.1 [DVD5]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Демонстрационные музыкальные клипы и фрагменты кинофильмовПродолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E789C5268FB2B3D80C5930DA0F6E901C334E4CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635441   (909438) от 26.03.2013
+
+Anna Tatangelo - Occhio Per Occhio (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13735E359531B1158732504F7FC4F327583C6845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635343   (909339) от 26.03.2013
+
+London Philharmonic Orchestra & Rowan Atkinson (2012) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8142FE3DD714EF47E5E884090BD14F9184F073E
 ```
 
 https://mybot314.ru/tekegram_catalog/

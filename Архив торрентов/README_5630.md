@@ -1,363 +1,3 @@
-###  Публикация: 455307   (93967) от 21.02.2012
-
-[Wallpapers] Best HD Wallpapers Pack (19.02.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFD8FEC3D06268C9BEA30491B4B27EA8D4B6BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455764   (93966) от 21.02.2012
-
-[Wallpapers] Best HD Wallpapers Pack (21.02.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7360C2FFC6A03A630B0396E2B6BF34093F887CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455760   (93965) от 21.02.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (21.02.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BB22B41907967275C6DC5981A7D000DD6B232B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455958   (93964) от 21.02.2012
-
-Kalapana - Kalapana II (1976) [MP3|320 kbps]<Funk, pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Love 'Em (3:08)
-02. Freedom (3:56)
-03. (For You) I'd Chase A Rainbow (2:57)
-04. Way That I Want It To Be (4:09)
-05. Dorothy Louise (3:21)
-06. Play It Sing It (2:49)
-07. Moon And Stars (3:22)
-08. Black Sand (5:20)
-09. Lost Again (3:15)
-10. Wandering Stranger (4:00)(   Читать дальше...   )1976Жанр: Funk, popПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AAA4575137687B41D419BDCEE387CFEE6B0A011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455720   (93963) от 21.02.2012
-
-[Wallpapers] World Games Wallpapers 2 (20.02.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D50116FC353F62652A2F68E597A8C9AD7055FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455762   (93962) от 21.02.2012
-
-[Wallpapers] Girls Wallpapers Mix (21.02.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700B1478687926868F1CBEBA7B58E2298A1C9CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455716   (93961) от 21.02.2012
-
-[Wallpapers] Girls Wallpapers (20.02.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA32E90B1F3A2C5455E90202B2395095EA7075A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455443   (93960) от 20.02.2012
-
-Ephor - Maybe It`s You (2012) [MP3|320 kbps]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe It`s You (05:13)
-02. Close My Eyes (05:51)
-03. Space Trip (05:12)
-04. Dons You (05:07)2012Жанр: Drum & BassПродолжительность: 00:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14CCC812FFF4F6E700C176357A8133986964D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455630   (93959) от 20.02.2012
-
-VA - Ночь Любви на Муз ТВ (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Balan - Лишь До Утра
-02. Mylene Farmer - Lonely Lisa
-03. Филипп Киркоров - Даже Если Ты Уйдешь
-04. Brian Mcknight - What's It Gonna Be
-05. Даша Суворова - Я Пою Тебе
-06. Roxette - No One Makes It On Her Own
-07. Сергей Трофимов И Лайма Вайкуле - Я И Ты
-08. Seal - Kiss From A Rose
-09. Катя Бужинская - Нежный, Родной
-10. W. Houston, Kelly Price & Faith Evans - Heartbreak Hotel(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C0F5E8CE4ED7D77FDC5E76E5044984092A0A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454488   (93958) от 20.02.2012
-
-VA - US TOP 40 Single Charts (18.02.2012) [MP3|~201~272 kbps]<House, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Kelly Clarkson - Stronger (What Doesn't Kill You) 03:42
- 02 Adele - Set Fire To The Rain 03:35
- 03 Fun. Feat. Janelle Monae - We Are Young 04:12
- 04 LMFAO - Sexy and I Know It 03:21
- 05 Flo Rida - Good Feeling 04:07
- 06 Rihanna Feat. Calvin Harris - We Found Love 03:36
- 07 Whitney Houston - I Will Always Love You 04:31
- 08 David Guetta Feat. Nicki Minaj - Turn Me On 03:20
- 09 Tyga - Rack City 02:33
- 10 Madonna Feat. Nicki Minaj & M.I.A - Give Me All Your Luvin' 03:22(   Читать дальше...   )18.02.2012Жанр: House, ClubПродолжительность: 02:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F778722F28AF8E06A8FA950DF904DFE2B87693D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455166   (93957) от 20.02.2012
-
-DJ Feel - TranceMission Top 25( Of January 2012) [MP3|320 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hannah - Falling Away (Protoculture Remix) (ARMADA)
-02. DJ Feel feat Loona - Ill Find Myself (Original Mix) (ALTER EGO)
-03. Orjan Nilsen - Legions (Original Mix) (ARMIND)
-04. Mike Foyle feat. Refeel - Universal Language (Original Mix) (SOUNDPIERCING)
-05. Cold Blue - Coconut (Original Mix) (MONSTER TUNES)
-06. alexander popov - elegia (original mix)
-07. Robbie Rivera - Dance Or Die Series 2 - Makes Me Feel Good (JUICY)
-08. Marcel Woods - Everything (Marcel Woods 2nd Treatment) (MUSICAL MADNESS)
-09. Ferry Corsten feat Ben Hague - Aint No Stoppin (Original Extended) (FLASHOVER)
-10. Cosmic Gate & Arnej - Sometimes They Come Back For More (Stoneface & Terminal Remix) (BLACK HOLE)(   Читать дальше...   )25 Of January 2012Жанр: TranceПродолжительность: 01:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B7CC9D64C5D6DAF3180429FF1EB8FB67A69C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455396   (93956) от 20.02.2012
-
-VA - Клубные новинки vol.2 (2012) [MP3|128-320 kbps]<Club, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. DJ Antoine feat. The Beat Shakers - Ma Chеrie (Raf Marchesini Remix)
- 2. Hotel Stereo - Out Of My Mind (Extended Mix)
- 3. Queen, Roul & Doors - We Will Assidulty (DJ Flight Secret Mash)
- 4. Schoolboy - The Science Project feat Ricco Vitali (Original Mix)
- 5. TON!C - Groundy (Original Mix)
- 6. Bel Suono - Te Quiero (Jasper Forks Remix)
- 7. Black Eyed Peas - Dj Veryty - The Time (Dub Remix)
- 8. Bruno Barudi, Steklo - Fly Away (Original Mix)
- 9. David Guetta - Love is gone (DJ Veryty) Remix
- 10. DjPromElektron - Alfa & Omega2012Жанр: Club, ElectronicПродолжительность: 04:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B882F27974074C0D3276B82D04B0578532E7CE95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454513   (93955) от 20.02.2012
 
 VA - Зимний Топ 100 1 Русский (2012) [MP3|256 kbps]<Рор>
@@ -778,6 +418,369 @@ VA - People Dancing In The World (2012) [MP3|224 kbps]<Club | Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:627D5D3978BADEEE9E4347E3ADFC0E759E7D65E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455454   (93938) от 20.02.2012
+
+VA - Living The Dream EP pt.3 (2012) [MP3|320 kbps]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cybass - it's a new life for me (big bud remix) (06:01)
+02. Random Movement - dropping the chips (06:29)
+03. Flaco - choose me (insiders remix) (06:42)
+04. Blue Motion, Grimm, Remo - we used to be good (06:47)
+05. Kubiks, Sicko - mad men (04:59)2012Жанр: Drum & BassПродолжительность: 00:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91477090D9B93F041D754DC742C9BDCFDB684C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455183   (93936) от 20.02.2012
+
+Trance Therapy - Volume 7 (2012) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Corsten - I Love You-Original 2003 Version [07:38]
+ 02. Gouryella - Ligaya-Ferry Corsten Remix [08:45]
+ 03. Ferry Corsten - Sweet Sorrow-Ferry Corsten Fix [07:37]
+ 04. Breakfast - River Of Light [10:06]
+ 05. Ferry Corsten - Masquerade [08:00]
+ 06. Embrace - Embrace-Leon Bolier Remix [07:42]
+ 07. Ferry Corsten - Galaxia-Symphonic Remake [03:44]
+ 08. Gouryella - Tenshi-Ochestra Cyber France De Paris [04:44]
+ 09. Tritonal Feat. Soto - Piercing Quiet [08:33]
+ 10. Ferry Corsten Pres. Pulse - Rendition [07:50](   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F369CA086D3486466CFC894F78F748DD46ACB37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455461   (93935) от 20.02.2012
+
+VA - The Beach 2011 (2011) [MP3|320 kbps]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.M.S - Pray For Japan 06:45
+ 02. 1200 Micrograms - Let It Roll 06:59
+ 03. Bizzare Contact - Vibrations 07:56
+ 04. Space Cat - In The Air 07:13
+ 05. Dynamic vs. Melicia - Go Back 07:03
+ 06. Perplex vs. Intersys - Dirty Bytes 07:20
+ 07. Black & White - Transition Mode 06:51
+ 08. X-Noise - Streptococcus A 07:03
+ 09. Nick Callaghan & Will Atkinson - Blizzard (Liquid Soul Remix) 08:122011Жанр: Psychedelic / Full OnПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332D0D12E0F1F8D67D5884BB69D8F7D0E3A32193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455545   (93933) от 20.02.2012
+
+Великий обман. Убить Генсека / Великий обман. Убить Генсека (2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+22 января 1969 года во время торжественной встречи экипажей космических кораблей «Союз-4» и «Союз-5» младший лейтенант советской армии Виктор Ильин, переодетый в чужую милицейскую форму, вышел из рядов милицейского оцепления и открыл огонь из двух пистолетов по машине правительственного кортежа. Он хотел убить Брежнева… Мотоциклист, сопровождавший кортеж, сбил Ильина с ног, но несколько пуль пробили стекла машины и попали в сидящих внутри людей.. Сейчас Виктор Ильин на свободе. Он не любит говорить о том дне, когда стал убийцей.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD79911D2603E85AA8DF337DB5DB6B092D207B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455476   (93932) от 20.02.2012
+
+А. Калкин | Алтайские героические сказания [1983] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Алтайский эпос, созвучный первозданному и прекрасному миру природы этого горного края, по своему человеколюбию, широте мысли и охвату времени и пространства не уступает самым выдающимся образцам мирового фольклора.
+Сквозь века пронес народ в своем сердце песенные сказания об алтайских богатырях. Записанные от кайчи (сказителя) Алексея Калкина, сказания "Маадай-Кара" и "Очы-Бала" впервые выпущены в центральном издательстве.1983Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511EB1C708E474091A382BB2A143FBB5F727F9E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454574   (93931) от 20.02.2012
+
+Genitorturers - Blackheart Revolution (2009) [FLAC|Lossless]<Industrial Rock, Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Revolution (4:33)
+02. Kabangin' All Night (3:39)
+03. Devil In A Bottle (3:50)
+04. Louder (3:46)
+05. Falling Stars (4:01)
+06. Take It (3:48)
+07. Confessions Of A Blackheart (5:12)
+08. Cum Junkie (3:57)
+09. Vampire Lover (5:04)
+10. Tell Me (4:02)Жанр: Industrial Rock, MetalПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455433   (93930) от 20.02.2012
+
+VA - Paul Oakenfold: DJ Box - February 2012 (2012) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oakenfold - Maybe It's Over (feat Tamra Keenan - Organ Donors Perfecto mix) (06:36)
+02. Planet Perfecto Knights - ResuRection (Beatman & Ludmilla remix) (05:50)
+03. Symphonix - Dirty Minds (Osher remix) (08:01)
+04. HJM - 222 (Marco V remix) (06:36)
+05. Trance Arts & Sonic Element - Reformation (original mix) (08:03)
+06. Destroyers & Aggresivnes - The Untouchables (original mix) (06:20)
+07. Federation - Innocent Desire (Nick Sentience remix) (08:42)
+08. Orison - Mutation (original mix) (06:57)
+09. East Cafe - Flashback (Aeron Aether remix) (06:52)
+10. Limbo - Paradox (original mix) (08:16)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9A800F45DDBCB0248D2EFE2B01488CDAC9ACD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454880   (93929) от 19.02.2012
+
+PowerISO 5.0 Portable [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+PowerISO - программа для работы с образами дисков. PowerISO позволяет конвертировать их из одного формата в другой, сжимать, распаковывать, шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. Поддерживаются большинство форматов образов - ISO, BIN, NRG, CDI, DAA, MDF, BWI, B5I, LCD, CIF, P01, PDI, NCD, PXI, GI, FCD, VCD, C2D. В программе используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать на куски разных размеров и в сжатом виде пересылать с помощью почтовых программ или записывать на другие носители. Многоязыковой интерфейс с поддержкой русского языка.Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454527   (93928) от 19.02.2012
+
+Изабель / Isabelle (2011) [H.264] DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В горных районах Франции внезапно исчезает гламурная актриса Изабель.Поиски полиции ни к чему не привели и вскоре дело было отправлено на полку. Только сельский учитель Бернард Буффон не бросил поиски и наконец нашел,что актрису похитила художница, которая, движимая ревностью или восхищением красоты актрисы, заставляла голодать Изабель и рисовала ее медленное умирание на своих холстах. Борьба между двумя женщинами идет не на жизнь, а на смерть.Жанр: драмаРежиссер: Бен СомбогаартАктеры: Халина Рейн, Уим Опбрук, Тинеке Каелз, Барбара Сафариан, Мишель Ван Дюсселер, Эдвин Де Врайз, Моник Ван Де ВенПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:32:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454248   (93924) от 19.02.2012
+
+Kim Wilde - Snapshots (2011) [FLAC|Lossless]<Pop, Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  It's Alright (by East 17) [4:17]
+02.  In Between Days (by The Cure) [3:07]
+03.  About You Now (by Sugababes) [3:36]
+04.  Sleeping Satellite (by Tasmin Archer) [4:09]
+05.  To France (by Mike Oldfield with vocals by Maggie Reilly) [4:01]
+06.  A Little Respect (by Erasure) [3:23]
+07.  Remember Me (by Diana Ross) [3:51]
+08.  Anyone Who Had A Heart (by Cilla Black) [3:51]
+09.  Wonderful Life (by Black a.k.a. Colin Vearncombe) [4:50]
+10.  They Don't Know About Us (by Kirsty MacColl) [2:39](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453676   (93917) от 19.02.2012
+
+Поп-звезда / Popstar (2005) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Джейн Брайтон — самая обыкновенная девушка-подросток, которая не пользуется особенной популярностью у мальчиков. Джей Ди МакКуин чрезвычайно знаменит, у него своя рок-группа и даже свои фэны, хотя его школьные отметки оставляют желать лучшего. Ему нужен кто-то, на кого можно переложить выполнение домашнего задания. Он вычисляет, что Джейн прекрасно разбирается в точных науках, а прокравшись к ней в спальню, обнаруживает, что все стены увешаны постерами с его портретами. Джей Ди покоряет сердце девушки, и молодые люди начинают встречаться. Она обучает его азам математики, а он ее — вождению автомобиля. Из журнала «People» Джейн узнает, что Джей Ди встречается с поп-звездой, и разрывает отношения. Пытаясь помириться, юный Казанова приглашает Джейн на церемонию вручения музыкальных наград «Грэмми». Она идет по красной ковровой дорожке рядом с суперзвездой! О чем еще может мечтать 16-летняя девушка?Жанр: Семейный, Комедия, МелодрамаРежиссер: Ричард ГабайАктеры: Аарон Картер, Алана Остин, Дэвид Кэссиди, Кимберли Кивон Уильямс, Эдрианн Палики, Мэри Элиз, Дина Дилл, Эндрю Стивенс, Наталия Ливингстон, Лейф ГарретПеревод: Одноголосый закадровыйПродолжительность: 01:34:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454990   (93913) от 19.02.2012
+
+Владимир Поляков | Шаг за грань [2012] [FB2,RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие мечтают заглянуть в бездну. Оккультные науки манят, обещая даровать невиданную силу и могущество. Человек, вставший на этот путь, никогда не станет прежним.
+ Именно это происходит с героями романа. Стилет, Клим, Висельник и Ханна - сотрудники Третьего Отделения, которые занимаются поиском террористов и увлекаются оккультизмом, отвергая традиционную религию. Неожиданно на их пути возникает таинственный граф Черепанов. Кто он, этот обладающий огромной властью человек, в руках которого - четки из серебряных черепов? Это проводник в мир бессмертных воинов и магов, где не поклоняются богам, а стремятся ими стать. Здесь гордость - наивысшая добродетель, а смирение и покорность стоят наравне с трусостью и предательством.
+ Героям осталось сделать последний шаг. Шаг за грань.2012Формат: FB2,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F596399D1A053B831DD513D0E8EB1ADEB52DAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

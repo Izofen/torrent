@@ -1,3 +1,32 @@
+###  Публикация: 1436650   (1043028) от 01.01.2021
+
+VA - Rap Workout (2021) Explicit [MP3|320 Kbps] <Rap, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Busta Rhymes - Gimme Some More (02:38)
+02. Jack Harlow - WHATS POPPIN (02:19)
+03. Ol Dirty Bastard - Shimmy Shimmy Ya (02:41)
+04. Wiz Khalifa - Black and Yellow (03:37)(   Читать дальше...   )Жанр: Rap, PopПродолжительность: 02:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE7CD143708DFE0C1F0E2EF7C025E4E78A64AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612458   (1039834) от 17.02.2023
 
 Аким Апачев - 3 Relises (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Hip Hop>
@@ -708,35 +737,6 @@ VA - Chillhop Essentials Winter (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A84AF64683D71A75612CA87A7AEE732F387F6110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447195   (1032040) от 12.02.2021
-
-Anacondaz - Перезвони мне +79995771202 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032040.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Когда-нибудь
-2. Серым
-3. SOS
-4. Уходи(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0183746BBD73C2950104E47F202509C0B8053FF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,299 @@
+###  Публикация: 1222694   (683029) от 30.04.2018
+
+Masterboy - The Masterboy Family (1991) Polydor [MP3|320 Kbps] <Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Masterboy - немецкая eurodance-группа, образованная в начале 90-х и имевшая значительный успех в Европе, Азии, Океании и Южной Америке в середине 90-х. Они наиболее показательная группа в стиле «high-energy», распространившемуся из данс-клубов на общую арену поп-пузыки. Наиболее известные композиции - Everybody Needs Somebody, I got to give it up, Land of Dreaming, (   Читать дальше...   )01. Dance To The Beat (Remix) 5:01
+02. Indian Grave 4:02
+03. Pump It Up 4:26
+04. Masterboy Theme 4:41(   Читать дальше...   )Жанр: Euro House, EurodanceПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2763D33214622E6B1EB1B987B0E6561221238614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135317   (682914) от 18.05.2017
+
+Grand Fantastic Strings - La Reine De Saba (1977) 45 RPM, LP [MP3|320 Kbps] <Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Reine De Saba (3:08)
+02. Tombe La Neige (2:56)
+03. Love Me With All Your Heart (3:01)
+04. You Don't Have To Say You Love Me (2:31)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 45 RPM, LP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE4DF5099DADDAF0887793799095A5B4789B83DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135136   (682910) от 18.05.2017
+
+Цвет Алоэ - В белом платье (2017) [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В белом платье
+02. 9 жизней
+03. Белым снегом
+04. Лёд(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4284803FA5FFA6AB76863A4C8AD746AF76012418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507086   (682887) от 08.06.2012
+
+Андрей Державин - Коллекция Песен (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не плачь, Алиса!
+02. Чужая свадьба
+03. Все как всегда
+04. Катя-Катерина
+05. Было или не было
+06. Верю
+07. Три недели
+08. Когда ты уйдешь
+09. Жизнь в придуманном мире
+10. Забытые сны(   Читать дальше...   )2012Жанр: PopПродолжительность: 02:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0DB8745BB31E8D1424D015AE6C08876CF629F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135128   (682669) от 18.05.2017
+
+Francesco Gabbani - Magellan (2017) [FLAC|Lossless|tracks] <Pop Rock, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magellano
+02. Tra Le Granite E Le Granate
+03. Occidentali's Karma (Radio Edit)
+04. A Moment Of Silence(   Читать дальше...   )Жанр: Pop Rock, EuropopПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62710C2B6A429658E436A5741A251B6EEEA5DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029339   (682478) от 26.06.2016
+
+Cash Cash - Blood, Sweat & 3 Years (2016) [MP3|320 кб/с] <Electronic, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How To Love (feat. Sofia Reyes) [03:39]
+02. Broken Drum (feat. Fitz Of Fitz & The Tantrums) [03:18]
+03. Millionaire (feat. Digital Farm Animals & Nelly) [03:06]
+04. Hero (feat. Christina Perri) [03:18](   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C332517D2B07541E53C24C7E02AA39C87DBB8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029546   (682452) от 26.06.2016
+
+Broods - Conscious (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free (3:44)
+02. We Had Everything (3:23)
+03. Are You Home (4:02)
+04. Heartlines (3:17)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199A582331B2F03553B38C53BB82CCAB8C22A403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029133   (682361) от 26.06.2016
+
+Михаил Муромов - Салют, любимая! (1994) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Ночи в Сочи  "
+02. "Hound Dog  "
+03. "Румянец  "
+04. "Венеция  "(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8727D78D22224CC045AD837BC8749DCFCBC62C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029430   (682353) от 26.06.2016
+
+Cher - 200% Platinum Hits (1999) Unofficial Release [APE|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Believe (1998)
+02. The Shoop Shoop Songs (It's In Her Kiss) (1991)
+03. Love Hurts (1991)
+04. One By One (1996)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:618717D804A3B4BF98B055784F3D18E436309809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029281   (682133) от 26.06.2016
+
+Alle Farben - Music Is My Best Friend (2016) [MP3|320 кб/с] <Electronic, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro    01:56
+02.  Please Tell Rosie    02:52
+03.  Bad Ideas    02:46
+04.  Remember Yesterday    03:10(   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2173B1D8F660D96EBEEAFC44C536782AC773903B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290075   (682082) от 18.03.2019
 
 Valverde Brothers - After Midnight (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
@@ -452,296 +748,6 @@ Gwen Stefani - Greatest Hits (2008) [MP3|320 kbps]<pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135700   (678575) от 20.05.2017
-
-VA - Dieter Bohlen Die Megahits (2017) Premium Edition 3CD  [MP3|320 Kbps] <Eurodance, Europop, Eurodisco>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Modern Talking - You're My Heart, You're My Soul (Mix '84) 3:23
-02.  Chris Norman - Midnight Lady 4:10
-03.  Deutschland Sucht Den Superstar - We Have a Dream (Radio Edit) 3:58
-04.  Alexander Klaws - Take Me Tonight (Radio Edit) 4:01(   Читать дальше...   )Жанр: Eurodance, Europop, EurodiscoПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C9EBF98583ED850F69EEF22368F220B77AB860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223162   (677526) от 03.05.2018
-
-VA - Comes The Fall - Adult Casual Vocals (2018) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brendan Asquith - Here It Comes (Original Mix) 05:10
-02. Brian McKeever - Six Deep (Original Mix) 02:21
-03. Ex Box Boys - Only You (Original Mix) 03:00
-04. Lochlainn Seabrook - Love Makes (Original Mix)You 03:29(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 01:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A0D82EB7E1EEC0BE0FEB28FF06A119DFD38D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222995   (677401) от 03.05.2018
-
-Masterboy - Feeling Alright (1993) Polydor [MP3|320 Kbps] <Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Masterboy - немецкая eurodance-группа, образованная в начале 90-х и имевшая значительный успех в Европе, Азии, Океании и Южной Америке в середине 90-х. Они наиболее показательная группа в стиле «high-energy», распространившемуся из данс-клубов на общую арену поп-пузыки. Наиболее известные композиции - Everybody Needs Somebody, I got to give it up, Land of Dreaming, (   Читать дальше...   )01. Fall In Trance 3:34
-02. M.B.O.Y. (Give It Up) 3:36
-03. Feel My Life 4:27
-04. Hey, Hey, Hey (You Around Me 4:25(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89FA4C3DA9D88702AA733D47016997E593F8647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223163   (677289) от 03.05.2018
-
-Francois Feldman - 5 Albums (1987-1996) CD [MP3|320 Kbps] <Electronic, Pop, Chanson, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франсуа Фельдман (р. 23 мая 1958, Париж), французский певец и автор песен. Наибольшего успеха достиг с двумя альбомами: «Une presence» и «Magic’ Boul’vard». Два сингла с первого из этих альбомов - «Les Valses de Vienne» и «Petit Franck» - заняли верхнюю строчку национального хит-парада Франции в 1990 и 1991 годах. «Les Valses de Vienne» по сей день остаётся одной (   Читать дальше...   )Список альбомов:
-1987 - Vivre, Vivre
-1989 - Une Presence
-1991 - Magic' Boul'vard(   Читать дальше...   )Жанр: Electronic, Pop, Chanson, Synth-popПродолжительность: 05:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41790100E5192C1B5518729D6C6658B56753220C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192432   (677142) от 03.05.2018
-
-Вадим Мулерман - Голос Сердца (2007) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Голос сердца (В. Дмитриев - М. Рябинин)
-02. Танго среднерусской полосы (Н. Богословский - М. Львовский)
-03. Детство (В. Шаинский - А. Осипова)
-04. Сердцу не прикажешь (А. Булатов - В. Фельдман , С. Каминский)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F8325C0268F3C67EF26C15C125F72478351E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634969   (676861) от 03.05.2018
-
-Вадим Мулерман и ВИА «Ребята с Арбата» - Золотые хиты (2012) [MP3|320 кб/с]<поп, ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Надоело (Л.Гарин – М.Пляцковский)
-02. Анюта (Б.Ренский – П.Леонидов)
-03. Есть (Д.Тухманов – М.Ножкин)
-04. Детство (В.Шаинский – А.Осипова)(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 01:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6CF8ECC28BC8456EF607D7824F77885DAE293F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223118   (676857) от 03.05.2018
-
-Masterboy - Different Dreams (1994) Polydor [MP3|320 Kbps] <Eurodance, Techno>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Masterboy - немецкая eurodance-группа, образованная в начале 90-х и имевшая значительный успех в Европе, Азии, Океании и Южной Америке в середине 90-х. Они наиболее показательная группа в стиле «high-energy», распространившемуся из данс-клубов на общую арену поп-пузыки. Наиболее известные композиции - Everybody Needs Somebody, I got to give it up, Land of Dreaming, (   Читать дальше...   )01. Waterfall (Intro) 2:59
-02. Different Dreams 6:31
-03. I Got To Give It Up 6:03
-04. Everybody Needs Somebody 6:07(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3E5594B7DD247D2382F606519FDF8A4FB55D3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136231   (676840) от 21.05.2017
-
-Dschinghis Khan - Non-Stop Best Hits (2001) Compilation, Mixed [APE|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dschinghis Khan 03:16
-02. Hadschi Halef Omar 03:09
-03. Rocking Son Of Dschinghis Khan 02:58
-04. Der Verrater 03:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9328BEEA30C39FD5BB12EFF679D013329062E8EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290678   (676589) от 21.03.2019
-
-S.E.X. Appeal - Sexy Boy... Best Of 1999-2018 (2018) [MP3|320 Kbps] <Eurodance, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peeping Tom
-02. Fragile Love
-03. Hanky Spanky
-04. Manga Maniac(   Читать дальше...   )Жанр: Eurodance, ElectroПродолжительность: 01:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF813651BF85A986491AB7CEE7F179E46F2691A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290494   (676584) от 21.03.2019
-
-Maren Morris - Girl (2019) [FLAC|Lossless|tracks + .cue] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl (04:10)
-02. The Feels (03:07)
-03. All My Favorite People (feat. Brothers Osborne) (03:19)
-04. A Song for Everything (03:14)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C37ABB7AF9265267C8271352FD3569AEEB0251
 ```
 
 https://mybot314.ru/tekegram_catalog/

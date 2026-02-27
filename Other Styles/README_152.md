@@ -1,3 +1,61 @@
+###  Публикация: 1334960   (291130) от 31.10.2019
+
+Celtic Woman - The Magic of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Celtic, Female Vocal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Wish You a Merry Christmas (03:26)
+02. Angels We Have Heard On High (04:34)
+03. Do You Hear What I Hear (03:53)
+04. Deck the Halls (02:26)(   Читать дальше...   )Жанр: Folk, Celtic, Female VocalПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3DBD35D93142D98746737AC6E5A8837C176C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262473   (291079) от 17.11.2018
+
+Jean-Michel Jarre - Equinoxe Infinity (2018) [MP3|320 Kbps] <Ambient, New-Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The watchers (Movement 1)
+02. Flying totems (Movement 2)
+03. Robots don’t cry (Movement 3)
+04. All that you leave behind (Movement 4)(   Читать дальше...   )Жанр: Ambient, New-Age, ElectronicПродолжительность: 01:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609C92AB7C8FA956312A47FE860A33E09B633CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262529   (291067) от 17.11.2018
 
 Jean-Michel Jarre - Equinoxe Infinity (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New-Age, Electronic>
@@ -703,61 +761,6 @@ Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Т�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A0A635FF39633118FFB6279E7015B178C338D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335677   (285516) от 03.11.2019
-
-Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Темные судьбы (Music from the Motion Picture) (2019) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terminated (01:28)
-02. My Name Is Dani (03:39)
-03. REV 9 (03:10)
-04. Iron Spike (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D6939C7A2C0C3281DA792B93889F2C0226C079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733667   (285051) от 13.12.2013
-
-Хоббит: Пустошь Смауга / The Hobbit: The Desolation of Smaug (2013) /Special Edition/ by Howard Shore [FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ScoreПродолжительность: 02:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0816EEF795B6DE841DE791E1765C15F71CB329
 ```
 
 https://mybot314.ru/tekegram_catalog/

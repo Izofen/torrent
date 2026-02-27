@@ -1,3 +1,67 @@
+###  Публикация: 1075588   (320109) от 22.11.2016
+
+Ennio Morricone - All The Best (2016) [MP3|320 Kbps] <Instrumental, classical, soundtrack>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel’s Oboe (The Mission) (02:17)
+02. Deborah’s Theme (C’Era Una Volta In America) (04:28)
+03. Il Buono, Il Brutto, Il Cattivo (Il Buono, Il Brutto, Il Cattivo) (02:43)
+04. Gi? La Testa (Gi? La Testa) (04:19)(   Читать дальше...   )Жанр: Instrumental,classical,soundtrackПродолжительность: 01:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF96C0FBC19BC20C48F08ECBAE4105BF35558C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581549   (319520) от 29.11.2012
+
+Two Steps From Hell - Skyworld (2012) [MP3|320 кб/с]<Trailer Music, Epic>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319520.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) All is Hell That Ends Well
+2) Titan Dream
+3) SkyWorld
+4) El Dorado
+5) The End Is The Beginning
+6) All The Kings Horses
+7) Realm Of Power
+8) Winterspell
+9) Blackheart
+10) Juggernaut(   Читать дальше...   )Жанр: Trailer Music, EpicПродолжительность: 01:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C7595C7FC563080FED573C0FE442ED74D06BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958789   (319371) от 23.11.2015
 
 Eloy Fritsch - The Garden of Emotions (2009) [FLAC|image+.cue]<Electronic, Ambient, New Age>
@@ -693,64 +757,6 @@ Karushanti - Silence Meditation (2015) [FLAC|tracks]<New Age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:741A3F6345631820B7313AC73022E08BB9B0D64F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959804   (312406) от 26.11.2015
-
-Deep Forest - Boheme (1995) [FLAC|tracks+.cue]<New Age, Ambient, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anasthasia (1:48)
-02. Bohemian Ballet (5:14)
-03. Marta's Song (4:12)
-04. Gathering (4:38)(   Читать дальше...   )Жанр: New Age, Ambient, FolkПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2476CAC549764D2B3F158A50580B3D02C2F3529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183061   (312332) от 12.11.2017
-
-VA - We Love Latin 2017 (Only Djs Extended Versions) [MP3|320 Kbps] <Latin Dance, Reggaeton, Dancehall>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yero Company – Pa Que Bailes (Original Mix) (feat. Robe) 02:56
-02. DJ Tao – Ona-Nana (Original Mix) 02:25
-03. Danilo Orsini – Con To’ (Extended Mix) (feat. Shainy El Brillante) 05:21
-04. Biou – Suena La Pista Asi (Extended Mix) 05:00(   Читать дальше...   )Жанр: Latin Dance, Reggaeton, DancehallПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0FE15FCED75B7008E26403D6A2F75FFA981D35D
 ```
 
 https://mybot314.ru/tekegram_catalog/

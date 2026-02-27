@@ -1,3 +1,61 @@
+###  Публикация: 1359955   (242786) от 15.02.2020
+
+VA - Moods: A World Of Emotions (2014) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <New Age, Modern Classical, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clannad - Theme From Harry's Game (2:30)
+02. Enigma - Return To Innocence (4:09)
+03. Mike Oldfield - Tubular Bells (4:16)
+04. Ennio Morricone & His Orchestra - Chi Mai (5:07)(   Читать дальше...   )Жанр: New Age, Modern Classical, InstrumentalПродолжительность: 02:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE657B56AE25E4C9E354515B8637D40E5E1E251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615159   (242782) от 25.02.2023
+
+Tanzwut - Silberne Hochzeit (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Neue Deutsche Harte, Folk Metal, Industrial Metal>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_242782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Labyrinth (04:36)
+02. Ihr wolltet Spass (03:41)
+03. Meer (05:02)
+04. Was soll der Teufel im Paradies (04:21)(   Читать дальше...   )Жанр: Neue Deutsche Harte, Folk Metal, Industrial MetalПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C4E84DB129BD9D42065EE252044169333985E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541035   (242694) от 03.04.2022
 
 Hush Money - Industry Standard (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
@@ -686,64 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D5FD8349106D24D05B539BCF7BF5454946ABBE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627910   (238916) от 23.04.2023
-
-Atahualpa - Музыка у метро (2016) 2CD [MP3|320 Kbps] <Native American, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andino [04:24]
-02. Cultivos [05:16]
-03. La Furia y el Condor [06:15]
-04. Pio Pio [04:38](   Читать дальше...   )Жанр: Native American, WorldПродолжительность: 01:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BDF5F38F33D43E4967CA5C37EFE6D66F5D87CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639005   (238475) от 12.06.2023
-
-Tenhi - Valkama (2023) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Progressive Rock, Neo-Classical, Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saattue [00:11:09]
-02. Kesävihanta [00:04:51]
-03. Valkama [00:07:20]
-04. Rintamaan [00:03:34](   Читать дальше...   )Жанр: Nordic Folk, Progressive Rock, Neo-Classical, NeofolkПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0E7087267BD02162C65B48022A1EEFD4C9813D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,205 @@
+###  Публикация: 1612507   (1039841) от 17.02.2023
+
+Beyond The Black - Studio Albums (6 releases) (2015 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beyond the Black — немецкая метал-группа, исполняющая музыку в жанрах симфонический метал / пауэр-метал / альтернативный метал, образованная в 2014 году в Мангейме.2015 - Songs Of Love And Death
+2016 - Lost In Forever
+2019 - Heart of the Hurricane
+2020 - HorizonsЖанр: Symphonic MetalПродолжительность: 05:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5730B564F27F9B2BA76D1724B4318711BF71FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614591   (1038352) от 23.02.2023
+
+Soilwork - Studio Albums (15 releases) (1998 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal; Metalcore/Melodic Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soilwork (англ.) («Земледелие») — шведская группа из Хельсингборга.
+Группа Soilwork была образована в 1996 году и поначалу своей карьеры носила название Inferior Breed. Как объяснил вокалист группы Бьорн Стрид — их саунд в то время находился под влиянием таких известных коллективов как Pantera, Meshuggah и Carcass. В конце 1996 года коллектив поменял название на (   Читать дальше...   )1998 - Steelbath Suicide
+2000 - The Chainheart Machine
+2001 - A Predator's Portrait
+2002 - Natural Born ChaosЖанр: Melodic Death Metal; Metalcore/Melodic Groove MetalПродолжительность: 14:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A848C968B9D76F7EFD0561C5F38E2F3FFE9D44CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614174   (1038302) от 23.02.2023
+
+Пётр Лещенко - Поёт Петр Лещенко 1-4 (1988-1990) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Folk, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038302.jpg" />
+</div>
+
+
+###  Подробнее
+
+..
+A1 Вернулась Снова Ты
+A2 Марфуша
+A3 Не Уходи(   Читать дальше...   )Жанр: шансонПродолжительность: 03:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2FA90A47B2C7627CD93A4D0A9E2F3119EEE91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440918   (1037922) от 20.01.2021
+
+Mark Knopfler - Tracker (2015) [DSD128 2.0|5,6MHz/1bit|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tracker — восьмой сольный студийный альбом британского певца, гитариста и композитора Марка Нопфлера. Альбом выпущен 16 марта 2015 года (в Северной Америке 17 марта).
+
+«Название альбома родилось из моих попыток расставить метки во времени, оглядываясь на людей, места и вещи из моего прошлого. А ещё из трекинга — записи треков в студии», — говорит Нопфлер. Некоторые (   Читать дальше...   )LP1Жанр: RockПродолжительность: 1:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC3415C8A6125F97E81A46578E483192425E70F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615318   (1037822) от 25.02.2023
+
+Christopher Tin - Calling All Dawns (2009) [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <Classical, Folk, World>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странно, но я только совсем недавно, в период подготовки своего двенадцатого сборника, открыл для себя музыку этого американского композитора с китайскими корнями...
+Кристофер Чиян Тин - композитор, который создаёт музыку для фильмов и видеоигр. Его работы в основном оркестровые и хоровые. Кстати говоря, получил две премии Грэмми за альбом, предлагаемый здесь.
+Этника (   Читать дальше...   )Жанр: Classical, Ethnic, WorldПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E25A3186DD1CFEA7D013FB692AF5FF6C82838B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043283   (1037630) от 21.01.2021
+
+E Nomine - Die Prophezeiung (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Monumental Dance, Electronic, Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seit Anbeginn der Zeit... (Intro) (2:21)
+02. Die Verheissung (Interlude) (0:24)
+03. Deine Welt - Album (3:18)
+04. SchwarzerTraum (Interlude) (0:16)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DA59F34912EE8D1C8EF5690DF64319F1EAF82A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615418   (1037581) от 26.02.2023
+
+Catamenia - Studio Albums (10 releases) (1998 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Black Metal, Melodic Death/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Catamenia — финская мелодик-блэк-метал-группа из Оулу. Группа была образована в 1995 году вокалистом Микой Тённингом, гитаристами Рику Хопеакоски и Сампо Уккола, басистом Тимо Лехтиненом, клавишником Хейди Риихинен и барабанщиком Тони Тервоандом.1998 - Halls Of Frozen North
+1999 - Morning Crimson
+2000 - Eternal Winter's Prophecy
+2002 - EskhataЖанр: Melodic Black Metal, Melodic Death/Gothic MetalПродолжительность: 08:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C53D90BBD81CA7A1A40DD2E3D05722F2A0AADC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615691   (1037291) от 27.02.2023
 
 Mist Of Misery - Studio Albums (6 releases) (2013 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Black Metal>
@@ -543,209 +745,6 @@ A4 They'll Get You Anyway = Z Blata Do Louze(   Читать дальше...   )
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21A076D554BE6AE5FAB761F7D08FE619BC73C6FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 203549   (1025347) от 20.03.2021
-
-Manowar - 11 альбомов (1982-2012) (FLAC 2.0|96,192/24|FLAC|VinylRip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy MetalПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CB4D5FCEF9FABD55633CC36D5E82B6B86BD0A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 418304   (1024497) от 25.03.2021
-
-Slade - Nobody's Fools (1976) [DTS 5.1|Tracks (Upmix)]<Glam rock, hard rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody`s Fools (4:40)
-02. Do The Dirty (4:41)
-03. Let`s Call It Quits (3:31)
-04. Pack Up Your Troubles (3:25)(   Читать дальше...   )Жанр: Glam rock, hard rockПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329F801534021C32CD1C9D1D859E5BA766D1E22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339790   (1024479) от 25.03.2021
-
-Gary Moore - Greatest Hits 2CD (2010) [DTS 6.1, 44.1/16|tracks (upmix)]<Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Blues RockФормат: Wave tracksПродолжительность: 02:39:00
-
-Роберт Уильям Гэри Мур (англ. Robert William Gary Moore; 4 апреля 1952, Белфаст, Северная Ирландия — 6 февраля 2011, Эстепона, Испания) — ирландский гитарист, певец, автор песен. Внёс заметный вклад в развитие блюз-рока. С четырнадцати лет играл на стандартных гитарах, то есть для правшей, несмотря на то, что от рождения Гэри — левша.
-Гэри Мур скончался (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456348   (1024470) от 25.03.2021
-
-Metallica - Black album (1991)[LPCM 2.0, DTS-HD MA 5.1, Dolby TrueHD 5.1, 96/24] Blu-ray Audio [Custom] <metal>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metallica — пятый студийный альбом одноимённой американской метал-группы, выпущенный 12 августа 1991 года, также известный как The Black Album «Чёрный альбом».01. Enter Sandman
-02. Sad but True
-03. Holier Than Thou
-04. The Unforgiven(   Читать дальше...   )Жанр: metalПродолжительность: 01:02:48
-Видео: AVC/H.264, 1920×1080 ~ 1 Mbps
-Аудио 1: LPCM 2 ch, 96/24 - 4608 kbps
-Аудио 2: DTS-HD MA 6 ch, 96/24 ~ 9281 kbps(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54E3F5809281254BD0341139633C2B8BEB7C41B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461333   (1021778) от 10.04.2021
-
-Московский Камерный Оркестр. J. S. Bach – Brandenburg Concertos No. 1 in F Major BWV 1046 And No. 5 In D Major BWV 1050 (1981) [FLAC 2.0|192/24|image+.сue] <Classical, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бранденбургский Концерт № 1 Фа Мажор, BWV 1046
-Violino Piccolo – Л. Полеес
-A1 Allegro
-A2 Adagio /  Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4708F9F7766C376C67139FD645986D2FFE5259A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461534   (1021712) от 10.04.2021
-
-Органная музыка. Антонио Вивальди - Времена Года (1984) - Евгения Лисицина (переложение для органа Е. Лисициной) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto E-dur , Op. 8 No.1, RV 269, ''Spring''/ми мажор, RV 269 «Весна»
-A1 Allegro
-A2 Largo
-A3 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5236157746BB91CE3AFF3CE651C42D4B7DFA30AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461738   (1021607) от 11.04.2021
-
-Ивао Судзуки - Гитара (1985) 1970, mono (repress) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021607.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Шесть Пьес Для Лютни
-A2 Павана
-A3 Матацин (Медленный Испанский Танец)
-A4 Прелюдия Из Сюиты №1 Для Виолончели(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21480DE1E677ECB37545423534545BAA5F3B1E58
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1261583   (303128) от 11.11.2018
+
+VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 2 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303128.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pathetique / Nutcracker - Tchaikovsky Romeo ans Juliet - Symphonic Rock Orchestra
+   2. Ave Maria - Bach-Gounod - Orchestra Charles Monet
+   3. Ave Verum – Mozart - Wave's Computer Orchestra
+   4. Waltz in A Flat Major – Brahms - Philharmonics of London(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805C197E0565551272415A2D05EB7A6BAF2035BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960437   (303089) от 30.11.2015
+
+VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Soundtrack>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emmanuelle In The Mirror
+02. Bachelet, Pierre / Emmanuelle Song (French Vocal Version)
+03. Emmanuelle In Thailand
+04. Emmanuelle Steps Out(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E58A7A69521ABB59350F3F15EB7BEAFBF71D437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077697   (302838) от 30.11.2016
 
 VA - Spa Relaxation Ambient Music, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Balearic, Meditation>
@@ -685,64 +743,6 @@ Ultimate Pop Hits and Piano Tribute Players - New Pop Covers on Piano (2019) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F635E249E283F1BEBA6691279DB1A2E9CBECE68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333747   (298731) от 27.10.2019
-
-VA - New Instrumental Ballads vol.2 (2002) [FLAC|Lossless|tracks + .cue]<Instrumental, New Age, Ballads>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Hours - Rain 06:57
-02. Light Orchestra - Ocean Breathe 05:29
-03. Sun Collection - Lounge Bomb 04:45
-04. Andrew Moldon - Clounds 02:52(   Читать дальше...   )Жанр: Instrumental, New Age, BalladsПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C7FF414C35790BC5A3D797749D6C601DD3FA4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261667   (298681) от 13.11.2018
-
-Silent nook - С.О.М.А (2018) [MP3|320 Kbps] <Trip-Hop, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2069
-02. С.О.М.А.
-03. Искренне
-04. Блики(   Читать дальше...   )Жанр: Trip-Hop, AmbientПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA0C09E0D4C15F18E8D98DFF90A1280BE7CAD97
 ```
 
 https://mybot314.ru/tekegram_catalog/

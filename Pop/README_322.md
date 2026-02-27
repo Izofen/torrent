@@ -1,3 +1,286 @@
+###  Публикация: 1823124   (117569) от 10.10.2025
+
+Vanessa Mai - Traumfabrik (2025) [FLAC|Lossless|WEB-DL|tracks] <Schlager, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Himbeerrot (One Kiss) (2:31)
+02. Traumfabrik (2:48)
+03. Küss mich wach (2:58)
+04. Auf freien Feldern (4:02)(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B91ADB2F5BDDE880FF0D0822C20C0D6F830711D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700124   (117425) от 15.02.2024
+
+Jennifer Lopez - This Is Me...Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Me...Now
+02. To Be Yours
+03. Mad in Love
+04. Can't Get Enough(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C0A9F998C710CFFCD4C6854EB64D873D8F33F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700085   (117309) от 16.02.2024
+
+VA - 70s & 80s Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tina Turner - The Best (5:29)
+02. Simply Red - Money's Too Tight (2008 Remaster) (4:12)
+03. Alphaville - Forever Young (3:46)
+04. Pet Shop Boys - Always on My Mind (3:54)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 03:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A61F92C19B9B04CBABC52A6C851E7F656D6BAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699986   (117260) от 16.02.2024
+
+VA - 100 Hits 80s Pop (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dead Or Alive - You Spin Me Round (Like A Record)
+02.  Haircut 100 - Fantastic Day
+03.  Bros - I Owe You Nothing
+04.  Altered Images - Don't Talk To Me About Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77608A39F64296B8CC8F59530820C41D154D187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700004   (117258) от 16.02.2024
+
+Моя Мишель - Наивность,Ч.1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117258.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Стюардесс
+2.Не обещала
+3.СозвездияЖанр: PopПродолжительность: 00:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B29F1DD089DC70139609429CF8EC8B2FBBD51F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699858   (117250) от 16.02.2024
+
+Teach-In - The Best Of The Best (1997) [OGG Vorbis|480 Kbps] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fly Away
+02.  In The Summernight
+03.  Tennessee Town
+04.  Ding-A-Dong(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85162C345E5075C5E7E1ED38B99720E94759FCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700019   (117245) от 16.02.2024
+
+VA - Greatest Ever Decade 90s (2021) 4 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Jazz, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deee-Lite - Groove Is In The Heart
+02.  Simply Red - Stars
+03.  Duran Duran - Ordinary World
+04.  Roxette - Listen To Your Heart(   Читать дальше...   )Жанр: Electronic, Hip Hop, Jazz, RockПродолжительность: 05:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90CBE4A4B2172EF2707C84F2DAEB0A15A4744B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700147   (117202) от 16.02.2024
+
+Мария Ермакова - Мы разбиваемся (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117202.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Мы разбиваемсяЖанр: PopПродолжительность: 00:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F7859FA795686C4551B4C599B208C42FCEA5A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699856   (117201) от 16.02.2024
+
+VA - Driving Songs The Ultimate Collection (2014) 5 CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Iggy Pop - Real Wild Child (Wild One)
+02.  Ocean Colour Scene - The Riverboat Song
+03.  The Hives - Walk Idiot Walk
+04.  Blink 182 - All The Small Things(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 05:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDE6D7AF5279491FF611D2A0A7C36058F480506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700006   (117192) от 16.02.2024
+
+Моя Мишель - Медленная Звезда (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117192.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Медленная ЗвездаЖанр: PopПродолжительность: 00:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7105ED8D63F61CC60C39B0019B8C167A89D2EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699969   (117190) от 16.02.2024
 
 Кватро - Слишком Честно (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -451,296 +734,6 @@ Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:346B7E2318A4B807F6ECD46A4AC2F5688374CC82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702159   (116016) от 23.02.2024
-
-Al Corley - Square Rooms (1984) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Square Rooms (03:42)
-02. Hungry for Your Love (04:13)
-03. Lie Detector (03:31)
-04. One of a Kind (05:33)(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFCEDB3F613904BD03518B1B83BE13269522D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702063   (116005) от 23.02.2024
-
-Elsa Esnoult - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guerrier de l'amour (3:21)
-02. Sauvage (3:04)
-03. Comme une petite fille (2:56)
-04. Avec toi (3:24)(   Читать дальше...   )Жанр: French PopПродолжительность: 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CA993C10B4610C608014102672033ADA6043F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701989   (116001) от 23.02.2024
-
-Наталья Сенчукова - Мама Луна (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дежавю (feat. Виктор Рыбин)
-02. Мама Луна
-03. Я полечу за тобою в Рай
-04. Прочерки(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A49E0B087A74A38C7A762601B59EFA4484DC65C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702019   (115999) от 23.02.2024
-
-Николай Эрденко и ансамбль Джанг - Лучшие цыганские песни (2000) [MP3|320 Kbps] <Folk>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Москва златоглавая 4:05
-02. Пойте, цыгане... 4:14
-03. Дорогой длинною 3:50
-04. Ехали цыгане 1:46(   Читать дальше...   )Жанр: FolkПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76558602654603E9CB02DD5944C2E6FACF766C2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702315   (115876) от 24.02.2024
-
-Аркадий Укупник - The Best (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115876.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Маргаритка
-2. Я на тебе никогда не женюсь
-3. 34 коровы
-4. Петруха (remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED2AC5EBD7478C9EDD1BE2929CC15A26DD26816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702313   (115874) от 24.02.2024
-
-Аркадий Укупник - The Best (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115874.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Маргаритка
-2. Я на тебе никогда не женюсь
-3. 34 коровы
-4. Петруха (remix)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E5CE4EF74C493D1E79AF67259D43720D6160A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702410   (115868) от 24.02.2024
-
-Ирина Дубцова - Новости (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115868.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мама
-2. 16
-3. На мигающий жёлтый
-4. Завтра(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB927B103FC81D3FF16AB5E8F02D599F98537BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702598   (115726) от 25.02.2024
-
-Celine Dion - Courage (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying On My Own
-02. Lovers Never Die
-03. Falling In Love Again
-04. Lying Down(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1A009248BDD02D7730B317A4983E339CFE61C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702150   (115167) от 28.02.2024
-
-Al Corley - Riot of Color (1986) Expanded Edition, 2023, Mercury [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face to Face (04:35)
-02. Havana Blue (04:07)
-03. House of Courage (03:38)
-04. Waste of Time (04:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED303D17DA88437D5863B0B6E0F0289CCC873E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702145   (115164) от 28.02.2024
-
-Al Corley - The Big Picture (1988) Expanded Edition, 2023, Mercury [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Are the Children? (04:34)
-02. My O My (03:48)
-03. Sad Man on a Red Rock (04:01)
-04. Tall Girls (04:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BD06A037BD60C6108F8D9DD36E2124066530F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

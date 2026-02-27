@@ -1,3 +1,61 @@
+###  Публикация: 1260608   (307615) от 09.11.2018
+
+Bernward Koch - Touched by Love (2016) Compilation [FLAC|Lossless|tracks + .cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking through Clouds (2:43)
+ 02. Touched by Love (3:26)
+ 03. Long Way Home (4:15)
+ 04. Back to Myself (3:49)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72AA7E88FBA3EADF0175ADDEDC4C0F8C2BAFF437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333138   (307496) от 23.10.2019
+
+The O'Neill Brothers - Calming Piano for Comfort (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307496.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Meditation 05:18
+2. Remembering When 05:45
+3. Farewell	04:21
+4. Snowflakes 04:15(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49C8E1FE328362F7AF3B7DD9445F62E35ED4EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332992   (307488) от 23.10.2019
 
 Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -699,64 +757,6 @@ VA - Road House (The Original Motion Picture Soundtrack) (1989) [FLAC|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4998A896658F6519A8E85F2AD2CCD946B88EAD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261583   (303128) от 11.11.2018
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 2 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303128.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pathetique / Nutcracker - Tchaikovsky Romeo ans Juliet - Symphonic Rock Orchestra
-   2. Ave Maria - Bach-Gounod - Orchestra Charles Monet
-   3. Ave Verum – Mozart - Wave's Computer Orchestra
-   4. Waltz in A Flat Major – Brahms - Philharmonics of London(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805C197E0565551272415A2D05EB7A6BAF2035BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960437   (303089) от 30.11.2015
-
-VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Soundtrack>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emmanuelle In The Mirror
-02. Bachelet, Pierre / Emmanuelle Song (French Vocal Version)
-03. Emmanuelle In Thailand
-04. Emmanuelle Steps Out(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E58A7A69521ABB59350F3F15EB7BEAFBF71D437
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,507 +1,25 @@
-###  Публикация: 597857   (1000517) от 02.01.2013
+###  Публикация: 1488879   (1001452) от 13.08.2021
 
-[Wallpapers] New 2013 Wallpaper Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000517.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 4
-Название: New 2013 Wallpaper Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0C523ADA2E05EA534D9010EA67B352AE3C0366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597478   (1000516) от 02.01.2013
-
-Davis Coen - Magnolia Land (2009) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tired and Lonesome
-02. Change in the Weather
-03. Anna Ann
-04. Country Girl Blues
-05. Nothing to Hold on To
-06. Eyes Like Diamonds
-07. Goin' Away Baby
-08. Wrong Side of Town
-09. Natchez Burning
-10. Shake Your Goobie(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597850   (1000515) от 02.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000515.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 1
-Название: New 2013 Wallpaper Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 3000х2000
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392B0D62C82E7BC2E76987577CBE22F1A6C7FCE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597774   (1000513) от 02.01.2013
-
-Best HD Wallpapers Pack (02.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5FD6C3EA1264FB8EB6726B493D7AD7586A412E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597467   (1000512) от 02.01.2013
-
-Best HD Wallpapers Pack (01.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500DC75BE9F74710D5D2E2484A2792FE38DDB064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597858   (1000511) от 02.01.2013
-
-[Wallpapers] New 2013 Wallpaper Pack 5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000511.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Wallpaper Pack 5
-Название: New 2013 Wallpaper Pack 5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1800x1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B764E5BBA8005D2E2134FCBD00358CBDF959DDA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596803   (1000510) от 02.01.2013
-
-Bad City - Welcome To The Wasteland (2010) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Showdown In Central Park
-02.  Take Me For A Ride
-03.  Do You Believe In Rock N Roll
-04.  Wildlife
-05.  Fire In The Pouring Rain
-06.  Call Pall Stanley
-07.  Heatwave
-08.  Look Out!
-09.  Touch
-10.  Straight To The GraveЖанр: Hard RockПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9E31AA9E193D1209F9FF9873A64CFD968F687E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597515   (1000508) от 02.01.2013
-
-[Wallpapers] Cars Wallpapers №8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои машин для рабочего столаРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6664D738FFEBD6E6A10D2B73CCB2075F7BB7CD11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597827   (1000507) от 02.01.2013
-
-[Wallpapers] Compilation of anime Pack 1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000507.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Compilation of anime Pack 1
-Название: Compilation of anime Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 5000х3000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00 до 5 сидов
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682827BBA380141EA8DE79AE19DAAD1D92028F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597386   (1000505) от 02.01.2013
-
-VA - Citrine. My Dream Beautiful Yellow Crystal (2005) [MP3|320 кб/с]<New age, Instrumental>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000505.jpg" />
-</div>
-
-
-###  Подробнее
-
-(07:03) 1. The feeling of yellow crystal
-(06:52) 2. The buddist of the yellow crystal
-(06:06) 3. The yellow crystal inspiration
-(06:43) 4. The propitious yellow crystal
-(12:39) 5. The full clean moon of yellow crystal
-(07:27) 6. The shine of yellow crystal yellow crystal
-(06:30) 7. My dream beautiful yellow crystalЖанр: New age, InstrumentalПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F888D12ECCB9ECB07ED007E2DFB3330DB16DD9D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597810   (1000503) от 02.01.2013
-
-Журнал | Rolling Wheels №1 [январь-февраль 2013] [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rolling Wheels – единственный на сегодняшний день российский глянцевый журнал, посвященный ретро-автомобилям, военной технике и мотоциклам. Основная тема Rolling Wheels - классические автомобили, начиная с самых первых и закачивая теми, что были выпущены до нефтяного кризиса 1974 года. Эпоха, когда Автомобиль был не просто средством передвижения, напичканным гаджетами, эпоха, когда у Автомобиля была душа. Помимо гражданских машин, немалый объем в Rolling Wheels занимает военная техника, а также военная история.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8133C85C701BBAB7A1D6FA739F667ACEC48330C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596864   (1000501) от 02.01.2013
-
-Mondo Generator - Hell Comes To Your Heart (2012) [MP3|320 кб/с]<Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dead Silence [02:23]
-02 The Way I Let You Down [03:05]
-03 Burn The Bridge [03:38]
-04 Wont Let Go [03:59]
-05 Like The Sky [03:04]
-06 This Isn't Love [02:51]
-07 The Dirt Beneath [02:56]
-08 Hang 'em High [03:11]
-09 Central Nervous System High School [02:47]
-10 Smashed Apart [03:14](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9699EA45169E44ECB68BF98097C004C2DFB33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597359   (1000499) от 02.01.2013
-
-Призванные / Recalled / Allegiance (2012) BDRip [720p] [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000499.jpg" />
-</div>
-
-
-###  Подробнее
-
-После предоставления сомнительных сведений, которые позволили бы ему остаться в пределах США, в то время как его подразделение национальной гвардии развертывается для дислоцирования в Ираке, лейтенант Дэнни Сефтон (Seth Gabel) становится втянутым в последний момент перед отправкой в историю с самоволкой одного из своих солдат (Bow Wow), что вынуждает Сефтона сделать нелегкий выбор между лояльностью к беглому солдату, патриотическим долгом и его семьей...Жанр: ТриллерРежиссер: Майкл КоннорсАктеры: Эйдан Куинн, Бау Вау, Сет Гейбл, Пабло Шрайбер, Закари БутПеревод: ОтсутствуетПродолжительность: 01:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C3BFF78455F0FEF6B62273A7D25BF601690ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596855   (1000498) от 02.01.2013
-
-Jonestown Revival - Brand New Dad (2012) [MP3|320 кб/с]<Psychedelic Jazz / Progressive Rock / Mathcore>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dad Returns 00:51
-2. Eastern McFeaster 04:01
-3. The Infinite Doughnut 03:25
-4. Soul Claw 04:34
-5. Beef Storm 04:02
-6. Planet of the Crepes 06:15
-7. Simon and Dark Uncle 02:04
-8. Mark Hamill/ Hittler, PA 02:59
-9. Celine Dijon 03:00
-10. Brand New Dad 03:04Жанр: Psychedelic Jazz / Progressive Rock / MathcoreПродолжительность: 00:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024886525E8D60EB379FDCFB31FED31A549D79AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597546   (1000495) от 02.01.2013
-
-Возвращение скрипки (1973) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000495.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам повести азербайджанского писателя Ф. Агаева "Скрипка Паганини".
-История спасения школьниками скрипки Страдивари в годы Великой Отечественной войны.Жанр: Детский, Военный, ПриключенияРежиссер: Шамиль МахмудбековАктеры: Павел Кадочников, Олев Эскола, Иван Косых, Павел Винник, Алла Панова,
- Нина Меньшикова, Шахмар Алекперов, Геннадий Юхтин, Николай Бармин, Сергей ЮртайкинПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258A1B7170365B2648CB303CA03C167A896D64D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597394   (1000492) от 02.01.2013
-
-Process Lasso Pro 6.0.2.32 [Rus/Eng] RePack/Portable by D!akov
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows, по умолчанию, позволяет программам полностью загружать центральный процессор, что ведет к зависанию системы и, соответственно, к неудобству работы. Технология ProBalance (Process Balance) программы Process Lasso аккуратно перераспределяет приоритеты запущенных программ, так что процессы, которые ранее загружали весь центральный процессор, больше не будут влиять на отклик системы. Process Lasso поможет вам полностью контролировать то, как процессор распределяет ресурсы программам. Вы можете выбрать приоритетные процессы и какие процессоры будут отвечать за них. Вы можете запретить запуск некоторых программ, запустить все программы, автоматически перезапускать программы, ограничить количество копий программы, которые можно запускать и многое другое. Режим для игр позволит переключать все ресурсы компьютера на процесс игры. Кроме этого, программа позволяет вести статистику запущенных процессов.Название программы: Process Lasso ProЯзык интерфейса: Rus|Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597078   (1000491) от 02.01.2013
-
-VA - Best Of Lounge Music (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+VA - City Marathon: Music For Running (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Electro>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000491.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. B Van E - I Need You (Cut N Glue Chillout & Lounge Mix)
-02. Sky And Sand - Sunset (Comfort Version)
-03. Cazintel - Aliens in Love (Air Play Version)
-04. Mister Paul - You Don't Know (Vocal Exclusive Mix)
-05. Wine & Dine - Why Are We Here (Original Mix)
-06. Miguel Lando - Sylt (Exclusive Remaster Version)
-07. Muner DJ - This Is My Dream (Original Performant Mix)
-08. Exit Mars - Gliding (Exclusive Mix)
-09. Collective Sound Members - Fast Features
-10. Maurice Scoville - Perfect Day (Comfort Version)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 04:46:06
+001. DJ Riddler - Riddle Me This
+002. Killshot & The Straikerz - Here We Go Again
+003. Bicipay feat Yumi - Dance All Day
+004. Hypnose - You & Me(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, ElectroПродолжительность: 09:15:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D8A8EDF27ED48FD3850C070CF53818643072687
+magnet:?xt=urn:btih:1A45BCAA09B58FD134D457F432AC407741645125
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,57 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597263   (1000490) от 02.01.2013
+###  Публикация: 1488938   (1001451) от 13.08.2021
 
-VA - The Heart of Crystal. Prajna Paramita Sutra (2006) [MP3|320 кб/с]<New age, Relax, Meditative>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000490.jpg" />
-</div>
-
-
-###  Подробнее
-
-(14:22) 1. Prajna Paramita Heart Sutra
-(14:53) 2. Guanyinshan inspired song
-(05:40) 3. Sound of Buddha
-(06:02) 4. Flower Chan
-(07:23) 5. Om Mani Padme Hum
-(10:40) 6. Yoji water purification
-(10:55) 7. Auspicious actionsЖанр: New age, Relax, MeditativeПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE1E561192D04E02F4B3AEA7995012135F0C519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597374   (1000487) от 02.01.2013
-
-Призванные / Recalled / Allegiance (2012) BDRip [EN]
+Paleowolf - Cenozoic (2021) Prometheus Studio [FLAC|Lossless|WEB-DL|tracks] <Tribal, Dark Ambient>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000487.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После предоставления сомнительных сведений, которые позволили бы ему остаться в пределах США, в то время как его подразделение национальной гвардии развертывается для дислоцирования в Ираке, лейтенант Дэнни Сефтон (Seth Gabel) становится втянутым в последний момент перед отправкой в историю с самоволкой одного из своих солдат (Bow Wow), что вынуждает Сефтона сделать нелегкий выбор между лояльностью к беглому солдату, патриотическим долгом и его семьей...Жанр: ТриллерРежиссер: Майкл КоннорсАктеры: Эйдан Куинн, Бау Вау, Сет Гейбл, Пабло Шрайбер, Закари БутПеревод: ОтсутствуетПродолжительность: 01:31:04
+01. Entelodon (03:58)
+ 02. Sivatherium (06:36)
+ 03. Deinotherium (06:10)
+ 04. Paraceratherium (06:03)(   Читать дальше...   )Жанр: Tribal, Dark AmbientПродолжительность: 00:56:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC237667A4E0C0F8B4741C69F85A5F814A7BF7F8
+magnet:?xt=urn:btih:5754E7D514FC1B057A09556FF1C4361E5C4F020A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,31 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597393   (1000486) от 02.01.2013
+###  Публикация: 1488935   (1001450) от 13.08.2021
 
-VA - Rose Quartz. The Rose Quartz Of Buddist (2005) [MP3|320 кб/с]<New age, Instrumental>
+VA - EDM Crazy Night Music Party (2021) [MP3|320 Kbps] <EDM, Pop Dance, Dance House>
 
->>East Asian Music
->>Other Asian
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000486.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(07:57) 1. The beauty of pink crystal
-(06:38) 2. I love pink crystal music
-(04:53) 3. Pink crystal. Please let me have it
-(05:39) 4. Clean elegant pink crystal
-(12:47) 5. The hope of crystal
-(06:38) 6. The pink crystal of buddist
-(05:43) 7. The happy pink crystalЖанр: New age, InstrumentalПродолжительность: 00:50:15
+001. Felix Harrer, Jay Frog - Your Lies
+002. Gigi D'agostino - The Love Do Do
+003. Tiesto & Becky Hill - Nothing Really Matters
+004. Allan Mcluhan - Acid Theory(   Читать дальше...   )Жанр: EDM, Pop Dance, Dance HouseПродолжительность: 09:26:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0CD60B37100EDE7B66F5A0D74848FA6B96DB1CC
+magnet:?xt=urn:btih:113F68D05B43EA09B174E585857BF55B94EC2C04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,29 +85,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597117   (1000485) от 02.01.2013
+###  Публикация: 1489002   (1001449) от 13.08.2021
 
-VA - Crystal Avolokitesvara (2006) [MP3|320 кб/с]<New age, Relax>
+Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] BDRip 1080p 10-bit raw
 
->>East Asian Music
->>Other Asian
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000485.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(15:07) 1. Namo Avolokitesvara
-(15:34) 2. Avolokitesvara water purification
-(15:33) 3. Flower of Avolokitesvara
-(15:27) 4. Crystal Avoloitesvara
-(11:54) 5. Great MercyЖанр: New age, RelaxПродолжительность: 01:13:35
+В средней школе команда питчера Ёми Такэды не смогла далеко продвинуться в чемпионате по бейсболу, так как у кэтчера не получалось поймать коронную «волшебную подачу» Ёми. Девочка решила бросить бейсбол и поступила в старшую школу Синкосигая, где даже не было собственной команды. Но оказалось, что в этой школе учится Тамаки Ямадзаки — подруга детства Ёми, вместе (   Читать дальше...   )Производство: Студия Studio A-CATЖанр: повседневность, спортРежиссер: Фукусима ТосинориПеревод: официальный (Wakanim)
+(дехардсабЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7F7B8F941050A8E9673C32CEB74B0E3A8FA36E1
+magnet:?xt=urn:btih:04EDAC7A31EE11EFB0DBBEE54FBB2C80A14A31EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,29 +112,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597854   (1000482) от 02.01.2013
+###  Публикация: 1488424   (1001448) от 13.08.2021
 
-[Wallpapers] New 2013 Wallpaper Pack 3
+Sweetmouth Featuring Brian Kennedy - Goodbye To Songtown (1991) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001448.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dangerous
+A2 Home To Heartache
+A3 I Know Why The Willow Weeps
+A4 Forgiveness(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488881   (1001447) от 13.08.2021
+
+Наталья Лапина - В твоей постели (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В твоей постели (4:14)
+ 02. Сигаретка (4:58)
+ 03. Под небом пьяным (3:33)
+ 04. В Питере дождь (4:41)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488734   (1001446) от 13.08.2021
+
+Семейка Грин в городе / Big City Greens (2018) WEBRip [H.264/1080p-LQ] (Сезон 1, Серии 1-30 из 30)
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь неугомонного школьника Крикета Грина неожиданно меняется, когда его семья решает переехать из деревни в мегаполис к бабуле Элис. В Большом городе Крикету, его старшей сестре Тилли и их отцу Биллу предстоит попасть не в одну забавную переделку, пережить множество захватывающих приключений и, конечно, найти новых друзей.Производство: США, Корея Южная, Walt Disney Television AnimationЖанр: Комедия, Минисериал, ПриключенияРежиссер: Крис Хотон, Моника Рэй, Мэтт Брэли, Тиффани Форд, Шэйн Хотон , Наташа КлайнАктеры: Александр Матвеев, Анастасия Жаркова, Александр Хорлин, Антон СавенковПеревод: Дублированный (Кириллица)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488809   (1001445) от 13.08.2021
+
+VA - Extreme Cardio Dance Songs for Fitness & Workout (2021) [MP3|320 Kbps] <House, Dance>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Hush - Ring the Alarm (Fitness Version 128 Bpm) (04:00)
+02. Axel Force - Get Ready (Fitness Version 128 Bpm) (04:00)
+03. DJ Kee - Get Your Hands Up (Fitness Version 128 Bpm) (03:45)
+04. DJ Hush - Go Hard (Fitness Version 128 Bpm) (04:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488982   (1001444) от 13.08.2021
+
+CoolUtils Total PDF Converter 6.1.0.278 RePack (& portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000482.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] New 2013 Wallpaper Pack 3
-Название: New 2013 Wallpaper Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTML, Text, CSV или изображения (TIFF, JPEG, BMP, GIF, WMF, EMF, PNG).Преимущество этой утилиты в том, что Total PDF Сonverter преобразовывает как отдельный файл, так и множество PDF файлов одновременно. Вам больше не нужен дорогой Adobe Acrobat, наш конвертер сэкономит Ваши деньги. Зарегистрированные пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5151203979AC67FC118FE1160B157A3C7273E4D
+magnet:?xt=urn:btih:D8E5D633132036E33E87A035C14D961D7E348FD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,31 +251,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597460   (1000477) от 02.01.2013
+###  Публикация: 1488861   (1001443) от 13.08.2021
 
-Mechina - Empyrean (2013) [MP3|320 кб/с]<Industrial Death Metal / Cyber Metal / Atmospheric>
+Microsoft Edge 92.0.902.73 [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000477.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aporia (1:18)
- 02. Asterion (3:34)
- 03. Interregnum (5:41)
- 04. Imperialus (3:18)
- 05. Anathema (5:23)
- 06. Catechism (5:47)
- 07.Жанр: Industrial Death Metal / Cyber Metal / Atmospheric||Формат: MP3||Продолжительность: 00:49:25
+Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E258DDEBD98A09C9F7EB931F41BCD6D9C033BB44
+magnet:?xt=urn:btih:7D8F99841E67947FDE90A215679FFBA69B48D241
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,25 +277,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597229   (1000476) от 02.01.2013
+###  Публикация: 1488937   (1001442) от 13.08.2021
 
-Боаз Якин, Даг Миро, Карло Бернард, Джордан Мехнер | Принц Персии. Пески Времени [2010] [FB2]
+VA - Music News vol.122 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000476.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Давным-давно в Персии правил мудрый и справедливый царь. Звали его Шараман. Было у него двое сыновей, но в мечтах своих Шараман видел рядом с собой сына, который будет любить и ценить его, не питая надежд на престол. Поэтому однажды Шараман усыновил уличного мальчишку Дастана. Мальчик вырос и стал одним из принцев Персии. Но юноша еще не подозревал, какие испытания приготовила для него судьба.Формат: FB2
+001. Любятинка & Рома Штайн - Набери (03:11)
+ 002. Adam Maniac & Jaral - Пьяный Без Вина (02:26)
+ 003. AJ Tracey & T-Pain - Summertime Shootout (03:39)
+ 004. Akcent & Midi Culture - Kylie (Remix) (02:36)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:36:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4126E0E825F8195EC832C7653F802486C26A4B2C
+magnet:?xt=urn:btih:5D8C50078A1CCAA8C83A2D811C275CDA366A2A22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,25 +306,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597421   (1000474) от 02.01.2013
+###  Публикация: 1488840   (1001441) от 13.08.2021
 
-М.Г. Коляда | Человек: рекорды, достижения, увлечения [2011] [PDF]
+uJAM - Virtual Drummer BRUTE 2.1.1 VSTi, AAX (x64) [En]
 
->>Научная и техническая литература
->>Научно-популярная литература
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000474.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге вы найдете увлекательную информацию о разнообразных достижениях человека. Читайте истории о силачах и долгожителях, вундеркиндах и рекордсменах, людях с феноменальными способностями и прочих выдающихся представителях человечества — и удивляйтесь!Формат: PDF
+Для стилей рок, гранж, панк и кроссовер.
+Современные тяжелые музыкальные жанры, основанные на очень специфическом стиле игры на барабанах: громкие, дикие, резкие и пронизывающие микс. И звуки барабанов, и игра основаны на эстетике, изобретенной около двух десятилетий назад. Virtual Drummer BRUTE предлагает основные звуки и стили от Grunge до NuMetal.
+В двух словах: (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB5ED7D3A1C47B2ABAF9C15F34E44A48F4C80246
+magnet:?xt=urn:btih:5D4073D38B8CBAE8F7C161EE7BF2DCB35D73A8F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -743,27 +334,373 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597503   (1000473) от 02.01.2013
+###  Публикация: 1488980   (1001440) от 13.08.2021
 
-Seventh Wonder - The Great Escape  (2011) / Japanese Edition / [FLAC|Lossless]<Progressive Metal>
+AlterPDF Pro 5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000473.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wiseman  (05:43)
-02. Alley Cat  (06:08)
-03. The Angelmaker  (08:31)
-04. King Of Whitewater (07:37)
-05. Long Way Home (04:26)
-06. Move On Through (05:06)
-07. The Great Escape (30:12)Жанр: Progressive MetalПродолжительность: 01:14:42
+AlterPDF Pro - программа может стать лёгким программным решением для всех ваших потребностей в работе с PDF файлами. PDF файлы известны своей универсальностью, они заменили большинству пользователей изображения, текстовые файлы и прочие другие форматы, в них отпала необходимость. Проблема PDF заключается в том, что для работы с этими документами нужен специализированный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB828DCF21ABEBBDFE8FED3998EB351EB1A5D9AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488996   (1001439) от 13.08.2021
+
+Side FX, Marc Tucker | Houdini 15 Masterclass Material Stylesheets (2016) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный мастер-класс от разработчика мирового лидера в сфере CG - компании SideFX.
+
+Таблицы стилей материалов, новый инструмент Houdini 15, обеспечивают мощный и гибкий новый способ присвоения материалов в Mantra. Этот мастер-класс подробно объясняет то, как использовать таблицы стилей для описания внешнего вида объектов, геометрии, упакованных примитивов и толпы. (   Читать дальше...   )Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A085BE9AD4F5DEAB1B962306AD8D23ED51E79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488868   (1001438) от 13.08.2021
+
+VA - Beatport Tech House: Sound Pack #330 (2021) [MP3|320 Kbps] <Tech House, Electro, Minimal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001438.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Barreto - Active Body
+002. Thomas Will - Pounding
+003. Jay Tripwire - Requires Sacrifice
+004. Alejandro Mnml - Low Frequency(   Читать дальше...   )Жанр: Tech House, Electro, Minimal HouseПродолжительность: 11:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEA3DCB607F3801E6C93EFD8E5771781B3B4193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488710   (1001437) от 13.08.2021
+
+BBC. Тигры: Охота на браконьеров / Tigers: Hunting the Traffickers (The Natural World s38e6) (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экс-морпех идет по следу вооруженных браконьеров, торгующих тиграми. Остросюжетный документальный триллерПроизводство: Великобритания, Grain Media, British Broadcasting Corporation (BBC)Жанр: Документальный, природа, фаунаРежиссер: Лаура УорнерПеревод: Двуголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B136C8512C9777107E1D239F4C3F42EAC4F8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488997   (1001436) от 13.08.2021
+
+Side FX, Jeff Wagner | Houdini 15 Masterclass Loops (2016) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001436.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Houdini 15 был представлен новый способ работы с циклами в VOP и SOP-нодах, именно о нем и будет рассказано в этом мастер-классе. Благодаря новым конструкциям выполнения цикла, те эффекты, для создания которых был необходим значительный объем технических знаний, теперь можно получить меньшими усилиями с помощью нод Foreach SOP.Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C35FC025F21FBFC02F06506CFF7C66B4AB07703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489010   (1001435) от 13.08.2021
+
+Calibre 5.25.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9701BCBDB7DA02E5BE067F04529C488250AF4BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488987   (1001434) от 13.08.2021
+
+GPU Caps Viewer 1.52.0.0 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001434.jpg" />
+</div>
+
+
+###  Подробнее
+
+GPU Caps Viewer - информационная утилита, позволяющая получить информацию о графической карте, провести несколько OpenGL и OpenCL тестов и вести мониторинг различных параметров GPU карт в реальном времени. Программа отображает OpenGL, OpenCL и CUDA информацию для всех графических карт имеющихся в системе, а также предлагает GPU мониторинг карт NVIDIA GeForce и AMD (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7724B4B39FA56599515D1953D19E1F7685005E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488741   (1001433) от 13.08.2021
+
+Dash Berlin - The New Daylight (The Remixes) Part 1-2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Progressive Trance, Tech Trance>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Till The Sky Falls Down (Andrew Rayel Remix) (3:53)
+02. Man On The Run (feat. Cerf, Mitiska & Jaren) (WHITENO1SE Remix) (3:39)
+03. Waiting (feat. Emma Hewitt) (W&W Remix) (4:26)
+04. Till The Sky Falls Down (DJ Isaac Remix) (2:34)(   Читать дальше...   )Жанр: Progressive House, Progressive Trance, Tech Trance |Продолжительность: 00:56:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488853   (1001432) от 13.08.2021
+
+VA - Actual Tech House Session (2021) [MP3|320 Kbps] <Club, Dance, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001432.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Timmy Regisford - Dede (Groove Mix)
+002. Dott. Santafeo - Architeuthis
+003. Batti Seven - Nébular
+004. Tech House - One Soul(   Читать дальше...   )Жанр: Club, Dance, Tech HouseПродолжительность: 10:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21AEDB1EAE84C813074DA1E72212096977E4F72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488753   (1001431) от 13.08.2021
+
+CG Academy, Borislav Petrov “Bobo” | MaxScript Fundamentalis 1-2 Advanced (2003) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001431.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данных уроках показаны основы программирования в среде 3ds max с помощью языка MaxScriptПроизводство: CG AcademyЖанр: Создание видеоЯзык озвучки: РусскийПродолжительность: 11:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5A69A263111206E16066D21A46C46E6096E2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488762   (1001430) от 13.08.2021
+
+Side FX, Andreas Glad | Flowmaps Houdini for games (2017) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001430.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы научитесь создавать карты потоков с помощью нового инструмента Flow Map в Houdini. Вы увидите, как геометрия земли может контролировать скорость в карте, контроль кривых, а также как вручную можно влиять на карты, чтобы настраивать их более точно. Затем мы экспортируем геометрию, запечем карту потока и создадим русло реки в Unreal Engine.Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBB041A20EE9688B062C2EDB2C5B36D05EC7CB05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488877   (1001429) от 13.08.2021
+
+Natsume Yuujinchou: Ishi Okoshi to Ayashiki Raihousha | Тетрадь дружбы Нацумэ: Пробуждение камня и подозрительный посетитель [2021, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001429.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой части фильма Нацумэ, разыскивая своего сэнсея, почему-то убежавшего из дома (впрочем, все коты очень своевольны), встречает маленького ёкая и помогает ему исполнить его долг – пробудить духа, покоящегося в скрытом каменном святилище. Задача осложняется тем, что по пути встречается немало конкурентов, желающих добраться до каменного святилища первыми, и среди (   Читать дальше...   )Производство: Студия Shuka / 朱夏Жанр: приключения, фэнтезиРежиссер: Омори ТакахироПеревод: AnimeJoyЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 55 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956B6E34169CE1D68F4E65B1E8FC355BA29C15BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488880   (1001428) от 13.08.2021
+
+VA - Comfort Zone: Rap Compilation (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001428.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cloudchord - Bright Beginning
+002. Lil Jgo - What You Know About Us
+003. Timeless Beats - Say What
+004. Spax & Brisk Fingaz - Dysbalance(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 10:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ECCCEAC0865F485550D1F30C8CBD04631891189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488813   (1001427) от 13.08.2021
+
+Notepad++ 8.1.3 Final + Portable [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте Scintilla (очень мощном компоненте для редактирования) написанном на C++ с использованием только Win32 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash

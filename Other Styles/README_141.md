@@ -1,3 +1,61 @@
+###  Публикация: 1577511   (348057) от 22.09.2022
+
+TagTräumer (TagTraumer) - Zuviel ist nicht genug (2001) Remaster, 2018, West 7 [FLAC|Lossless|WEB-DL|tracks] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_348057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tausend Tage [00:03:46]
+02. Ich vermisse dich [00:03:46]
+03. Träumen und Hoffen [00:03:40]
+04. Für immer [00:03:22](   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3176370123033E80338BD31D00354C21AEAF65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577625   (347762) от 22.09.2022
+
+Paul Mauriat - Sayonara Concert (2003) [OGG Vorbis|484 Kbps] <Pop, Classical, Stage & Screen>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Race
+02. My Heart Will Go On
+03. Invitation To The Dance
+04. Etude In A New Form(   Читать дальше...   )Жанр: Pop, Classical, Stage & ScreenПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536BBE896BE4ECB9FF36D4F6FB7E849079077ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073046   (347512) от 15.11.2016
 
 Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Soundtrack from the Netflix Original Series) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -692,64 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95CED7840C080661537127A26D01C9249CA09051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180277   (341973) от 03.11.2017
-
-ERA - The 7th Sword (2017) [MP3|320 Kbps] <New-Age, Ethereal>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricane 03:16
-02. 7 Seconds 04:03
-03. Kilimandjaro (Brian Levi Remix) 03:59
-04. Ameno (The City Remix) 03:35(   Читать дальше...   )Жанр: New-Age, EtherealПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE98FF839B744A95A057E4B70B8BB5E940F81A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330298   (341283) от 10.10.2019
-
-VA - Modern Sound Orchestras - Morning Has Broken (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Has Broken (3:36)
-02. Always On My Mind (3:51)
-03. Bright Eyes (3:40)
-04. Moon At Noon (3:52)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976D8FAF52FDDC1A4258C5A34461384E7AD5208B
 ```
 
 https://mybot314.ru/tekegram_catalog/

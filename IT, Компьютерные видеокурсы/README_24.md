@@ -1,3 +1,32 @@
+###  Публикация: 1483228   (1006958) от 12.07.2021
+
+Coding With Mitch, Mitch Tabian | Kotlin Multiplatform Mobile  (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как использовать Kotlin Multiplatform Mobile (KMM) для создания клиента Android и клиента iOS с общей базой кода Kotlin.
+Общие компоненты
+Ktor (сетевой клиент)
+SQL Delight (клиент кэширования)(   Читать дальше...   )Производство: CodingWithMitchЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 10:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB243F90E67C91710F49DE6793A04391A63C0963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483384   (1006814) от 13.07.2021
 
 Udemy, Trevor Sawler | Building Modern Web Applications with Go (Golang)  (2021) PCRec [En / En Sub]
@@ -679,32 +708,6 @@ Udemy, Jason Cannon | Linux Shell Scripting: A Project-Based Approach to Learnin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94E67BBA311807301963DEB911E56A3873BC220E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350066   (1003631) от 04.01.2020
-
-OTUS | Web-разработчик на Python (2019) PCRec [H.264]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс предназначен для подготовки специалиста, который сможет не только решать рядовые задачи бекенд-разработки, но и сделать с нуля современную фронтенд часть.Жанр: Программироание, PythonПродолжительность: 62:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A316DAD4A4D0A5A93E8EE9FF95D5A70D52C2408
 ```
 
 https://mybot314.ru/tekegram_catalog/

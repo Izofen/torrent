@@ -1,3 +1,32 @@
+###  Публикация: 1563790   (502598) от 16.07.2022
+
+UB40 feat. Ali Campbell & Astro - Unprecedented (2022) [FLAC|Lossless|image + .cue] <Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Have I Done
+02. We'll Never Find Another Love
+03. Unprecedented
+04. Sunday Morning Coming Down(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCAD409E61DEC1487FFBF793251ACC87F2E96BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936132   (493442) от 12.09.2015
 
 25/17 - Пар (2015) EP [MP3|320 кб/с]<Rap-Rock>
@@ -722,35 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8B5A9355E2D27D49E40DEA9AF30C1452B89D397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060655   (453220) от 08.10.2016
-
-Apollo Brown & Skyzoo - The Easy Truth (2016) [FLAC|Lossless|tracks] <Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soapbox (0:50)
-02. One In The Same (Feat. Patty Crash) (3:54)
-03. Jordans & A Gold Chain (2:48)
-04. A Couple Dollars (Feat. Joell Ortiz) (4:44)(   Читать дальше...   )Производство: Mello Music Group – MMG-00094-2Жанр: Hip HopПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63A53EA45F59F78D715781A6E11B35CE21A4F995
 ```
 
 https://mybot314.ru/tekegram_catalog/

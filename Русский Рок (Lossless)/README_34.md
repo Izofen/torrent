@@ -1,3 +1,32 @@
+###  Публикация: 1328470   (363373) от 30.09.2019
+
+Александр Пушной - Live Б2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363373.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. СБТП
+2. Берёза
+3. Рябина
+4. Поранья(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1005465140CFC9EE7AE9150EB2227DBA5EA7CDAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417106   (363201) от 18.10.2020
 
 LosiKenguru - ВЫше норМЫ (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock, Pop>
@@ -720,35 +749,6 @@ On-The-Go - Origins (2016) Digipak CD Edition [FLAC|Lossless|tracks + .cue] <Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84957FB1E1BA02ADAEC81347D9C94A6B4028030D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953408   (349559) от 04.11.2015
-
-Ва-Банкъ - Игроки и шпионы (2005) [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Голодные пули
-02. Игроки и шпионы
-03. Радиодыры
-04. Их много(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E793C0D001D675B5B87FEA8D4960A48FADB208C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 864449   (961826) от 24.01.2016
+
+Of Monsters And Men - 3 Albums, 4 EP & singles (2011-2015) [MP3|320 кб/с]<Indie, Alternative Rock, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Paws (04:26)
+02. King and Lionheart (04:35)
+03. Numb Bears (02:45)
+04. Sloom (04:42)(   Читать дальше...   )Жанр: Indie, Alternative Rock, FolkПродолжительность: 03:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298A5602832D008461627A5F28FFFF93504DAF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360045   (961806) от 14.02.2020
+
+Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (Original Motion Picture Score) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961806.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:54| 01. Flying High (Birds of Prey)
+|01:32| 02. The Fantabulous Emancipation Explosion
+|03:06| 03. Harley Quinn (Danger Danger)
+|02:16| 04. Birds of Prey(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EAB3CEFF9D4A7D6553295F154AA6AFA8263C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360243   (961792) от 14.02.2020
 
 Tom Holkenborg - Sonic the Hedgehog / Соник в кино (Music from the Motion Picture) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -696,64 +754,6 @@ Andrew Lockington - The Kindness of Strangers / Реальная любовь в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80C157CEFAFE70203CA54BA3219542C7E06F7110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361024   (955629) от 19.02.2020
-
-Sergio Santini - Love to the Piano (2017) [MP3|320 Kbps] <Instrumental, Classical, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Life (5:19)
-02. Love to the Piano (4:22)
-03. Feeling (4:48)
-04. Last Hope (7:02)(   Читать дальше...   )Жанр: Instrumental, Classical, PianoПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8155E48AD8B0EA739E926CE28D74ABBF13C64B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361026   (955601) от 19.02.2020
-
-Carl Davis & Philharmonia Orchestra - Abba for Orchestra (2014) [MP3|320 Kbps] <Instrumental, Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (3:50)
-02. Voulez-vous (4:35)
-03. Super Trouper (4:34)
-04. Money, Money, Money (3:10)(   Читать дальше...   )Жанр: Instrumental, ClassicalПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0AC9AF06FE61081FB89A938814C5EC3DDFCA47
 ```
 
 https://mybot314.ru/tekegram_catalog/

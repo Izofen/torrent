@@ -1,3 +1,32 @@
+###  Публикация: 1008619   (815925) от 18.04.2016
+
+VA - Riviera Jazz Lougin (2016) [MP3|320 кб/с] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristiano Pomante Quartet - Maybe
+02. Guido Russo - Antigua
+03. Overflow - Sunny
+04. Frank Tayla - Tropez(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CB91FE4548C772DED474AD6A041EF057DBF5AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008586   (815808) от 18.04.2016
 
 VA - Classical in Jazz: 15 New Jazz Version of Classical Masterpieces (2016) [MP3|320 кб/с] <Jazz>
@@ -717,35 +746,6 @@ VA - Anthology Of Blues (Vol. 01) (2019) [MP3|320 Kbps] <Blues, Rock Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4A9F90AAA19E6384992176E29F814161C9971C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274237   (793985) от 06.01.2019
-
-VA - Anthology Of Blues (Vol. 02) (2019) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793985.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Albert Cummings - Workin' Man Blues
-002. Bonnie Raitt - Time Of Our Lives
-003. Dr. Feelgood - Down By The Jetty Blues
-004. Albert Lee & Hogan's Heroes - Jitterbug Boogie(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 11:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6644F08AF928D0A660A487ABC6EDF08D714B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

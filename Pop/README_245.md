@@ -1,3 +1,293 @@
+###  Публикация: 961715   (294583) от 04.12.2015
+
+Al Bano & Romina Power - The Collection (1998) [FLAC|tracks+.cue]<Vocal, Ballad, Schlager>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felicità (3:15)
+02. It's Forever (2:59)
+03. Tu Soltanto Tu (Mi Hai Fatto Innamorare) (3:41)
+04. Io Ti Cerco (3:39)(   Читать дальше...   )Жанр: Vocal, Ballad, SchlagerПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:078C98149BE24A0F0CAAA15E1938239288D16F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079570   (294253) от 04.12.2016
+
+VA - Motown Disco Magic - Too Hot Ta Trot (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diana Ross - What You Gave Me  (3:32)
+02. Commodores - Too Hot Ta Trot  (3:11)
+03. 5th Dimension - You Are The Reason (I Feel Like Dancing)  (2:42)
+04. High Inergy - Love Is All You Need  (2:58)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8B65F10DAF3B7A24F812F97F5CF057E567C9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079842   (294192) от 04.12.2016
+
+VA - Pop Decades: 00s (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gnarls Barkley - Crazy (2:58)
+02. Jason Derulo - Whatcha Say (3:41)
+03. Sean Paul - Like Glue (3:53)
+04. Flo Rida - Right Round (3:24)(   Читать дальше...   )Производство: RhinoЖанр: PopПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F716B189187F94B7C765B45C31D0F81749FBACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079673   (294184) от 04.12.2016
+
+Erotic Drum Band - The Collection (2006) 2xCD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Erotic Drum Band - Канадский студийный проект от известного диско-продюсера, композитора, аранжировщика и  мультиинструменталиста Питера Ди Майло (Peter Di Milo). В данное переиздание вошли все 3 альбома (1978-1980) и несколько синглов.01. Love Disco Style  (13:58)
+02. Plug Me To Death  (7:17)
+03. Action 78 (Edited Version)  (7:30)
+04. Jerky Rhythm  (9:13)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB1FD34C44A78E763B9E262705EA6986BE5EE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079462   (294147) от 04.12.2016
+
+VA - Italian Style Everlasting Italo Dance Compilation Vol.5 (2016) [MP3|320 Kbps] <Hi-NRG, Italo Disco, Post-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casarano - Fairy Tale (In My Heart) (feat. Elise Dean) (BCR Full Summer Reggae) 6:51
+02. Casanova - Tears of Love (BCR Extended Mega Beats Version) 7:09
+03. DJ Dr. Love - Love Explosion 6:08
+04. Roby - It's My Life (BCR Extended Milano Mix) 8:31(   Читать дальше...   )Жанр: Hi-NRG, Italo Disco, Post-DiscoПродолжительность: 02:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BEFC0377ECFB9F8BC41045A2D21FA91F05C851F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079655   (293903) от 04.12.2016
+
+VA - Танцуют все! (2006) [FLAC|Lossless|tracks + .cue] <Эстрада, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ай-лю-ли (2:04)
+02. Я люблю танцевать (2:40)
+03. Шутка (2:53)
+04. Веселая кадриль (2:39)(   Читать дальше...   )Жанр: Эстрада, RetroПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6B82B971DED6195BF92E1A9C6A12F798FD4B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961699   (293523) от 05.12.2015
+
+Petra Janu - 12 Famous And Awarded Movie songs (1985) [MP3|192 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way We Were - Vladimir Popelka, Marvin Hamlisch, Tanecni orchestr Cs. rozhlasu [02:42]
+02. Raindrops Keep Fallin' On My Head - Burt Bacharach, Vladimir Popelka, Tanecni orchestr Cs. rozhlasu [03:32]
+03. The Shadow Of Your Smile - Vladimir Popelka, Tanecni orchestr Cs. rozhlasu [03:33]
+04. Moon River - Vladimir Popelka, Tanecni orchestr Cs. rozhlasu [03:15](   Читать дальше...   )Жанр: PopПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E326ECCEEBD8702F41ABBD36C7DBEA76E6A8E1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262631   (293496) от 16.11.2018
+
+VA - NOW That’s What I Call Love Songs (2018) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293496.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+
+01. George Michael/Aretha Franklin - I Knew You Were Waiting (For Me)
+02. Bill Medley/Jennifer Warnes - (I've Had) The Time Of My Life(   Читать дальше...   )Жанр: PopПродолжительность: 04:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B3EF4D797D1235216B60FC6902B8599153040A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262687   (293320) от 16.11.2018
+
+Vanessa Paradis - Les sources (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les sources 0:58
+02. Kiev 3:52
+03. La plage 4:06
+04. Ces mots simples 2:54(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437E29528CAF6376B3F42D51884C6FCD6146380F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334634   (292912) от 30.10.2019
+
+The Real ABBA Gold - Janus (1998) Hey Presto! 1999 [FLAC|Lossless|image + .cue] <EuroDance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (03:52)
+02. Super Trooper (04:22)
+03. Chiquitita (05:40)
+04. This Time (04:31)(   Читать дальше...   )Жанр: EuroDance, PopПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A502BF9C8A4A95A3D692EEEC2C07B4721F1C62C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962554   (292841) от 05.12.2015
 
 Tanita Tikaram - The Best Of Tanita Tikaram (1996) [FLAC|tracks+.cue]<Pop Rock, Soft Rock, Ballad>
@@ -455,293 +745,6 @@ VA - Давид Тухманов: Сердце любить должно (2005) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00E5851A8D13D2C901876FDE70727BCABCE66883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846963   (291072) от 17.11.2018
-
-Евгений Осин - Новое и лучшее. Star Hit Звездная коллекция (2010) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Мальчишка
-02 8-е марта
-03 Не верю
-04 Плачет девушка в автомате(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E2396EEDA71A4F758CEA1459D64D48249D4FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962953   (290979) от 06.12.2015
-
-VA - I Love ZYX Italo Disco Collection Vol.18 (2014) 3CD [MP3|320 кб/с]<Italo-Disco, Dance, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290979.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 Radiorama - Bad Girls (12'' Version)
-02 Boo Who - Angie Cries (Maxi Version)
-03 Kehn Lesslon - Hey Hey Guy (12'' Version)(   Читать дальше...   )Жанр: Italo-Disco, Dance, EurodanceПродолжительность: 03:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DF14A859F2FE5A2747EEFD78DA00DA7D3D767D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963135   (290736) от 06.12.2015
-
-Eurielle - Arcadia (2015) [OGG|482-537 кб/с]<Alternative Pop, Contemporary Classical, Relax>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City of the Dead
-02. Raindrops
-03. Rescue Me
-04. Whispers(   Читать дальше...   )Жанр: Alternative Pop, Contemporary Classical, RelaxПродолжительность: 01:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08FF2245C8939F2199807C59FC17EBF285B8196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 732806   (290674) от 10.12.2013
-
-VA - NOW That’s What I Call Club Hits (2013) [MP3|320 кб/с]<Pop, Dance, Club>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, ClubПродолжительность: 03:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142B196822378D0303413E4EECC199ED38B1EA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080330   (290255) от 06.12.2016
-
-Hot Blood - Disco Dracula (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Германский студийный проект. Состав: Stefan Klinkhammer, Penny Duke, May Ambruster.01. Baby Frankie Stein  (4:55)
-02. Even Vampires Fall In Love  (5:23)
-03. Soul Dracula  (2:56)
-04. Sex Me  (6:16)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA2A27CAEF40F0620F9C297446F663BA5F211F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080293   (290249) от 06.12.2016
-
-Nightlife Unlimited - 5 Albums (1979-1984) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nightlife Unlimited (Ночной Безлимит)  из Канады ворвался на сцену в 1979 году с "Disco Choo Choo." Основной состав состоял из Tony Bentivegna и Johnny D'Orazio, остальные участники - приглашенные сессионные музыканты и солисты. Первый альбом спродюсировали Peter DiMilo и George Cucuzzella.Список альбомов:
-1979 - Nightlife Unlimited
-1980 - Just Be Yourself
-1981 - Let's Do It Again(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 02:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706E0E2666316FE231E8A57E64EFAE0B3C45C4C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 848544   (290102) от 08.12.2014
-
-Belinda Carlisle - The Collection (2014) [MP3|320 кб/с] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (We Want) The Same Thing
-02. Heaven Is a Place On Earth
-03. Live Your Life Be Free (Single Edit)
-04. Leave a Light On (7”)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4BD66BD73EA1F5C83684081A27B2C075656162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263102   (290039) от 18.11.2018
-
-VA - Ballermann Pisten Party 2019 (2018) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Wackel - I Love Malle
-02. Almklausi & Specktakel - Mama Laudaaa (Après Ski Edition)
-03. Ikke Hüftgold & Honk! - Alle Blau (Bella Ciao)
-04. Gaudi Express - Cordula Grün(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F809705F2A993CA5E8A6337FCE4D0E1BBB580F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263111   (290020) от 18.11.2018
-
-VA - Die Schlagerparty - Best Of Discofox (2018) 2CD [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290020.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Beatrice Egli - Verliebt, Verlobt, Verflixt Nochmal
-02. Michael Wendler - Feuermelder (Remix)
-03. Anna-Maria Zimmermann - Scheiß Egal(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D832AB772B9120B8D84B595BF06EC3F8FA62F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080459   (289967) от 06.12.2016
-
-Моя Мишель - Отстой (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Отстой
-02. Мы ловим ночь
-03. Целовать нельзя
-04. Соня(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4541E8C09FFA96788578BEF8A4E269AF8F60BED1
 ```
 
 https://mybot314.ru/tekegram_catalog/

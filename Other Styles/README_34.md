@@ -1,3 +1,61 @@
+###  Публикация: 867186   (901369) от 09.02.2015
+
+VA - Ешь богатых / Eat the Rich (1987) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motorhead - Eat The Rich
+02. Simon Brint - Terrorists
+03. Motorhead - Built For Speed
+04. Danny Eccleston - Nosher In The Bar(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D04A1F19936D29B538B65D58510C7BADA9230B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099996   (901314) от 03.02.2017
+
+Vicente Amigo - Apasionadas Cuerdas del Alma (2015) [FLAC|Lossless|image + .cue] <Flamenco, Acoustic, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bolero A Los Padres (4:23)
+02 - Campos De San Gregorio (4:23)
+03 - Bolero a Marcos (5:40)
+04 - Rio De La Seda (9:43)(   Читать дальше...   )Жанр: Flamenco, Acoustic, GuitarПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C881B6FD91BF013D89073CC49B0F9C24407DA2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 867779   (901039) от 09.02.2015
 
 John Carpenter - Lost Themes (Deluxe) (2015) [FLAC|Lossless|WEB-DL]<Soundtrack, Ambient>
@@ -724,64 +782,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A500BE76D6E956477C13D91123BC88BD1A962510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867235   (896269) от 12.02.2015
-
-Wikluh Sky - Сербский фильм / A Serbian Film (2010) [MP3|320 kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balcan Sex God
-02. Cheaporn
-03. Decollection
-04. Fancy Porn(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2C15A44D45AA3BAC3141986F4BC6D60EE7CCD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992682   (895246) от 05.03.2016
-
-VA - Straight Outta Compton (Music From The Motion Picture) (2016) [FLAC|Lossless|tracks + .cue] <Hip Hop, Funk, Soul>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.W.A - Straight Outta Compton (4:17)
-02. Parliament - Flash Light (Single Version) (4:29)
-03. Eazy-E - We Want Eazy (5:01)
-04. N.W.A - Gangsta Gangsta (5:36)(   Читать дальше...   )Производство: UMe, Priority Records, Ruthless Records – B0023597-02Жанр: Hip Hop, Funk, SoulПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED0CB509EDDCC05C1303A4632CA9EEF3F5C1D90
 ```
 
 https://mybot314.ru/tekegram_catalog/

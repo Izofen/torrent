@@ -1,3 +1,57 @@
+###  Публикация: 1226070   (655436) от 20.05.2018
+
+Rockstor 3.9.1 [x64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux-дистрибутив Rockstor 3.9, предназначенный для развёртывания сетевых (NAS) и облачных хранилищ. Дистрибутив построен на пакетной базе CentOS и использует для локального хранения файловую систему Btrfs, а для внешнего доступа протоколы Samba/CIFS, NFS, SFTP и AFP.
+
+Особенностью Rockstor является поддержка запуска дополнительных приложений-обработчиков, упакованных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52701005C8AB5EBB4BCB7B269805B77824AAE87B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226080   (655372) от 20.05.2018
+
+FreeNAS 11.1-U4 [x64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив для быстрого развёртывания сетевого хранилища (NAS, Network-Attached Storage). Дистрибутив основан на кодовой базе FreeBSD, отличается интегрированной поддержкой ZFS и возможностью управления через веб-интерфейс, построенный с использованием Python-фреймворка Django. Для организации доступа к хранилищу поддерживается FTP, NFS, Samba, AFP, rsync и iSCSI, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9EF065DE4E4CF3565AC225B1A50851F8CB68F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904550   (654254) от 03.06.2015
 
 Sabayon 15.06 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
@@ -643,62 +697,6 @@ Ubuntu — это разрабатываемая Canonical, основанная
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3685A753A54CEA007A2A1EE01031391804CB54F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908097   (635287) от 13.06.2015
-
-KaOS Linux 2015.06 (Arch + Plasma KDE 5) [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект KaOS представил июньский релиз новой стабильной версии своего Linux-дистрибутива с поддержкой UEFI и разметки GPT. Plasma/KDE desktop 5. Ядро Linux Kernel 4.0.5, glibc 2.21 и Binutils 2.25, libpng 1.6 series, systemd 220
-
-Дистрибутив KaOS основан на пакетном менеджере Arch Linux — pacman. Он использует в качестве основного рабочего окружения последнюю версию (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2257FCDBDC65C80E7C30E25318686FE08727A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908314   (633336) от 14.06.2015
-
-Voyager Live X8  (легкий дистрибутив) [efi-amd64, amd64, i386] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен очередной релиз французского дистрибутива на основе текущей версии Debian 8 "Jessie" с DE Xfce 4.12. Отметим, что ранее дистрибутив базировался на текущих версиях Xubuntu.
-
-Рабочее окружение включает в себя по умолчанию Conky, Smtube, Kodi/XBMC Media Center, VLC, GIMP, Clementine, CoverGloobus, RadioTray, Slingscold, Skippy-xd, Kazam, а также (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3EEC25C3FD490D21BA14DAC172B184F3B99BACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

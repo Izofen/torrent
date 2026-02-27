@@ -1,3 +1,67 @@
+###  Публикация: 520904   (629093) от 10.07.2012
+
+Wonder - Far Off the Beaten Path (2012) [MP3|192 кб/с]<New age,Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival
+02. Night Sky Song
+03. Village Child
+04. Traveler's Story
+05. Edge of the World
+06. Faces in the Smoke
+07. Dance for the Gods
+08. Longing Heart
+09. Message from the Past
+10. Secret Love(   Читать дальше...   )Жанр: New age,EnigmaticПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502ECBD17C8B788117FD76EC92573866D3CC7FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035199   (628637) от 16.07.2016
+
+Elise Lebec - Heart Song (2014) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silence (3:34)
+02. Lullaby (3:29)
+03. Heart Song (4:57)
+04. Pirates And Poets (3:53)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B491C9588D7248210D23B3AD2C0C17A62319CA79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035239   (628613) от 16.07.2016
 
 John Debney - Ice Age: Collision Course  / Ледниковый период Столкновение неизбежно (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -696,64 +760,6 @@ VA - Me Before You / До встречи с тобой (Original Motion Picture 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:859D07FD392A2A1F17B9F95875FD6D2E8B69911D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035716   (624576) от 18.07.2016
-
-Craig Armstrong - Me Before You / До встречи с тобой (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me Before You Orchestral (07:14)
-02. Will Goes to Work (00:56)
-03. The Castle (01:34)
-04. Walk Home (00:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414FE1B84ABC93094A0256B3B67F534A6D91FF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035707   (624489) от 18.07.2016
-
-VA - Me Before You / До встречи с тобой (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Jury - Numb (04:06)
-02. HOLYCHILD - Happy With Me (02:48)
-03. X Ambassadors - Unsteady (Erich Lee Gravity Remix) (03:24)
-04. Jessie Ware - Till The End (03:00)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:281AEF1FBE9369D024B13D9612273BBF45E7360E
 ```
 
 https://mybot314.ru/tekegram_catalog/

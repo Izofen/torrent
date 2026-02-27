@@ -1,318 +1,3 @@
-###  Публикация: 538093   (504973) от 28.08.2012
-
-Nature Wallpapers (22.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B6A2D3744E9BECD44D84BE23E9DFF9FC90F0B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540140   (504972) от 28.08.2012
-
-Computer Desktop Wallpapers Collection (27.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F42F96CB269BADE0E7F1BF1F85AFF69E88CB2AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539307   (504971) от 28.08.2012
-
-Nature Wallpapers (24.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD65AE3F44C5D85B54EB92512FF91315212E8BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538119   (504970) от 28.08.2012
-
-Nature Wallpapers (23.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6317D74018C8E607B483A0EF517353F3400C075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539756   (504968) от 28.08.2012
-
-David Salvans - Montseny (1994) [MP3|320 кб/с]<New age, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504968.jpg" />
-</div>
-
-
-###  Подробнее
-
-(11:06) 1. Turo de grenys
-(12:22) 2. Fragments
-(14:18) 3. Montseny
-(03:30) 4. Tufts & MusicЖанр: New age, ElectronicПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12F216AB9A1573898B07BA9042AB1FFAA4B5949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539345   (504967) от 28.08.2012
-
-Desktop wallpapers (25.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9831615A249590CAF589BAD4CE4D7E48EE1F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538094   (504966) от 28.08.2012
-
-Landscapes HD Wallpapers (22.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C9E909A8E4CCEA2575D17101B6809CEDF1E5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539344   (504965) от 28.08.2012
-
-Landscapes HD Wallpapers (25.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD6107FE8D20E5D4C18F55B685372CA7D5248C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540205   (504938) от 28.08.2012
-
-Nature Wallpapers (28.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE89BBA1D3C4E58D9736EE62965EEC0ADB0A324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538117   (504937) от 28.08.2012
-
-Computer Desktop Wallpapers Collection (23.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84CC597B44E6771EB7ADC87EEB1FD72FEAB8608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538095   (504936) от 28.08.2012
-
-Nature HD Wallpapers (22.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B3BA976C5FB477EC99DF35B505FBC3AC6790288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539420   (504935) от 28.08.2012
-
-Computer Desktop Wallpapers Collection (26.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DD521BA046219890F629B8F96441FFB87C131F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538096   (504934) от 28.08.2012
 
 Design and interior of the wallpaper (22.08.12) [Wallpapers]
@@ -679,6 +364,318 @@ Landscapes HD Wallpapers (21.08.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C266FE9FD3B34EAD30303EE0450DF4F785336179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540144   (504917) от 28.08.2012
+
+Design and interior of the wallpaper (27.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE15C11972D5CC940FC3E821B780EB7836CDF38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540125   (504916) от 28.08.2012
+
+Журнал | Красота & здоровье № 9(150) [сентябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая женщина хочет быть красивой. Внешняя привлекательность дает уверенность в себе и во многом определяет успехи как в личной жизни, так и в карьере. Безусловно, неотъемлемая составляющая красоты – это здоровье. Чтобы все успеть и реализовать задуманное, современная женщина должна быть полна жизненных сил и хорошо себя чувствовать.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1050ACF55AB9E8A1A9CA298AE3ED863B6FE15085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540206   (504915) от 28.08.2012
+
+Landscapes HD Wallpapers (28.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F566A56060E1AC61C988029B19EEDF37EC65D4DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540226   (504914) от 28.08.2012
+
+Artworks by Gabriel Deschamps [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artworks by Gabriel Deschamps
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F6C7DEEFC2B8FD9DE6C76D586C04419E55A591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538118   (504912) от 28.08.2012
+
+Best HD Wallpapers Pack (23.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E1197DF78502A99F60BB7FF5034BBB115AEB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539305   (504910) от 28.08.2012
+
+Computer Desktop Wallpapers Collection (24.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BB0256536108A48E16BBE591E89A66BA3AE92D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540141   (504909) от 28.08.2012
+
+Best HD Wallpapers Pack (27.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0121AE89FB736B391DD1765431001782592556D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539400   (504907) от 28.08.2012
+
+Военные учения на Гороховецком полигоне в 2010 году [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военные учения на Гороховецком полигоне в 2010 году
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB611FCD7BF603007D4ECA00683158BB83AFB6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538003   (504906) от 28.08.2012
+
+VA - Spiritual High (1999) [MP3|320 кб/с]<New Age, Enigmatic, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: New Age, Enigmatic, AmbientПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0400152866B44D7ED0D0567AC176FAE63D1F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540204   (504905) от 28.08.2012
+
+Best HD Wallpapers Pack (28.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7A45E968412DDDC1D407FCBB40F7B733F99CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539421   (504904) от 28.08.2012
+
+Desktop wallpapers (26.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F34DD00244A012F5F89A0581DEBC43403720F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540207   (504903) от 28.08.2012
+
+Design and interior of the wallpaper (28.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A780FFDD3765743223D072167A6A20427155E748
 ```
 
 https://mybot314.ru/tekegram_catalog/

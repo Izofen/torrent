@@ -1,3 +1,67 @@
+###  Публикация: 1084298   (215217) от 20.12.2016
+
+VA - Бременские Музыканты. По следам Бременских Музыкантов (2001) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_215217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бременские музыканты
+
+01. Вступление - 01:01
+02. Песенка друзей - 02:27(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD31F5964FD69DFCFE42B08876B154858B152B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852618   (215066) от 26.12.2014
+
+Soundcritters - Morrow Forge (2013) [MP3|320 кб/с]<Trailer Music>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Tomorrow (4:11)
+02. Exploration of the World (3:57)
+03. Flight to the Core (2:46)
+04. Fall of the Arc (3:34)
+05. Floating Above (3:43)
+06. Spark of Hope (3:53)
+07. Heroic Opportunities (2:41)
+08. Aura (4:25)
+09. New Eden (3:29)
+10. Speed of Light (3:29)(   Читать дальше...   )Жанр: Trailer Music (epic orchestral)Продолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B854448D0D7A9F07EE3A1399E9F348B8683E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 853422   (214876) от 26.12.2014
 
 VA - Энни / Annie (Original Motion Picture Soundtrack) (2014) [MP3|320 кб/с]<Soundtrack>
@@ -691,64 +755,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33195B6AF6A47E9585EF5FB2DF1D2876DD06C65E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651911   (206882) от 08.08.2023
-
-Король и Шут - Король и Шут (Официальный саундтрек), Часть 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, Punk Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Алексей Горшенёв - Ели мясо мужики [00:02:10]
-02-Алексей Горшенёв - Лесник (Инструментал) [00:04:37]
-03-Горшок - Иван Факов [00:02:11]
-04-Александр Бузин - Девушка на время [00:04:02](   Читать дальше...   )Жанр: OST, Punk RockПродолжительность: 00:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C86856305A2C55BFEA516815A8F4872C45EF54B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651888   (206744) от 09.08.2023
-
-Chris Spheeris & Paul Voudouris - Enchantment (1991) [FLAC|Lossless|image + .cue] <Instrumental, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enchantment (4:31)
-02. Through the Wall (4:53)
-03. Pura Vida (3:50)
-04. Golden Days (3:44)(   Читать дальше...   )Жанр: Instrumental, New Age, AmbientПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A4C0BFC98481749CFA940C28ECAC21AB7A6C2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

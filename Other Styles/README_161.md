@@ -1,3 +1,67 @@
+###  Публикация: 498635   (255778) от 19.05.2012
+
+Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chillout>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Set Free (04:34)
+02. Yoo Doo Right (07:13)
+03. Where Did You Sleeep Last Night (03:44)
+04. Like Roling Stone (06:31)
+05. Love Lies (07:11)
+06. Oh My Love (03:27)
+07. Voodoo Chile (03:48)
+08. Heart And Soul (04:03)
+09. Persuasion (06:34)
+10. Ruler Of My Heart (03:12)2001-2007Жанр: World Music, Ethnic, ChilloutПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624627   (255378) от 09.04.2023
+
+VA - American Tribal Songs (2011) [MP3|320 Kbps] <Native American, New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Vasquez - Vientos del Sur [03:04]
+02. Atahualpa - The Lonely Shepherd [04:50]
+03. Atahualpa - Pan Flute [03:12]
+04. Mato Grosso - Buffalo Trail [06:08](   Читать дальше...   )Жанр: Native American, New Age, InstrumentalПродолжительность: 01:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D274D638DC396C0554067F0809FADC43443B0CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626330   (255076) от 17.04.2023
 
 David Arkenstone - Ambient Space Music (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -722,64 +786,6 @@ VA - Enigma-Forest-Transit 10 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39A15539F982D9B6996486351CD089DDF242CAC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618727   (249908) от 12.03.2023
-
-Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop the Clock (3:10)
-02. Norfolk Blues (3:34)
-03. Wasted Youth (3:23)
-04. Above My Head (4:42)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760BCC75D56CDDABB4974C7AD8B5440E53100CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618620   (249642) от 16.03.2023
-
-VA - Enigma-Forest-Transit 9 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gregorian - Whatcha Gonna Do
-02. Oliver Shanti & Friends - Sangha's Love for Amitabha
-03. Osamu Kitajima - Blue Fire
-04. Ghostland - Guide me God(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F241346423613248E9BC1F9E896486735B30F27B
 ```
 
 https://mybot314.ru/tekegram_catalog/

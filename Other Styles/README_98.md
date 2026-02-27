@@ -1,3 +1,61 @@
+###  Публикация: 912045   (614401) от 24.06.2015
+
+VA - Buddha Meditation (2015) [MP3|320 кб/с]<Lounge, ChillOut, New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Northen Extreme - More Than Words
+02. Vanity in Mind - Go Get Alice - The Walz Remix
+03. Electronivrty - A Bit of Jarre
+04. The Chakras - Inside Look(   Читать дальше...   )Жанр: Lounge, ChillOut, New AgeПродолжительность: 03:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60410EF1253501C6E779AB25B6F059E087D75654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912048   (614083) от 24.06.2015
+
+Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflute, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Silverstar 5:24
+02. Chica 3:14
+03. Amigos 2:40
+04. Brothers 5:52(   Читать дальше...   )Жанр: New Age, Native American, Panflute, FolkПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D9FAC37A1D85E23831F02E6FB571A17AB163DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230622   (614052) от 13.06.2018
 
 Jonathan Goldman – Ambient Realms (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -714,64 +772,6 @@ VA - Now That's What I Call Country Vol 12 (2019) (2019) [MP3|320 Kbps] <Country
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E82DA767B8FBC513C040C653624BED60AF37505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037870   (610194) от 26.07.2016
-
-Hennie Bekker - Beyond Dreams - Pathways to Deep Relaxation (2016) [FLAC|Lossless|tracks] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Connect [00:08:49]
-02. Floating to Forever [00:11:04]
-03. Letting Go [00:06:40]
-04. The Calm [00:13:20](   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036D0AE4D761985CB99DE541D8CFA8E33583D401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296657   (610130) от 18.04.2019
-
-Arnaud Rebotini - Curiosa (Bande originale du film) (2019) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curiosa
-02. Le miroir
-03. Noircissement direct
-04. Les egouts(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADACAF335D1A847BEFEEE1FD581D6EA5D4DEBB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

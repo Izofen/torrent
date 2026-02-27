@@ -1,3 +1,302 @@
+###  Публикация: 809570   (586459) от 02.08.2014
+
+VA - Modern Talking Árnyékában 1. (2009) [MP3|320 кб/с]<EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K.B.Caps - Do You Really Need Me (Maxi Version) (6:39)
+02. Solid Strangers - Music In The Night (Maxi Version) (5:24)
+03. New Baccara - Call Me Up (Maxi Version) (5:04)
+04. Grant Miller - Doctor For My Heart (Maxi Version) (5:16)
+05. C.C. Catch - Strangers By Night (Maxi Version) (5:46)
+06. Lift Up - Diamonds Never Made A Lady (Maxi Cut) (5:10)
+07. Patty Ryan - Stay With Me Tonight (Maxi Version) (5:42)
+08. Lian Ross - It's Up To You (Maxi Version) (5:38)
+09. Bad Boys Blue - For Your Love (Album Maxi Version) (   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C4331E4E45F40397C09186571CBFACB90F9A463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040622   (586453) от 05.08.2016
+
+The Z.A.C.K. - Disco Cosmix (1979) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интереснейший проект в стиле спейс-диско.01. Mister Satellite (7:26)
+02. 565, Where Are You (6:07)
+03. Mind The Cosmic Rocker (6:55)
+04. Immediate Boarding Folks To The Moon (12:11)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0563A6F18C9480DE08B19860761D828A74B407FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040536   (586435) от 05.08.2016
+
+VA - Танцевальный рай: RIO (2016) [MP3|320 Kbps] <Pop, Eurodisco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiosonik X Jerome - Thong Song
+02. Willy William - Ego (Radio Edit)
+03. TWiiNS - One Night Stand (Radio Edit)
+04. Vengaboys - 2 Brazil! (Dance Radio Edit)(   Читать дальше...   )Жанр: Pop, EurodiscoПродолжительность: 01:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897D901AAE0190DBB6CE53548D8745C0477D881A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809556   (586424) от 02.08.2014
+
+Video Kids - The Invasion Of The Spacepeckers (2007) [FLAC|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do The Rap 3:35
+02. Cartooney Tunes (Incl.Happy Birthday) 4:24
+03. La Bamba 4:14
+04. I'm Rock And Rollrpecker 2:28
+05. Communication Outer Space 3:09
+06. Woodpeckers From Space 5:57
+07. Give Me That Banana 4:07
+08. Do You Like Surfing ? 3:21
+09. Sky Rider 3:13
+(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB847D2C5626594D0BBDF6754097FE849D0E93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301330   (586178) от 10.05.2019
+
+Tight Fit - Back To The 60's (1981) LP [MP3|320 Kbps] <Pop, Disco, Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mixed - Back To The 60s - Side One (18:32)
+02. Mixed - Back To The 60s - Side Two (18:03)Жанр: Pop, Disco, Rock & RollПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB8DDAD6367556C42E791D7EEE10570F6EB854A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918848   (585941) от 16.07.2015
+
+VA - Romantic Worlds Vol.2 (2008) [FLAC|image + .cue]<Pop, New Age>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yello - Homage to the mountain [0:35]
+02. Natalie Cole - If i ever lose my faith in you [5:38]
+03. Eskobar - Someone new [3:30]
+04. Secret Servise - Destiny of love [4:11](   Читать дальше...   )Жанр: Pop, New AgeПродолжительность: 01:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F6FA1BB6E3B594D0AEC95DE199834E4E00A5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918687   (585860) от 16.07.2015
+
+Доминик Джокер - Дежавю (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Солнце взойдет
+ 02. Буду я любить
+ 03. Если ты со мной
+ 04. Небо напрокат(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE0C9A448DFF16F2C1BA2AA47362A6B958D37C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552162   (585845) от 22.05.2022
+
+VA - The Original Masters, Vol. 7 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eli's Second Coming - Love Chant (5:57)
+02. Tony Silvester - Pazuzu (6:38)
+03. Dennis Coffey - Boogie Magic (5:46)
+04. Porn Music - Boogie Nights (2:38)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C2E14FFAF7D6F9C0791483727618C52E6B4260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552164   (585844) от 22.05.2022
+
+VA - The Original Masters, Vol. 8 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tee Cee's - Ecstasy (8:21)
+02. Calender - Hypertension (5:50)
+03. Pam Todd And The Love Exchange - Let's Get Together (5:23)
+04. Cory Daye - Green Light (9:00)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90A45FB399B01781CC7883ECAECEE8351F235C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552157   (585840) от 22.05.2022
+
+VA - The Original Masters, Vol. 4 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eruption - I Can't Stand the Rain (6:28)
+02. Chilly - For Your Love (11:48)
+03. Skatt Brothers - Walk the Night (5:23)
+04. Bay City Rollers - Don't Stop the Music (5:59)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F70740C18D6B325B3769431FF445A5EE16987420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552160   (585835) от 22.05.2022
 
 VA - The Original Masters, Vol. 6 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
@@ -472,310 +771,6 @@ VA - RTL Hits Sommer 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36BD9FE9A80C914AE8690B1C8B3F75F769427ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358915   (582909) от 05.07.2011
-
-Максим Леонидов (экс "Секрет") - Папины Песни (2011) [WavPack|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Царевна-несмеяна (3:33)
-02. Старый клён (4:06)
-03. Сядь со мною рядом (3:02)
-04. Одинокая гармонь (3:05)
-05. Звать любовь не надо (4:43)
-06. Дорогие мои москвичи (2:54)
-07. Услышь меня, хорошая (3:14)
-08. Калитка (3:21)
-09. Грустить не надо (4:07)
-10. Что так сердце растревожено (3:31)(   Читать дальше...)Жанр: PopПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553448   (582883) от 25.05.2022
-
-Анастасия - Губа не дура (1997) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Губа не дура
-02. Белая птица
-03. Парусник
-04. Поздняя встреча(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD89F5BA970EAD2499419395579C13A9AEA1E49F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919465   (582786) от 19.07.2015
-
-Scotch - Greatest Hits & Remixes (2015) 2CD [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Up (Long Remix Version)
-02. Disco Band (Remix by Mach 2 Vocal Version)
-03. Pictures (Extended Vocal Remix)
-04. Mirage (Extended Version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F57CE12CD9CBAD8D6643745BBBCC7CAA1DA5E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919575   (582784) от 19.07.2015
-
-Scotch - Greatest Hits & Remixes (2015) 2CD [FLAC|tracks+.cue]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Up (Long Remix Version)
-02. Disco Band (Remix by Mach 2 Vocal Version)
-03. Pictures (Extended Vocal Remix)
-04. Mirage (Extended Version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D58745B34BD1C514A503CC699622944F99336E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810807   (582452) от 06.08.2014
-
-Methusalem - Journey Into The Unknown (2006) [APE|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zombie 5:02
-02. Alien 4:20
-03. Robotism 6:34
-04. You Are The Sun 7:11
-05. The Black Hole 4:16
-06. Time Machine 4:12
-07. Ooh Dracula 3:29
-08. Shot Down 4:09Жанр: DiscoПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF9181BA15E975D68F912C3CAF8701AB67160B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810808   (582446) от 06.08.2014
-
-Methusalem - Journey Into The Unknown (2006) [MP3|320 кб/с]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zombie 5:02
-02. Alien 4:20
-03. Robotism 6:34
-04. You Are The Sun 7:11
-05. The Black Hole 4:16
-06. Time Machine 4:12
-07. Ooh Dracula 3:29
-08. Shot Down 4:09Жанр: DiscoПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C3203F93977421FE0CE70BA3318AFEBD0E1EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041485   (582435) от 09.08.2016
-
-Stratosferic Band - Splash (1977) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственный "Спейс-диско" проект итальянского продюсера, композитора и гитариста  Svengile (Luigi Venegoni).01. The First Galaxy (7:04)
-02. Mexican Space (7:08)
-03. Cosmic Show (4:22)
-04. Gloria (6:45)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4A67E3032D63E5AEAEDAE9E4B0D0A6D7AF92B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041572   (582399) от 09.08.2016
-
-Space Project - Disco from Another Galaxy (1978) LP, Limited Edition [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Conquest of the Stars (8:08)
-02. Beyond Orion (7:43)
-03. Mission To Lyra (7:16)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EADB8BCBA8A6A70B6633EA26A80CB65EDEDC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302099   (582265) от 14.05.2019
-
-Bleu Jeans Bleu - Perfecto (2019) [FLAC|Lossless|tracks + .cue] <French Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le king de la danse en ligne (2:42)
-02. Sièges en cuir (1:23)
-03. Phrases fromagées (3:45)
-04. Des ailes de poulet (0:20)(   Читать дальше...   )Жанр: French Pop, ChansonПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4465FE36F082A01DFBD8B7AAA0BD6BDFAB13732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302257   (582249) от 14.05.2019
-
-ORS (Orlando Riva Sound) - Who Built The Pyramids (1981) 12'' [MP3|320 Kbps] <Electronic, Downtempo, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Built The Pyramids (5:19)
-02. The Wall Of Sound (6:46)
-03. Neonlight Children (4:39)
-04. Aren't You God (6:24)Жанр: Electronic, Downtempo, Funk, DiscoПродолжительность: 00:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A9B58360440BFFC3AA20E7BBFC729462E6609C
 ```
 
 https://mybot314.ru/tekegram_catalog/

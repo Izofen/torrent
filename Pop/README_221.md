@@ -1,3 +1,317 @@
+###  Публикация: 1416159   (369541) от 15.10.2020
+
+VA - Italo Disco - The Lost Legends Vol. 23 (2018) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Boys - Fantastic World (4:41)
+02. Business - Moon Light Field (3:41)
+03. Giusy Dej - Follow Me (3:54)
+04. Ekstasy - I Need Sincerity (5:06)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F507C05FAC4883040F38495026CAB173C9FE00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576250   (368609) от 13.09.2022
+
+Cliff Richard - Love Songs (1981) Remaster, 1987, Parlophone[MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Miss You Nights (1987 Remaster) [00:03:57]
+02 - Constantly (1987 Remaster) [00:02:38]
+03 - Up in the World (1987 Remaster) [00:02:40]
+04 - Carrie (1987 Remaster) [00:03:27](   Читать дальше...   )Жанр: PopПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC8660E9A82150F8A05D0B25F39CF107511B523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576241   (368496) от 13.09.2022
+
+Julio Iglesias - Love Songs (2007) [MP3|320 Kbps] <Pop Latino>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To All the Girls I've Loved Before [00:03:32]
+02 - Crazy [00:03:16]
+03 - When I Need You [00:04:15]
+04 - Vincent (Starry Starry Night) [00:04:15](   Читать дальше...   )Жанр: Pop LatinoПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88485BCE3BD17922A12C48D259820361CFDF957A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576246   (368392) от 13.09.2022
+
+Chris Norman - Rediscovered Love Songs (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Need You Now [00:04:11]
+02. To Love Somebody [00:03:35]
+03. Wonderful Tonight [00:03:42]
+04. I Drove All Night [00:04:11](   Читать дальше...   )Жанр: PopПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29145F65E2BE9ED9B20A49B10B23200E199B8ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576159   (368372) от 13.09.2022
+
+VA - ZYX Italo Disco New Generation Vol. 21 (2022) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italoconnection - All Over (Flemming Dalum Remix) (5:48)
+02. Mono Band - Come Back (Mix Extended Version) (6:14)
+03. Frontemare feat. Fabio Babini, Venus In Disgrace, Kimerica - Riviera Balera (Extended Version) (5:30)
+04. Steele Up - Waiting For You (Flemming Dalum Special ZYX Remix) (7:03)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A4D9D4DE9139E5852CD74D169A2F1963711E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575246   (368291) от 15.11.2012
+
+White Nights Brass - Soviet Retro (2003) [MP3|320 кб/с]<Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рио-Рита.
+02. Капарсита.
+03. Амурские волны.
+04. Марш Егерей.
+05. На сопках Манчжурии.
+06. Маленькая береза.
+07. Прощание Славянки.
+08. Осенний сон.
+09. Песня о любви.
+10. Марш веселых ребят.(   Читать дальше...   )Жанр: RetroПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF014403D397239A9FF7D2AEED1990180AA1E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575180   (368276) от 15.11.2012
+
+Eros Ramazzotti - Somos (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahora Somos
+ 02. Un Angel Como El Sol Tu Eres
+ 03. Este Tiempo Tan Nuestro
+ 04. Yo Soy Tu
+ 05. Hasta El Extasis
+ 06. Abrazame
+ 07. Baila Solo Con Tu Music
+ 08. Amigo Mio
+ 09. Dos Minutos
+ 10. Bajo El Mismo Cielo(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5316ADC8FDB01C067A0B5638799C131F2BA8423B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575538   (368066) от 15.11.2012
+
+Антон Лирник и группа LirnikBand - Платиновый альбом (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Детство
+02. Света
+03. Текила
+04. Жигули
+05. Марина
+06. Зимняя
+07. Козацкая
+08. Любовь
+09. Между 1 и 2
+10. Рок-н-ролл(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16FBAA7B9B4D0C9D54FA9DE65895F374D579F132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575124   (367908) от 15.11.2012
+
+Владимир Маркин - Мои лучшие сбережения - 1 - 4 (2008-2009) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Когда-нибудь
+02. Мама
+03. Есть!
+04. Южная ночь
+05. Любовь атакует
+06. Белый пух
+07. Любимые глаза
+08. Про ромашку и про Сашку
+09. По этой лестнице
+10. Канарейка (ретро-бонус 1989 года)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF4F23758364E94A32EA2651DDCF1E2D8BC66D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328083   (367727) от 28.09.2019
+
+A-ha - Minor Earth, Major Sky (2019) Deluxe Edition, Remastered [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minor Earth Major Sky (2019 Remaster)
+02. Little Black Heart (2019 Remaster)
+03. Velvet (2019 Remaster)
+04. Summer Moved On (2019 Remaster)(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5C614B29E058084ED6243D936635D4779847DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328089   (367696) от 28.09.2019
 
 A-ha - Lifelines (2019) Deluxe Edition, Remastered [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop>
@@ -458,293 +772,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467558481C1C4C2B05F96F85B1F5D20AD0B085FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070806   (364662) от 08.11.2016
-
-VA - Endless Wide - Acousitc Session Alaska (2016) [MP3|320 Kbps] <Acousitc, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jenifer Brening - Asap (Acoustic Version) (2:55)
-02. Manchester Snow - Stranger (3:30)
-03. Isabel Soares - Deserve an Award (Unplugged) (3:03)
-04. A19 - 10 Years After (Aerial Mix) (5:16)(   Читать дальше...   )Жанр: Acousitc, PopПродолжительность: 01:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6915D02B4D90B1822682C91331E4BE5813D8C4A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070941   (364411) от 08.11.2016
-
-VA - New Italo Disco Top 25 Compilation Vol. 2 (2016) [MP3|320 Kbps] <Disco, Nu-Disco, Eurobeat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Casarano - Long Ago (Short Fast Version) 04:52
-02. Boris Zhivago - In A World Of Fantasy (Fantasy Radio Remix) 05:30
-03. Valerie Star - Flash In The Night (Radio Magic Version) 04:56
-04. Alan Brando - I Wanna Love You (Radio Dream Mix) 04:41(   Читать дальше...   )Жанр: Disco, Nu-Disco, EurobeatПродолжительность: 2:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B604AC54E0502A6884B2FB8FAF3D43CCEBD2E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070949   (364406) от 08.11.2016
-
-Вадим Козин - Письмо из Магадана (1997) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Письмо из Магадана в Москву (2:51)
-02. Сумерки (1:57)
-03. Не жалей (1:52)
-04. Я ненавижу в людях ложь (2:06)(   Читать дальше...   )Жанр: РетроПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC5A330CCD566E8327BD2F0D8634E090CB498AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255569   (364299) от 18.10.2018
-
-VA - Schlager Hits, Vol. 1 (Das Musikfestival der Stars) (2018) [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Lancaster feat. Kay Dörfel - Rosenzeit (Rosenmix)
-02. Annemarie Eilfeld - Das kann nur Liebe sein
-03. Noel Terhorst - Ich bin dein Co-Pilot
-04. Nicole - Euphoria(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC26EB3146D93AC994E5715A08B125A9E079BD45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255134   (364176) от 18.10.2018
-
-Todd Rundgren & Utopia - Disco Jets (2012) Remastered CD [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треки записаны в студии Bearsville вскоре после выхода альбома Тодда "Faithful” (вторая половина 70-х) и были навеяны популярными в те годы фантастическими фильмами. Вышли альбомом только в 2012 году.01. Disco Jets (3:31)
-02. Cosmic Convoy (3:11)
-03. Time Warp (2:29)
-04. V.H.F. (3:46)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4F9460299F146D2091C833DAD60B6391A62CEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255179   (364172) от 18.10.2018
-
-Harlow - Taking Off (1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Off (10:21)
-02. Movie Queen (6:15)
-03. Frisco (3:50)
-04. Moonlight Mansion (4:47)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B88DA75511EBA563276B6FDFDFC7D72817F4D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 253736   (364165) от 04.11.2010
-
-VA - Кружатся Диски - Хиты 70-х (2 CD) (2002) [MP3|320 kbps]<retro, pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: retro, popПродолжительность: 02:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BBA50B886CB07EB8C72CE6D3DD1BD356928FC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255572   (364161) от 18.10.2018
-
-VA - Après Ski Party Hits 2019 (2018) [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364161.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jörg & Dragan (Die Autohändler) - Schade, dass man Bier nicht küssen kann
-002. Willi Herren - Was kann uns keiner nehmen
-003. Mike der Bademeister - Rucki Zucki
-004. Biggi Bardot - Wir machen laut (Wir machen Remmi Demmi) (Alpen Party Mix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 06:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E239CD749F0C716C9888A51088AABE702C16C4D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576700   (364092) от 15.09.2022
-
-Basic Element - The Empire Strikes Back (2007) [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Intro-Wire)
-02. I'll Never Let You Know
-03. Entourage
-04. Raise The Gain(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24CE4AD3416500231CD56ED01EA7248B7416E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576675   (364044) от 15.09.2022
-
-Basic Element - The Earthquake (1998) [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Love	4:01
-02. Love 4 Real	3:22
-03. Life In Vain	4:19
-04. Deep Down	3:21(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5448D3DB3D067B7410B07FD916060069E187B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1764999   (34419) от 12.12.2024
+
+Travis Tritt - Greatest Hits: From the Beginning (1995) CD, Compilation [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here’s a Quarter (Call Someone Who Cares)    [0:02:32.58]
+02. Anymore    [0:03:48.15]
+03. Put Some Drive in Your Country    [0:04:19.72]
+04. Foolish Pride    [0:04:19.48](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B097F17851C75F5C40FE0644976E9F8F2FD2C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764238   (34414) от 12.12.2024
+
+David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps] <New age, Relax, Meditative, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_34414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit Stalking (Spirit Dance remix) [06:26]
+02. The Moa Hunters (Spirit Dance remix) [05:29]
+03. The Rainmakers (Spirit Dance remix) [04:32]
+04. Frog Dancing (Spirit Dance remix) [04:44](   Читать дальше...   )Жанр: New age, Relax, Meditative, WorldПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92909C9343F094E2816B92F859210B62CA1C571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764212   (34410) от 12.12.2024
 
 Andrés Segovia - The Segovia Collection (Vol. 9): The Romantic Guitar (1991) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Classical guitar>
@@ -687,64 +745,6 @@ Jean-Michel Jarre - Musik Aus Zeit Und Raum (1983) Reissue, 1984, Polydor [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79E579BA944A93F2261461236B103B442345FCA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776782   (28238) от 08.02.2025
-
-Hans Zimmer - The World of Hans Zimmer - Part II: A New Dimension (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Modern Classical, Film Soundtracks>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Dark Knight: Why Do We Fall? [4:32]
-02 - Gladiator Suite : Part 1 [2:41]
-03 - Gladiator Suite : Part 2 [6:49]
-04 - Gladiator Suite : Part 3, Now We Are Free [3:58](   Читать дальше...   )Жанр: Classical, Modern Classical, Film SoundtracksПродолжительность: 01:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961659ED1CF4B10BAF04C7AE215F9043047C6C57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777091   (28023) от 10.02.2025
-
-VA - Emmanuelle - Instrumental Collection (2004) [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental Pop, Rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shadows - Chattanooga Choo Choo    [0:02:23.70]
-02. P. Weekers - El Condor Pasa    [0:03:16.68]
-03. F. Pappetti - Smoke Gets In You Eyes    [0:02:32.13]
-04. F. Lay - Emmanuelle II    [0:04:00.69](   Читать дальше...   )Жанр: Easy Listening, Instrumental Pop, RockПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441746F6F244231C2E6561275E981DE903DE86AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

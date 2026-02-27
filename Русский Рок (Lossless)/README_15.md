@@ -1,3 +1,32 @@
+###  Публикация: 1009820   (807464) от 22.04.2016
+
+Агата Кристи - Позорная Звезда (1993) 1995 Extraphone [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Айлавью (4:16)
+02. Нисхождение (4:38)
+03. Сирота (4:19)
+04. Новый год (3:11)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737D4F6AC8376D17243968BC2E655BBCCFC978A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119592   (807094) от 28.03.2017
 
 Ольга Арефьева и Ковчег - Ангел и девочка (2017) [FLAC|Lossless|tracks+ .cue] <Rock>
@@ -716,35 +745,6 @@ Gorky Park - Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB15A3795B9BC38222F87C3BD3E0AD65C8C9C8F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508556   (796802) от 09.11.2021
-
-Gorky Park - The Best (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello My Friend (Remastering 2021) (3:45)
- 02. Moscow Calling (Remastering 2021) (4:57)
- 03. Stare (Remastering 2021) (4:44)
- 04. Bang (Remastering 2021) (4:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B7BB4F5E9FA9BA753497C23F876B6F2ADB0F7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,290 @@
+###  Публикация: 1394609   (762305) от 06.07.2020
+
+Psy’Aviah (feat. Kyoko Baertsoen) - Train of Thought (2020) [MP3|320 Kbps] <Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Train Of Thought (03:48)
+ 02. Insomnia (04:06)
+ 03. Train Of Thought (Tom Bro 7'' Club Remix) (03:55)
+ 04. Train Of Thought (SD-KRTR 7'' Remix) (03:53)(   Читать дальше...   )Жанр: Synth PopПродолжительность: 00:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66707E4754262EBF3A01E281F05EA59C3FAE58D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280280   (762227) от 02.02.2019
+
+VA - Playlist Hits (2019) [MP3|320 Kbps] <Pop, Dance, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762227.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Prince Karma - Later Bitches
+02. Angele, Romeo Elvis - Tout oublier
+03. Vegedream - Ma Go Sure(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 03:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C153F474B115428E7FCE701C7CBD068D6A8754A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394650   (762203) от 06.07.2020
+
+VA - Best Covers (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762203.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. No Doubt - It's My Life (Album Version) 03:46
+2. Ellie Goulding - Your Song 03:09
+3. Florence + The Machine - You've Got The Love 02:46
+4. Jamie Cullum - Shape Of You 04:02(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40FFFF4162C4E0564CA40451135D99F2CF45640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661706   (761936) от 27.05.2013
+
+Fancy - Flames Of Love (1988) [FLAC|Lossless]<Italo Disco, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Italo Disco, Disco
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215139   (761676) от 24.03.2018
+
+M.B.T. Soul - Chase! (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chase (15:08)
+02. You Set Me In Motion (3:57)
+03. Soni (4:06)
+04. Deep Love (4:36)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:31:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2993C5B41EC43D025777362A777C755D4D9980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215121   (761538) от 24.03.2018
+
+VA - #Hits 2018 #2 (2018) [MP3|320 Kbps] <Pop, Dance, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761538.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Luis Fonsi Feat. Demi Lovato - Echame La Culpa
+02. MC Fioti, Future, J Balvin, Stefflon Don, Juan Magan - Bum Bum Tam Tam
+03. Imagine Dragons - Whatever It Takes(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 02:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2BF395A0671D2C7F50154C5E3FEF6309A61021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280271   (761496) от 02.02.2019
+
+Кватро - XV лет. Часть 2 (2019) [MP3|320 Kbps] <Pop, Retro>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761496.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Улетай
+2. Caruso
+3. Не жалею, не зову, не плачу
+4. Bella Ciao(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBA7EFEB73EA6524B1DBDD9D75B652D86A1CD4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215070   (761376) от 24.03.2018
+
+Leila K. - Carousel (1993) [FLAC|Lossless|image + .cue] <Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carousel
+02. Open Sesame
+03. Ca Plane Pour Moi
+04. Slow Motion(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47F3883FA1970BF42E7D31A1E19377667A5E133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017751   (760778) от 17.05.2016
+
+Jamala - Подих (2015) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760778.jpg" />
+</div>
+
+
+###  Подробнее
+
+На фоне возросшего интереса к этой самобытной певице с Украины, думаю будет не безинтересно познакомиться с последним её альбомом. Мне показалось, что на Евровидении всеж её голос звучал значительно профессиональнее и лучше. Но это чисто ИМХО. А каждый может сложить своё мнение. Особенно рекомендую послушать Обещание - настоящий хит на все времена!01. Подих  (4:31)
+02. Чому саме тебе (You've got me)  (3:25)
+03. Шлях додому  (4:29)
+04. Бiльше (feat Marphom)  (3:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B0F6E1220A52E4ECE2DEDB38F78119B64DD5AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280595   (760435) от 03.02.2019
+
+Marc De Ville - Don't Smile (1979) LP [MP3|320 Kbps] <Electronic, Power Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя - Rolf Köhler. Немецкий музыкант, композитор, продюсер и исполнитель из Гамбурга. Учавствовал во многих музыкальных проектах, наиболее известный из них - группа Systems In Blue.01. Don't Smile (4:00)
+02. Mistery Woman (3:47)
+03. Annie (I Don't Wanna Talk...) (3:38)
+04. You're The Worst Of All (4:11)(   Читать дальше...   )Жанр: Electronic, Power Pop, Pop RockПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB422895AB1F5AB56C453BB9CF83931AD8418A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522230   (760350) от 06.01.2022
 
 VA - Best Of Funk 2021 (2022) [MP3|320 Kbps] <Disco, Nu-Disco, Funk>
@@ -458,292 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B94A270302E65A7AB43E8BA3A951C9D1863256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215789   (756728) от 27.03.2018
-
-Mary Chapin Carpenter (Мэри Чапин Карпентер) - State Of The Heart (1989) Columbia [MP3|320 Kbps] <Country, Alt-Country, Pop-Rock, Indie, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэри Чапин Карпентер - американская кантри певица, автор песен и актриса. Певица в молодости никогда не представляла себя на профессиональной сцене. Дебютное выступление Мэри состоялось в местном баре, куда её привел отец. В 1981 году будущая певица получила высшее образование. Она стала выпускницей университета «Браун». Главной встречей в её карьере стало знакомство (   Читать дальше...   )01. How Do 2:13
-02. Something of a Dreamer 3:01
-03. Never Had it So Good 4:08
-04. Read My Lips 3:09(   Читать дальше...   )Жанр: Country, Alt-Country, Pop-Rock, Indie, Soft RockПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC965D55EF67A35736655621EFE1B067A9215C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215811   (756601) от 27.03.2018
-
-Reflection - A Whiter Shade Of Pale (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Whiter Shade Of Pale (14:23)
-02. A Woman In Black (5:00)
-03. Hot Summer Night (7:17)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53B7B74AA71D620261A0F1B9A8377890D742AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662885   (756235) от 30.05.2013
-
-Madonna - The Complete Studio Albums (1983-2008) Box Set, 11CD, 2012, Warner Bros. [FLAC|Lossless|image + .cue] <Pop, Dance, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, ElectronicПродолжительность: 00:56:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662927   (756234) от 30.05.2013
-
-VA - Суперхиты дискотеки 90-х... продолжение (2011) [FLAC|Lossless]<Pop, EuroDance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East 17 - It's Alright (4:43)
-02. E-Type - Set the World on Fire (3:46)
-03. Captain Hollywood - Over and Over (3:47)
-04. DJ BoBo - Take Control (3:48)(   Читать дальше...   )Жанр: Pop, EuroDanceПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395498   (755568) от 10.07.2020
-
-Alan Sorrenti - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Pop, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'unica Donna Per Me (3:45)
-02. Per Sempre Tu (4:35)
-03. Dancing In My Heart (2:54)
-04. Provaci (3:16)(   Читать дальше...   )Жанр: Electronic, Pop, Pop Rock, DiscoПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6ED796CC383B83013594B943CDF93558E58D5D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522874   (755295) от 09.01.2022
-
-Edgar Winter - The Edgar Winter Album (1979) LP [MP3|320 Kbps] <Electronic, Prog Rock, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Your Life To Live (5:31)
-02. Above And Beyond (5:04)
-03. Take It The Way It Is (4:26)
-04. Dying To Live (4:14)(   Читать дальше...   )Жанр: Electronic, Prog Rock, DiscoПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606C9FF2BF7F2B1CA238485DF436A5FD3A8BF867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255332   (754840) от 06.02.2019
-
-Lara Fabian & Igor Krutoi - Mademoiselle Zhivago (2010) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demain N'existe Pas
-02. Toccami
-03. Llora
-04. Russian Fairy Tale(   Читать дальше...   )Жанр: PopПродолжительность: 58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA0D9AB89BEDD41BE20B87034A5657BC6BFF61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355991   (754815) от 09.01.2022
-
-Umberto Tozzi - 26 Albums (1976-2019) Collection [MP3|320 Kbps] <Pop, Pop Rock, Ballad, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умберто Антонио Тоцци (Umberto Antonio Tozzi) – популярный итальянский композитор, эстрадный поп-певец и актер. Имея отличные вокальные данные с раннего детства, он заработал славу композитора в 22 года. Сегодня признан самым востребованным итальянским исполнителем за пределами родины, со времени начала выпуска своих альбомов Тоцци продал около 45 млн. записей.Список альбомов:
-1976 - Donna Amante Mia
-1977 - Aria & Cielo
-1977 - E' Nell'Aria...Ti Amo(   Читать дальше...   )Жанр: Pop, Pop Rock, Ballad, VocalПродолжительность: 01:01:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:238544E8B4107B2C3F43CBA91E829A08D6CEDE61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215947   (754776) от 28.03.2018
-
-Soultans - 2 Albums (1997-1998) [MP3|320 Kbps] <Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Ready (3:31)
-02. I'd Rather Go Blind (4:20)
-03. A Piece Of Heaven (4:21)
-04. If I Can't Have You (4:00)(   Читать дальше...   )Жанр: Pop, Soul,FunkПродолжительность: 01:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC3E2811CBA35BF498BE50FC57E97FACC4171E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395402   (753797) от 11.07.2020
-
-Jason Mraz - Look For The Good (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look For The Good (05:10)
- 02. Make Love (05:36)
- 03. My Kind (04:57)
- 04. Good Old Daze (04:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3B409C049444FC594387FFFCFE9484FA289C2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

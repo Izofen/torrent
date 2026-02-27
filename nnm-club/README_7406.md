@@ -1,25 +1,22 @@
-###  Публикация: 1522131   (755290) от 09.01.2022
+###  Публикация: 1522805   (756899) от 08.01.2022
 
-Temple Song Hearts - Temple Song Hearts XIV (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
+XCOrganizer 1.1.9 [En]
 
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755290.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Haibe Ajike Amar Sakal
-02. Be Brave
-03. Dure Aji Bahu Dure
-04. My Silence Speaks(   Читать дальше...   )Жанр: World, MeditativeПродолжительность: 00:47:47
+XCOrganizer - это инструмент, который позволяет легко найти любой проект на диске. Просматривайте проекты Xcode, рабочие области Xcode, игровые площадки Swift и пакеты Swift, сгруппированные по типам. Назначьте теги в зависимости от целей проекта. Добавляйте все, над чем вы работаете, в избранное.Тип издания: macOS SoftwareРелиз состоялся: 04.01.2022Разработчик: © 2021 Sergii KryvoblotskyiПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60C5D8775CA3C33A72661F9E90A502B86C4A6075
+magnet:?xt=urn:btih:4E8C19D6ACCD526BA9919801E4B8C71D3A874DA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395357   (755289) от 10.07.2020
+###  Публикация: 1522477   (756898) от 08.01.2022
 
-Сьюзан Кейн | Интроверты (2020) [MP3]
+VA - Deep & Soul 3: Deep House Music for Your Soul (2020) [AAC|~319 Kbps] <Deep House, Nu Disco, Soulful House>
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755289.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга о том, как реализовать таланты и амбиции, будучи интровертом. Как оказывать влияние на людей, руководить ими и направлять, сохраняя при этом свое личное пространство. Сьюзан Кейн была консультантом по переговорам в нескольких известных компаниях, среди которых Merril Lynch, Standard & Poor и Shearman & Sterling. Ее статьи по интроверсии и застенчивости (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 12:01:03
+01. J.Axel - As Love Decay (Original Mix) (5:19)
+02. Continuum - Xpress (Ilias Katelanos Remix) (6:31)
+03. Soire - Fractions (Original Mix) (7:00)
+04. Jelly For The Babies - Qinghai (Original Mix) (7:32)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Soulful HouseПродолжительность: 02:12:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F148678B8AF0221F31B395B4E61FF3D7C5D14472
+magnet:?xt=urn:btih:0088A732099C9802C3A5CE6D05B4D6F4B1BA672E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +53,251 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522941   (755288) от 09.01.2022
+###  Публикация: 1522474   (756897) от 08.01.2022
 
-Eve St. Jones - French Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Easy Listening>
+VA - Deep & Soul 2: Deep House Music for Your Soul (2020) [AAC|~322 Kbps] <Deep House, Nu Disco, Soulful House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magmatunes - The Beach (Original Mix) (4:36)
+02. Gary B - No Secrets (Original Mix) (5:36)
+03. Ben Pierre - Towada (Original Mix) (6:28)
+04. Rolhay - Fortris (Original Mix) (7:46)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Soulful HouseПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64BDE1BF6B46E056F98E083212030C4706EF6FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522470   (756896) от 08.01.2022
+
+VA - Deep & Soul 1: Deep House Music for Your Soul (2020) [AAC|~325 Kbps] <Deep House, Nu Disco, Soulful House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siso Em - Your Whispers (Original MIx) (7:04)
+02. Soul 96 - Love Is Colour (Original Mix) (6:14)
+03. Deep Spelle - My Heart (Alvaro Hylander Remix) (7:29)
+04. Ivan Garci - Ánimo (Original Mix) (7:58)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Soulful HouseПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:132096ACC64F1737528A3E37EF4FEBA77E340BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522781   (756895) от 08.01.2022
+
+Animated Wallpapers 1.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Animated Wallpapers - приложение говорит само за себя.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2021Разработчик: © 2021 Marian RaafatПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C521EBB3CE268B48EC3E80EEB0E0823AD3CB8682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522767   (756894) от 08.01.2022
+
+Джулиан Гоф, Джим Филд | Кролик и Мишка. Пернатый задира (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кролик хочет только одного – тишины. Ох! От этого ужасного стука у него даже уши заболели. И как только Мишка может спокойно похрапывать у себя в углу? БУМ-БУМ-БУМ! Но скоро Кролик сможет посмотреть на эту ситуацию совсем с другой стороны.
+Серия книг про Кролика и Мишку была переведена на 12 языков и попала в шорт-листы премий Великобритании и Ирландии.
+Писатель (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E994672E0FA802E249B98BC22AEFD510588071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522765   (756893) от 08.01.2022
+
+Его преданность / His Trust (1911) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полковник отправляется на войну. Оставляя дома жену и маленькую дочь, он просит своего слугу присмотреть за ними. Вскоре приходит весть о гибели полковника.Производство: США, Biograph CompanyЖанр: Драма, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Уилфред Лукас, Делл Хендерсон, Клер Макдауэлл, Эдит Хелдеман, Дороти Уэст, Гарри Хайд, Линда Арвидсон, Дороти Бернард, Кейт Брюс, Adele DeGardeПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C01F31BF160C247D8DD372A09C3A74048AD8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522762   (756892) от 08.01.2022
+
+Bigasoft Audio Converter for Mac 5.6.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bigasoft Audio Converter для Mac, все-в-одном аудио преобразователь для Мас, предоставляет легкий путь для преобразования всех популярных аудиоформатов, включая WMA, MP3, APE, M4A, AAC, AC3, WAV, OGG, AUD, AIFF, CAF, FLAC, и другие дляMac OS X Lion, Snow Leopard, Tiger, и Leopard.
+Извлечение аудиодорожек из видеофайлов разных форматов.
+Например, MP4, MOV, AVI, MPEG, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.01.2022Разработчик: © 2021 Bigasoft CorporationПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512B1217E9DFD595E5AEF72AC1F70EB3D1B451B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522775   (756891) от 08.01.2022
+
+Downie 4 v4.4.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 07.01.2022Разработчик: © 2021 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BD3FB0B81D8E28275FE319CD54DA828724F6ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522716   (756890) от 08.01.2022
+
+Bart&Baker - Nicolle Rochelle Sings Bart&Baker: The First Lady of Electro Swing (2016) [AAC|~331 Kbps] <Electro Swing, Nu Jazz, Breakbeat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bart&Baker, Nicolle Rochelle - The Swing Phenomenon (Radio Edit) (3:51)
+02. Bart&Baker, Nicolle Rochelle, Pete Thomas, the Horns-a-plenty - Big Band (Electro Swing English Radio Edit) (2:57)
+03. Nicolle Rochelle, Sax By C.Sharp - Why Does Love Always End Up in Tears? (Original Version) (3:48)
+04. Bart&Baker, Au p'tit Bonheur, Nicolle Rochelle - I (   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, BreakbeatПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:560421997090C9BAFCCE7885021E9B48AE8D16DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522666   (756889) от 08.01.2022
+
+Count Basie - The Complete Clef / Verve Count Basie Fifties Studio Recordings (1952 - 1957) 8CD, 2005, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755288.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Break My Heart
-02. Simple Song
-03. Peaches
-04. New Light(   Читать дальше...   )Жанр: Pop Jazz, Easy ListeningПродолжительность: 00:33:50
+CD1:
+01. New Basie Blues [3:26]
+02. New Basie Blues (45 tk) [3:33]
+03. Sure Thing [3:03](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 08:49:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9849B7378DD0F16C59CF6CE46F9931A6678A0AC7
+magnet:?xt=urn:btih:C0FC531416E3A1AB664F0CCC9B7506016612CFDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +305,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395390   (755287) от 10.07.2020
+###  Публикация: 1522480   (756888) от 08.01.2022
 
-Cartoon Network | Артбук по мультфильму Steven Universe: The Movie / The Art of Steven Universe The Movie (2020) [CBR] [EN]
+VA - Deep & Soul 4: Deep House Music for Your Soul (2022) [AAC|~326 Kbps] <Deep House, Nu Disco, Soulful House>
 
->>Комиксы и Артбуки
->>Артбуки
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755287.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по мультфильму "Steven Universe: The Movie".Жанр: АртбукФормат: CBR
+01. Joy Legend - Gently (6:41)
+02. M-Sol Project - Shine (Original Mix) (5:23)
+03. Simply Chill, Arthur Clemens - My Love to You (Extended Mix) (6:54)
+04. Schwarz & Funk - Open Your Mind (Nu Disco Mix Radio Cut) (3:00)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Soulful HouseПродолжительность: 01:50:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47C6C367640A3AB092BACBF13210BCA982CBE5FF
+magnet:?xt=urn:btih:55E003DBB937A6EA065AD79445260D8A36D08F5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +334,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395251   (755286) от 10.07.2020
+###  Публикация: 1522770   (756887) от 08.01.2022
 
-VA - This is Rock Blues folk country (2020) [MP3|320 Kbps] <Rock, Blues, Country>
+Михаил Липскеров | Добрые сказки. Про Бабку Ёжку. Сказки (2020) [PDF]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755286.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756887.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cream - Sunshine Of Your Love
-02. The Doors - Roadhouse Blues
-03. Jimi Hendrix - Purple Haze
-04. Lynyrd Skynyrd - Sweet Home Alabama(   Читать дальше...   )Жанр: Rock, Blues, CountryПродолжительность: 06:27:53
+Михаил Фёдорович Липскеров — сценарист, автор известных произведений, по которым были сняты мультфильмы «Как Волк Телёночку мамой был», «Про гномика Васю», «Уважаемый Леший».
+Книга Михаила Липскерова «Про Бабку Ёжку. Сказки» — это новые истории из жизни персонажей русских сказок: Бабы-яги, Лешего, Кикиморы, Кощея Бессмертного и других. А началось всё с появления (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3E88DDD0750F2710FDCFC7BA90AF02DC71A75C1
+magnet:?xt=urn:btih:166A05F5A511ABDB60CD9FF2A22F8070475727F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +361,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395483   (755285) от 10.07.2020
+###  Публикация: 1522804   (756886) от 08.01.2022
 
-BBC. Как устроены шикарные отели. Hacienda Hotel Vira Vira (Чили) / Amazing Hotels: Life Beyond the Lobby (2018) HDTV [H.264/1080i] (сезон 2, серия 6)
+Tweak Photos - Image Editor 2.8 [En]
 
->>Зарубежные TV-бренды
->>BBC
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755285.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отели, воплотившие в себе самые смелые архитектурные идеи, можно найти по всему свету. Все они - результат изобретательности и тяжёлого труда. Персонал таких отелей стремится создать для своих гостей идеальные условия для отдыха. Hacienda Hotel Vira Vira объединяет на своей территории великолепный отель и собственную ферму. Здесь выращивают овощи, фрукты, производят (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательныйРежиссер: Айдан ВудвордПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:15
+"Все любят фотографировать. Но насколько хорошо Вы можете редактировать тысячи снимком, используя Ваш Mac является большим вопросом" - говорят разработчики Приложения.
+Компания Systweak разработала совершенно новое приложение для пакетного редактирования изображений на Mac - Tweak Photos. С помощью Tweak Photos , редактирование тысячи Ваших фотографий - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.12.2021Разработчик: © 2021 Systweak Software Private LimitedПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3342106AFF103A30D51BB38C7BC57206E29C129D
+magnet:?xt=urn:btih:BAAC94D73D96DE0E8A728D7717802912662EFFE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,28 +388,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395413   (755284) от 10.07.2020
+###  Публикация: 1522683   (756885) от 08.01.2022
 
-VA - Romantic Soul: Popular Lyric Collection (2020) [MP3|320 Kbps] <Romantic, Pop, Lyric>
+Leave The Dead - The Cicada King (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755284.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756885.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Luke Evans - Always Remember Us This Way
-002. Dadou Pasquet - Pran Konsians
-003. Lennon Stella - Older Than I Am
-004. Dermot Kennedy - Outnumbered(   Читать дальше...   )Жанр: Romantic, Pop, LyricПродолжительность: 07:47:44
+01. Everyone Is Dead
+02. The Cicada King
+03. Wardogs
+04. Bestow The War(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:45:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28708B16CDC416AF31C0AF766F0068F414B38DD7
+magnet:?xt=urn:btih:5F86BD36406B744F32FC9A17C2A0E082C8A6C3DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,25 +417,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395383   (755283) от 10.07.2020
+###  Публикация: 1522764   (756884) от 08.01.2022
 
-ArenaNet, Indigo Boock | Артбук по играм Guild Wars / The Complete Art of Guild Wars: ArenaNet 20th Anniversary Edition (2020) [CBR] [EN]
+Bigasoft Total Video Converter for Mac 5.6.0 [Multi/Ru]
 
->>Комиксы и Артбуки
->>Артбуки
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755283.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по играм Guild Wars и Guild Wars 2.Жанр: АртбукФормат: CBR
+Bigasoft Total Video Converter для Mac, профессиональный и удобный в работе преобразователь видео, специально разработан для пользователей Mac, чтобы легко преобразовать между различными видеоформатами включая MP4, МОВА, MKV, AVI, MPEG, Xvid, DivX, H.264, 3GP, WMV, FLV, MOD, TOD, WTV, MXF, MVI, F4V, Apple ProRes МОВ, WebM, VP8, 720p, 1080p, 1080i HD, AVCHD и другие, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.01.2022Разработчик: © 2021 Bigasoft CorporationПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:808D59C986E8AF60FDA71EBCD3793D7DA49669CF
+magnet:?xt=urn:btih:45F1E119B1A895F5F2081E24A2ED4D93C86B9027
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -218,21 +443,75 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395437   (755282) от 10.07.2020
+###  Публикация: 1395236   (756863) от 09.07.2020
 
-mp3DirectCut 2.30 [Multi/Ru]
+Звуковые библиотеки - Splice - Travis Barker Drum Kit [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трэвис Баркер считается одним из самых влиятельных барабанщиков современности. Он музыкант и продюсер мирового уровня, который продал миллионы пластинок вместе со своими группами blink-182, +44 и Transplants. Будучи сольным артистом, Баркер также продюсировал и принимал участие в проектах, охватывающих широкий спектр жанров, с такими сотрудниками, как Лил Уэйн, Сайпресс (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE45AD4053A7F85DAC4EA70FC62AB81CBA6455BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395243   (756862) от 09.07.2020
+
+Василий Головачев | Враги большого леса (2020) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Очень большой лес».
+
+Группа военных и археологов застряла в незнакомом мире. Мире, где кажется, что нет ничего, кроме леса, покрывающего собой целую планету. Наши герои начинают потихоньку привыкать к новым и крайне непривычным обстоятельствам. Но у этого леса есть свои законы и даже некая загадочная форма разума. Вскоре становится понятно, что (   Читать дальше...   )Жанр: Боевая фантастика, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C584F13576F15ACCAD6F0B31D6E0C87DA74F5B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395213   (756861) от 09.07.2020
+
+Текстуры - Creative Market - 100 Seamless Patterns Vol.3 - 4014453 [EPS, PAT, JPG]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755282.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_756861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшой редактор mp3 файлов. Позволяет обрезать тишину в начале и/или конце файла, нормализировать звук, а также плавно убирать его в конце композиции, объединять файлы, редактировать ID3-тэги и записывать mp3 непосредственно на диск.Язык интерфейса: Русский, Английский и другие
+Пакет с бесшовными узорами - эти изображения или текстуры, которые можно дублировать и размещать рядом, без четких границ или разделений. Эти шаблоны позволяют создавать одно изображение, которое будет бесконечно повторяться для создания уникальных фонов / текстиля / ткани.Формат: EPS, PAT, JPGРазрешение файлов: 1800x1800-3600x3600
 
 ## Скачать торент
 ```bash
@@ -244,28 +523,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395161   (755281) от 10.07.2020
+###  Публикация: 334826   (756860) от 09.07.2020
 
-Boris Brejcha - Live Stream Mix (Continuous Mix) (2020) [FLAC|Lossless|WEB-DL|image] <Tech House, Minimal>
+Марк Твен | Принц и Нищий (1993) [PDF]
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755281.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Cocoloco (Mixed) (6:47)
-2. Face Slap (Mixed) (7:00)
-3. Panic Room (Mixed) (5:46)
-4. Eternity (Mixed) (5:23)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 00:52:21
+В один и тот же день рождаются два мальчика — Том, сын вора Джона Кенти, ютящегося в вонючем тупике  под названием Двор Отбросов, и Эдуард, наследник короля Генриха Восьмого. Эдуарда ждет вся Англия, Том не очень-то нужен даже собственной семье, где только отец-вор и мать-нищенка. Случайно Принц и  Нищий встречаются, Принц расспрашивает Тома о его жизни во Дворе Отбросов, (   Читать дальше...   )Жанр: Классика детской художественной литературыФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6416FDD794C3C90BA55167FFFE9EB650669BB2DA
+magnet:?xt=urn:btih:256B66F43719C412D86F50AF21E7600FBEB27EEA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,25 +549,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395389   (755280) от 10.07.2020
+###  Публикация: 1395189   (756859) от 09.07.2020
 
-Дядя Степа (1939) TVRip [H.264] [hand made colored]
+Debian Edu - Skolelinux 10.4.0 Buster [Linux для школы] [i386, x86-64] 2xBD
 
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
+>>Linux, Unix и другие ОС
+>>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755280.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм создан по мотивам одноименного произведения С. Михалкова. Про районного великана дядю Степу, который дружит с детишками, по воскресеньям гуляет с ними за городом, помогает попавшим в беду.Производство: СССР, СоюзмультфильмЖанр: Рисованная анимация, ДетскийРежиссер: Владимир СутеевСубтитры: отсутствуютПродолжительность: 00:18:18
+Debian Edu, также известный как Skolelinux, является дистрибутивом Linux на основе Debian, предоставляющим «из коробки» готовое окружение для развёртывания полностью готовой и настроенной школьной сети. Сразу же после установки на школьном сервере запускаются все необходимые для школьной сети службы и просто ждут пользователей, сами машины добавляются в сеть через (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF59EE34A7F7D0B919DC62176FA142B5DDB74B07
+magnet:?xt=urn:btih:58D55310A8FBE6D29A20956011A651DAA262DB0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,25 +575,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395491   (755279) от 10.07.2020
+###  Публикация: 1388597   (756858) от 09.07.2020
 
-VidCoder 5.21 + Portable [Multi/Ru]
+На несколько долларов больше / Per qualche dollaro in piu / For a Few Dollars More (1965) BDRemux [H.264/1080p]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_756858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заработать несколько лишних долларов честным путем на диком Западе не проблема, если у тебя есть проверенный кольт и разрешение властей на отстрел бандитов. Этим путем и идут бок о бок профессиональные охотники за головами негодяев «Человек без имени» и полковник Мортимер, общая цель которых — преступная банда мексиканца Индио.Производство: Италия, Испания, Германия (ФРГ) / Arturo González Producciones Cinematográficas S.A., Constantin Film Produktion GmbH, Produzioni Europee Associati (PEA)Жанр: Вестерн, драма, боевикРежиссер: Серджио ЛеонеАктеры: Клинт Иствуд, Ли Ван Клиф, Джан Мария Волонте, Марио Брега, Луиджи Пистилли, Альдо Самбрель, Клаус Кински, Бенито Стефанелли, Луис Родригес Палильо, Панос ПападопулосПеревод: Профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: Русские (Full), английские (Full)Продолжительность: 02:11:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395210   (756857) от 09.07.2020
+
+Текстуры - Creative Market - 100 Seamless Patterns Vol.1 - 3833959 [EPS, PAT, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет с бесшовными узорами - эти изображения или текстуры, которые можно дублировать и размещать рядом, без четких границ или разделений. Эти шаблоны позволяют создавать одно изображение, которое будет бесконечно повторяться для создания уникальных фонов / текстиля / ткани.Формат: EPS, PAT, JPGРазрешение файлов: 1800x1800-3600x3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEBE38DFA5CA2DADD0D635D8F865561BA1B5825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395132   (756856) от 09.07.2020
+
+MusicBee 3.3.7491 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755279.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VidCoder - небольшая утилита, с помощью которой можно извлекать видео с DVD/Blu-ray-дисков, а также осуществлять транскодирование видеороликов. В качестве инструмента кодирования используется HandBrake.Присутствует пакетная обработка файлов, возможность добавлять субтитры к видео в формате SRT, настраивать параметры кодирования (обрезка изображения, настройка разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+MusicBee — это одновременно простой, но серьёзный продукт для обеспечения быстрого доступа и управления музыкальными коллекциями, треками, с многочисленными функциями. Приложение позволит редактировать метаданные в файлах, производить автоматический поиск обложек к альбомам, загружать из Сети тексты песен и другую информацию. Имеется даже функция «track identifed», (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E53F7DC3F62223E25D08A303DC5A9130959C9D98
+magnet:?xt=urn:btih:963C1B78E8F03735ABD9EE7CB2DF3E6743B6E340
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,25 +653,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395417   (755278) от 10.07.2020
+###  Публикация: 1395274   (756855) от 09.07.2020
 
-Зыбучие пески: Нет выхода / Quicksand: No Escape (1992) DVDRip
+Зачарованная / Enchanted (2007) WEBRip [H.264/1080p-LQ] [Open Matte] [Локализованная версия]
 
 >>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755278.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дама нанимает сыщика, чтобы получить весомые доказательства измены своего мужа-архитектора, а сыщик вместо того, чтобы следить за ним, решает проявить инициативу и превратить архитектора в подозреваемого.Производство: США / MCA Television Entertainment IncЖанр: ТриллерРежиссер: Майкл ПрессманАктеры: Дональд Сазерленд, Тим Мэтисон, Джей Аковоне, Тимоти Кархарт, Фелисити Хаффман, Маргарет Рид, Марк Алаймо, Аль Пульезе, Коллин Нельсон, Эми БенедиктПеревод: Дублированный (телекомпания "Шестой канал")Субтитры: ОтсутствуютПродолжительность: 01:32:25
+Юная девушка из мультипликационного мира влюбилась в прекрасного принца, чем немало разозлила его мачеху. С помощью черной магии королева отправляет несчастную в единственное место во Вселенной, где нет любви — современный Манхэттен. Вчерашней мультяшке придется как-то выживать в реальности.Производство: США / Walt Disney Pictures, Andalasia Productions, Josephson EntertainmentЖанр: фэнтези, комедия, мелодрама, приключенияРежиссер: Кевин ЛимаАктеры: Эми Адамс, Патрик Демпси, Джеймс Мэрсден, Тимоти Сполл, Идина Мензел, Рэйчел Кови, Сьюзен Сарандон, Джули Эндрюс, Джефф Беннетт, Кевин Лима, Эмма Роуз ЛимаПеревод: Дублированный, двухголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), английскиеПродолжительность: 01:47:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:896E792E18B78F701922269133DC26E4AF4821B3
+magnet:?xt=urn:btih:A00173828082D9E82ED6E1144E3FE99B4715DE84
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,352 +679,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395108   (755277) от 10.07.2020
+###  Публикация: 1395152   (756854) от 09.07.2020
 
-VA - Летняя свежая 30-тка Vol 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755277.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Agunda - Ну почему (2:21)
-2. ARi & Sam Vii - Под Шашлычок (3:47)
-3. BAV - ПЧЕЛОБАВ УРОД (2:43)
-4. DAVA - ЧЁРНЫЙ БУМЕР (feat. SERYOGA) (2:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B14A851D312EB479160F2397337FEBEE904D2AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395057   (755276) от 10.07.2020
-
-Atom Music Audio - Guardians I (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeolus [03:35]
-02. Evolving [02:17]
-03. Guardians Rising [03:26]
-04. For Honor [02:38](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395269   (755275) от 10.07.2020
-
-Ennio Morricone - Famous Morricone Soundtracks (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ennio Morricone - Morricone: Jill's Theme (2016 Version)
-02. Ennio Morricone - Gabriel's Oboe (From "The Mission")
-03. Ennio Morricone - Morricone: On Earth As It Is In Heaven (2016 Version)
-04. Ennio Morricone - Morricone: Chi Mai (2016 Version)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 03:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4B487499C709E0864C859B1C0481F70DD59BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395451   (755274) от 10.07.2020
-
-Visual Studio Code 1.47.0 + Portable [Multi/Ru]
+K-Lite Codec Pack 15.6.0 Mega/Full/Standard/Basic + Update [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755274.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756854.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:125A97217CA37001CF5303C9EBB9D47A52CC1C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395439   (755273) от 10.07.2020
-
-Tim Lapetino | Артбук по играм Atari / Art of Atari [2 книги] (2016-2017) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбуки содержат фотографии и описание видеоприставкок Atari а также постеры и обложки игр для них.Жанр: АртбукФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A6BC5DFC1185852E88D8C1BB853CC00C74D570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888063   (755271) от 14.04.2015
-
-Счастливый брак / A Good Marriage  (2014) BDRip [H.264/720p] [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755271.jpg" />
-</div>
-
-
-###  Подробнее
-
-После 25 лет счастливого брака Дарси узнаёт зловещий секрет о своём муже. Как быть, если под угрозой не только семья, но и жизнь?Производство: СШАЖанр: триллер, драмаРежиссер: Питер ЭскинАктеры: Джоан Аллен, Энтони ЛаПалья, Кристен Коннолли, Стивен Лэнг, Кара Буоно, Майк О’Мэлли, Тео Стокман, Джейсон Е. Теста, Уилл Роджерс, Грегг Майклс, Мина Сандвол, Терра МакинтошПеревод: ОтсутствуетПродолжительность: 01:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE36215EDB93D0B93D533FEAEF66D3F60E22E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888213   (755270) от 14.04.2015
-
-Gore Tech - Futurphobia (2015) [FLAC|Lossless|WEB-DL]<Industrial, Breakcore, Drum n Bass, Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. >_Run (William Gibson) (2:09)
-02. The Zerofinity Event (4:26)
-03. Optical Hybrid (5:58)
-04. The Ghost Particle (5:44)
-05. The Plague Of Zion (3:56)(   Читать дальше...   )Жанр: Industrial, Breakcore, Drum n Bass, DubstepПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC83095DEF8409C6E9B76C03981CCA5B18250CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888294   (755267) от 14.04.2015
-
-Журнал | Дилетант №3 (39) (март 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый исторический журнал, в живой, далеко не академической форме передающий колорит эпох и помогающий ориентироваться в истории, искать и находить в прошлом ответы на многие сегодняшние вопросы. В каждом номере увлекательные и познавательные материалы, подготовленные именитыми историками, великолепными писателями, популярными журналистами. Каждый выпуск журнала поистине интересен и уникален.Жанр: Исторический журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E567F6A2E4AC7640EA8E959EFEEA8455660A26C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888463   (755263) от 14.04.2015
-
-Мама в законе (2014) HDTVRip (сезон 1, серии 1-4 из 4)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Светлана выходит из мест заключения и ищет своего сына Алекса, определенного в детдом органами опеки. Используя криминальные связи, она узнает, что мальчик усыновлен и проживает в семье генерала Терентьева. Она устраивается гувернанткой в дом генерала. Но видя, как Алекса любят в семье, Светлана не решается признаться ребенку, что она — его мать. Узнав о готовящемся (   Читать дальше...   )Производство: "Мостелефильм", РоссияЖанр: мелодрамаРежиссер: Михаил ВассербаумАктеры: Виктория Тарасова, Андрей Стоянов, Андрей Чернышов, Екатерина Семёнова, Саша Дробитько, Роман Агеев, Наталья УнгардПродолжительность: ~ 00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C94E8950A44EF515EF9CFB5ADD5EFC51EF8E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888160   (755261) от 14.04.2015
-
-MediaInfo Lite 0.7.73.0 repack by cuta [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755261.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaInfo Lite позволяет получать техническую информацию из видео- или аудио- файлов.
-Это инструмент для анализа мультимедийных файлов. Он может дать вам информацию об аудио и видео форматах файлов. Разрешение видео, продолжительности и т. д. Он дополнительно включает в себя расширение проводника Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791B79F3B63897FF57D4DF5BC63E27783F996B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888425   (755259) от 14.04.2015
-
-Журнал | Новый дом №5 (май 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание публикует наиболее актуальные материалы по вопросам строительства и обустройства загородных домов, оформления придомовой территории, создания ландшафтных композиций. Кроме этого, журнал содержит самую интересную информацию о стилях, направлениях, необычных идеях и их воплощениях в интерьерах коттеджей, предлагает набор планировочных и оформительских решений, практические рекомендации по созданию различных конструкций, подробные описания этапов строительства домов по различным технологиям, а также выявляет (   Читать дальше...   )Жанр: Строительство, ремонт, дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109E3F20BCD9EF63F17EDAE2C2664D695C4D85C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887751   (755256) от 14.04.2015
-
-Осторожнее с желаниями / Careful What You Wish For  (2015) BDRip [H.264/1080p] [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парень, вступив в отношения с женой инвестиционного банкира, совсем не ожидал того, что за этим последует. Вскоре после подозрительной смерти банкира, чья жизнь была застрахована на огромную сумму, ситуация принимает неблагоприятный для него оборот...Производство: СШАЖанр: триллерРежиссер: Элизабет АлленАктеры: Изабель Лукас, Дермот Малруни, Ник Джонас, Пол Сорвино, Грэхэм Роджерс, Кейтлин Эрвин, Марк Маколей, Алекс тер Авест, Кевин Дж. О’Коннор, Дэвид Шерилл, Фред Галле, Кики ХаррисПеревод: ОтсутствуетПродолжительность: 01:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2D537A17C1D3E11B545B75CBAAEF3DFD62EDD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888276   (755254) от 14.04.2015
-
-Advanced Installer 12.0 Build 63246 RePack (& Portable) by D!akov [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced Installer - это мощное и простое в использовании средство для создания программ установок в формате MSI / EXE за считанные минуты. Решение Advanced Installer основывается на использовании стандартных открытых форматов. Файлы проектов сохраняются в формате XML, что упрощает их интеграцию с системами управления исходными текстами. Advanced Installer - профессиональный инструмент для создания MSI-установщиков приложений под операционные системы Windows.
-Программа крайне проста в использовании (для своего (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAAD974D9DA29DD3862E0B252BB3FB0752F529B
+magnet:?xt=urn:btih:33E00B3C8711EADB473D8D1D12666735663BE566
 ```
 
 https://mybot314.ru/tekegram_catalog/

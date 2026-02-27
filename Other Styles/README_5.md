@@ -1,3 +1,61 @@
+###  Публикация: 1464295   (1019975) от 21.04.2021
+
+Gandiva - All Your Grace (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surjya Debata
+02. All Your Grace
+03. Nijhum Rate
+04. Aum Govindaya Nama(   Читать дальше...   )Жанр: World, MantrasПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732EB8DA94AC57E17857F1F4423A0591C54095F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464254   (1019974) от 21.04.2021
+
+VA - Tribal Dreaming (2005) [MP3|320 Kbps] <NewAgе, Tribal-trance, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Prem Joshua - Dakini (Monsoon Remix)
+02. Leaving Footprints - Forefathers
+03. Daion - Pachakuteq
+04. Ariel Kalma/James Nicholas - Ano Tao Inan(   Читать дальше...   )Жанр: NewAgе, Tribal-trance, ChilloutПродолжительность: 00:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D647B54A8D414895F099EC6663B537804473968B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464189   (1019973) от 21.04.2021
 
 Kailash Kokopelli - Collection (2000-2005) 2альбома [MP3|320 Kbps] <Native American, Didgeridoo, Trance>
@@ -689,64 +747,6 @@ Yiruma - f r a m e (2021) Reissue [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D778C15F0D4207555809DB220AAB4E1AB3C425BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474406   (1012935) от 02.06.2021
-
-Ben Leinbach - The Spirit of Yoga (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khumjung
-02. Horizon of Gold
-03. Mother's Wingspan
-04. The HierophantЖанр: New Age, MeditativeПродолжительность: 00:62:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD609BC08945B113F46394837744389B0892641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 169972   (1012498) от 05.06.2021
-
-Roses Never Fade - Roses Never Fade (2009) [FLAC|Lossless|image + .cue] <Folk Rock, Neo-Folk, Psychedelic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sickness That Never Sleeps - 3:25
-02. Runaway - 2:10
-03. Cauterize November - 2:00
-04. Fourth Horseman - 2:42(   Читать дальше...   )Жанр: Folk Rock, Neo-Folk, PsychedelicПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1A6CF360DBA71150556CD85C8842DBF09C3AB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

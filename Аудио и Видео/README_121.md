@@ -1,25 +1,25 @@
-###  Публикация: 1527732   (736446) от 29.01.2022
+###  Публикация: 1534753   (690852) от 04.03.2022
 
-VA - Sunrise Meditation, Vol. 07 (2021) [AAC|~330 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
+VA - Colours of Lounge, Vol. 4 (2022) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736446.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690852.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Johannes Huppertz, Mirage Of Deep - More Than I Can Bear (Original Mix) (4:25)
-02. Marc Hartman, Airily - Spirits (Original Mix) (4:26)
-03. Weathertunes - Mystic River (Original Mix) (5:18)
-04. Lemongrass - Divine Love (Original Mix) (4:53)(   Читать дальше...   )Жанр: Lounge, Lo-Fi, Ambient, New Age, Chill OutПродолжительность: 01:40:04
+01. Weathertunes - La jolie (Original Mix) (4:54)
+02. Nightgroovaz - I Will Be Yours (Original Mix) (5:07)
+03. Florent Campana - Golden Hour (Original Mix) (2:53)
+04. Lounge Groove Avenue - Soul Diva (Original Mix) (3:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A53B0105C375AB849562D55302104E24D23090A
+magnet:?xt=urn:btih:7474EDFF22B4ECF360FB000927A769A02C0A4E19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527569   (736445) от 29.01.2022
+###  Публикация: 1534752   (690848) от 04.03.2022
 
-VA - 3xA Music The Best of 2021 (2022) [AAC|~335 Kbps] <Progressive House>
+VA - Soothing Time (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736445.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690848.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mazamitla Johnson - Imagination (Pepe Camil's Dream Remix) (7:17)
-02. Gashito - Centenary (7:48)
-03. VegaZ SL, Mr. Freeze (SL) - Parallel Thoughts (ZAHNA Remix) (8:31)
-04. Cryptic Realms - New Moon (Arken X Remix) (7:48)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:38:59
+01. The Sura Quintet - Stay Smiling (5:51)
+02. Lovers in Motion - A Matter of When (6:01)
+03. Fascinating Case - Immersive Experiences (5:40)
+04. Lusser - Asterism (5:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B1E81ADA8D99F3C7F4D1E814249EDCF35F4BA7F
+magnet:?xt=urn:btih:F0F7D22C0ED4B2A673DC1639F06786B581ABDE62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527722   (736444) от 29.01.2022
+###  Публикация: 1534627   (690733) от 04.03.2022
 
-VA - Sunrise Meditation, Vol. 01 (2020) [AAC|~314 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
+VA - Spiritual Spa, Vol. 4 (2022) [AAC|~299 Kbps] <Downtempo, Balearic, Chill Out>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736444.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690733.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lemongrass - Moon and Sun (Original Mix) (10:37)
-02. Slow World - Bhutan (Original Mix) (5:55)
-03. Jasmon - Fata Morgana (Original Mix) (3:14)
-04. Yantra Mantra - Raga Sundara (Original Mix) (4:07)(   Читать дальше...   )Жанр: Lounge, Lo-Fi, Ambient, New Age, Chill OutПродолжительность: 01:31:27
+01. Jens Buchert - Sphere Wizard (Original Mix) (4:05)
+02. Lemongrass - Dream Zone (Original Mix) (4:12)
+03. Focusal - Ancient Times (1:31)
+04. Lemongrass - Wormhole (Original Mix) (1:54)(   Читать дальше...   )Жанр: Downtempo, Balearic, Chill OutПродолжительность: 01:00:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5510201D72C6753F4B7EE564672A98121AEADBB
+magnet:?xt=urn:btih:86C6433298454BDE581BA44B41BDC2F8D4E91689
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527742   (736442) от 29.01.2022
+###  Публикация: 674498   (690676) от 01.07.2013
 
-VA - Sunrise Meditation, Vol. 09 (2021) [AAC|~322 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
+Крупная рыба / Big Fish (2003) [720p] BDRip [ATV]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736442.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lemongrass - You Are Not Alone (Original Mix) (4:00)
-02. Sebastian Bach - Dream Catcher (Original Version) (4:10)
-03. Yantra Mantra - Chamsa (Original Mix) (5:32)
-04. Marc Hartman - Walk Away (Original Mix) (5:06)(   Читать дальше...   )Жанр: Lounge, Lo-Fi, Ambient, New Age, Chill OutПродолжительность: 01:14:50
+В основу этой приключенческой ленты положен роман Дэниела Уоллеса «Большая рыба: роман мифических пропорций». Умирает отец, о жизни которого сын хочет узнать как можно больше, собирая истории о нем.
+
+Сын пытается воссоздать ускользающую жизнь отца в серии легенд и мифов, которые тот придумывает на основе разрозненных фактов. Взлеты и падения в жизни человека в итоге (   Читать дальше...   )Производство: USAЖанр: фэнтези, драма, приключенияРежиссер: Тим БёртонВ ролях: Юэн МакГрегор, Альберт Финни, Билли Крудап, Джессика Лэнг, Хелена Бонем Картер, Элисон Ломан, Роберт Гийом, Марион Котийяр, Стив Бушеми, Дэнни ДеВитоПеревод: Профессиональный (полное дублирование)Субтитры: Русские, АнглийскиеФормат: MP4 (контейнер m4v)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD3EE7A87CB39D1974F17360D14D36D058897326
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +113,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527723   (736441) от 29.01.2022
+###  Публикация: 674896   (690572) от 01.07.2013
 
-VA - Sunrise Meditation, Vol. 02 (2020) [AAC|~317 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
+Падение Олимпа / Olympus Has Fallen (2013) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736441.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lemongrass - Beside You (Original Mix) (5:06)
-02. Yantra Mantra - Chamsa (Original Mix) (5:32)
-03. Jens Buchert - Echospheres (Original Mix) (5:24)
-04. Slow World - Alaska (Original Mix) (6:55)(   Читать дальше...   )Жанр: Lounge, Lo-Fi, Ambient, New Age, Chill OutПродолжительность: 01:30:12
+Когда на Белый Дом нападают террористы, а президента берут в заложники, дискредитированный бывший охранник главы государства Майк Бэннинг оказывается внутри захваченного здания. И теперь он единственный, кто сможет спасти президента...Производство: США / © Millennium Films, Nu Image Films, Gerard Butler Alan Siegel EntertainmentЖанр: боевик, триллерРежиссер: Антуан ФукуаВ ролях: Джерард Батлер, Аарон Экхарт, Морган Фриман, Рик Юн, Финли Якобсен, Анджела Бассетт, Рада Митчелл, Роберт Форстер, Дилан МакДермотт, Эшли ДжаддПеревод: Русский дублированныйСубтитры: * 3GPP Text -  АнглийскийПродолжительность: 01:59:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17BB257884EF33409AF69ECC78937816E8F3932D
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +139,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527740   (736440) от 29.01.2022
+###  Публикация: 1027738   (690095) от 22.06.2016
 
-VA - Sunrise Meditation, Vol. 08 (2021) [AAC|~315 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
+Чудеса с небес / Miracles from Heaven (2016) WEB-DL [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736440.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tranquillo - Elaborated Compassion (Original Mix) (4:32)
-02. Vibes In Motion - Dont Worry (Original Mix) (4:51)
-03. Marc Hartman - Afterlife (Original Mix) (5:23)
-04. Chambre 29 - L'amour d'Alberta et Paul (Original Mix) (5:04)(   Читать дальше...   )Жанр: Lounge, Lo-Fi, Ambient, New Age, Chill OutПродолжительность: 01:26:58
+Удивительная история, в которую невозможно поверить, не увидев собственными глазами. Когда кажется все потеряно, и впереди только боль и отчаяние, небеса дарят надежду тем, кто верит.Производство: СШАЖанр: ДрамаРежиссер: Патрисия РиггенАктеры: Дженнифер Гарнер, Кайли Роджерс, Мартин Хендерсон, Брайтон Шарбино, Кортни Фанслер, Куин Латифа, Брайс Зенткович, Эухенио Дербес, Келли Коллинз, Джон Кэрролл ЛинчПеревод: Многоголосый закадровый  (iTunes)Субтитры: Русские,  Английские,  Украинские (полные, отключаемые)Продолжительность: 01:49:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:527D608AEB372D0721B88F3DAF80348363D4A189
+magnet:?xt=urn:btih:4CD393CED1E229B3FAAB07C527FE1AD00D6B21E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +165,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527749   (736438) от 29.01.2022
+###  Публикация: 1028383   (689961) от 22.06.2016
 
-VA - Flowers of Chillout (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
+Голограмма для короля / A Hologram for the King (2016) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736438.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lovers in Motion - A Matter of When (6:01)
-02. Élan Vital - Extravagance (5:55)
-03. Unbekannter Interpret - Capturing the Moment (5:46)
-04. Fascinating Case - Immersive Experiences (5:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:40
+Алан Клей — муж, отец, бизнесмен. Но его бизнес терпит крах, его брак трещит по швам, и он не знает, где взять деньги на оплату обучения дочери. Чтобы избежать банкротства и разорвать замкнутый круг, Клей отправляется в Саудовскую Аравию, где он надеется продвинуть свой дерзкий технологический проект. Во время томительного ожидания встречи с королем Алан познает (   Читать дальше...   )Производство: Великобритания, Франция, Германия, США, МексикаЖанр: Комедия, драмаРежиссер: Том ТыкверАктеры: Том Хэнкс, Александр Блэк, Сарита Чоудри, Сидсе Бабетт Кнудсен, Трэйси Фэирэуэй, Джейн Перри, Том Скеррит, Михаэль Бараль, Льюис Райнер, Александр МолкентинПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:33:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B64DA26212391B32B24B74EE4CC9CE6B1841BE17
+magnet:?xt=urn:btih:607F1FAB1C75F747AAA018537A662EA0B3E90C76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +191,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527764   (736436) от 29.01.2022
+###  Публикация: 1289168   (689940) от 14.03.2019
 
-VA - Fireplace Chill, Vol. 8 (2022) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+Смерть на Ниле / Death on the Nile (1978) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736436.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lazy Hammock, Ivan M-sax - Wavedrops (Michael E Remix) (5:13)
-02. Matthew Daniel, Eleana - Gypsy Day (Lemongrass Remix) (3:43)
-03. Tapelapse - Forgotten Memories (2:39)
-04. Deeper Sublime - Femme fatale (Original Mix) (5:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:01
+Наследница многомиллионного состояния Линнет вышла замуж за жениха своей лучшей подруги Жаклин. Молодожены отправились в роскошный круиз на пароходе «Карнак» по Нилу. А Жаклин решила подпортить настроение новобрачным своим присутствием. На борту парохода оказалось немало других недоброжелателей Линнет. Ей удалось «завербовать» в телохранители знаменитого сыщика Эркюля (   Читать дальше...   )Производство: Великобритания /  Mersham Productions Ltd., EMI FilmsЖанр: Драма, Криминал, ДетективРежиссер: Джон ГиллерминАктеры: Питер Устинов, Джейн Биркин, Лоис Чайлз, Бетт Дэвис, Миа Фэрроу, Джон Финч, Оливия Хасси, И.С. Джохар, Джордж Кеннеди, Анджела ЛэнсбериПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосыйСубтитры: Английские (вшитые, отключаемые)Продолжительность: 02:20:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45DC6725E891614F48585C594387B66C01AF0A86
+magnet:?xt=urn:btih:5271188D91CE8056CFA034327DDDE8532210C9F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,199 +217,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527571   (736435) от 29.01.2022
+###  Публикация: 1289094   (689930) от 14.03.2019
 
-VA - Clinique The Best of 2021 (2022) [AAC|~331 Kbps] <Progressive House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Stories - Bedtime Story (Robert Babicz Remix) (9:07)
-02. Ewan Rill - Smolder (7:56)
-03. Night Stories - Bedtime Story (Alfonso Muchacho Remix) (7:21)
-04. COQUEIT - Claymore (8:00)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF353A0237697A7F955C1C410E3421F848FB2023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527731   (736434) от 29.01.2022
-
-VA - Sunrise Meditation, Vol. 06 (2020) [AAC|~311 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unlimited Sky - Heavens Above (Original Mix) (3:51)
-02. Sebastian Bach - Transcending (Original Version) (3:48)
-03. Jens Buchert - Flying Ocean (Original Mix) (3:05)
-04. Yiddu Delhi - Tender Touch (Original Mix) (4:28)(   Читать дальше...   )Жанр: Lounge, Lo-Fi, Ambient, New Age, Chill OutПродолжительность: 01:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C5DCD6764C9201B89084F237AB8FCB9C22E5C7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527728   (736432) от 29.01.2022
-
-VA - Sunrise Meditation, Vol. 05 (2020) [AAC|~327 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yantra Mantra - Dharma Lounge (Original Mix) (4:37)
-02. Jens Buchert - Helios 3 (Original Mix) (4:52)
-03. Landside - Desert Lake (Original Mix) (4:32)
-04. Eternal Love - I Love You (Original Mix) (2:50)(   Читать дальше...   )Жанр: Lounge, Lo-Fi, Ambient, New Age, Chill OutПродолжительность: 01:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7B0D8375FDABB4E3E7635E2DE64E8D828A4F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527743   (736427) от 29.01.2022
-
-VA - Sunrise Meditation, Vol. 10 (2021) [AAC|~314 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Bach - Supreme Secret (Original Version) (3:54)
-02. Marc Hartman - Glow (Original Mix) (4:24)
-03. Sebastian Bach - Boon and Bane (Original Version) (5:45)
-04. Nordiatic - Black Sand Beach (1:14)(   Читать дальше...   )Жанр: Lounge, Lo-Fi, Ambient, New Age, Chill OutПродолжительность: 01:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7283175E70B5C72AAF7116D0567479B83C42EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527574   (736426) от 29.01.2022
-
-VA - The Art Of Leisure (Nu Soul, Retro Pop and New Easy Wave) (2022) [AAC|~321 Kbps] <Nu Jazz, Lounge, Easy Listening, Soul, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ely Bruna, Papik - Sweet Harmony (4:03)
-02. David Florio - Take Me So (3:34)
-03. The Tangram - Back (4:09)
-04. Papik, Alan Scaffardi - Say It (3:30)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Easy Listening, Soul, PopПродолжительность: 01:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4383B16EB564A475F94905A27CCC3817F242793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527745   (736414) от 29.01.2022
-
-VA - Sunrise Meditation, Vol. 11 (2022) [AAC|~316 Kbps] <Lounge, Lo-Fi, Ambient, New Age, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Bach - Jade (Original Version) (3:43)
-02. Lemongrass - Belle Vue (Original Mix) (5:12)
-03. Nordiatic - Black Sand Beach (1:14)
-04. Sebastian Bach - Supreme Secret (Original Version) (3:54)(   Читать дальше...   )Жанр: Lounge, Lo-Fi, Ambient, New Age, Chill OutПродолжительность: 01:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D31AC118503FA8C52204DC1E1AEE9FE3BCE82CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527689   (736375) от 29.01.2022
-
-Красный призрак (2020) BDRip [720p] ATV
+Завод  (2018) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736375.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Зима 1941 года. Выходя из окружения около Вязьмы, небольшая группа советских солдат вынуждена остановиться в заброшенной деревне. Но передышки не получается. В этом же доме решает обосноваться хорошо вооружённый немецкий отряд во главе с карателем вермахта, который ищет таинственного солдата по прозвищу Красный призрак. Он появляется из ниоткуда, в одиночку убивает (   Читать дальше...   )Производство: Россия / ООО «АБС»Жанр: Триллер, история, военныйРежиссер: Андрей БогатырёвАктеры: Юра Борисов, Алексей Шевченков, Владимир Гостюхин, Полина Чернышова, Вольфганг Черни, Михаил Горевой, Олег Васильков, Павел Абраменков, Вячеслав Шихалеев, Герман Сегал, Пауль Орлянский, Михаил МелинПеревод: Не требуется (русский)Субтитры: РусскиеПродолжительность: 01:38:27
+Прямо посреди дня из своего «мерса» похищен местный олигарх Калугин. Неизвестные в балаклавах потребовали за него большой выкуп. Отвезти деньги берётся глава личной охраны бизнесмена по кличке Туман. Его вооружённые до зубов «спецы» приезжают ночью на завод Калугина, где теперь босса держат в заложниках. Они пока не знают, что те другие, забаррикадировавшиеся в цехе (   Читать дальше...   )Производство: Россия, Франция, АрменияЖанр: Криминал, драма, триллерРежиссер: Юрий БыковАктеры: Денис Шведов, Андрей Смоляков, Владислав Абашин, Иван Янковский, Александр Бухаров, Алексей Комашко, Александр Баширов, Дмитрий Куличков, Андрей Харыбин, Юрий ЛопаревПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:50:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D0D03DBF7C9A1E6F91E828999A9AEF5C3A9921F
+magnet:?xt=urn:btih:729775F1D847CF5C042C017A1B898B4729445711
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,28 +243,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528025   (735433) от 31.01.2022
+###  Публикация: 1289015   (689791) от 14.03.2019
 
-VA - Downtempo Lounge & Chillwave, Vol. 4 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
+Тройная граница / Triple Frontier (2019) WEB-DLRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735433.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stefano Negrini, Anthya, Alaera - Love Has Gone (Anthya Chill Mix) (4:56)
-02. York, Nathan Red, Kim Sanders - How Did I Fall in Love (R.I.B. Remix) (4:16)
-03. 351 Lake Shore Drive - Nylon (10:02)
-04. Project Blue Sun - All I Wanna Be (6:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:11:52
+Пограничная зона между Парагваем, Аргентиной и Бразилией считается раем для организованной преступности, наркоторговцев и террористов. Долгие годы отряды специального назначения пытались зачистить регион, но безуспешно. Пятеро оперативников устали смотреть, как впустую погибают их коллеги, и решают взять дело в свои руки. Они рассчитывают ограбить местного наркобарона (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, драма, криминал, приключенияРежиссер: Джей Си ЧендорАктеры: Бен Аффлек, Чарли Ханнэм, Адриа Архона, Педро Паскаль, Оскар Айзек, Гаррет Хедлунд, Шейла Ванд, Рейнальдо Гальегос, Кристин Хорн, Шон МакБрайдПеревод: Дублированный (Невафильм)Субтитры: Русские форсированные,  Английские форсированные,  Русские,  АнглийскиеПродолжительность: 02:05:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:765C5129D2A8C3D237A12BFBDBDD8FDC1FC039D2
+magnet:?xt=urn:btih:75B1ECC603053736326D5F8774B9B870F2F1146B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,28 +269,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528023   (735432) от 31.01.2022
+###  Публикация: 897038   (689613) от 11.05.2015
 
-VA - Downtempo Lounge & Chillwave, Vol. 2 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
+Снайпер / American Sniper (2014) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735432.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689613.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Project Blue Sun - Art of Love (3:44)
-02. Sunset Boulevard Project - Fly Like an Eagle (4:08)
-03. Marco Moli - This Natural Groove (4:00)
-04. Guenter Haas - Black Rose (3:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:00:15
+Экранизация мемуаров «морского котика» из Техаса Криса Кайла, который служил снайпером в Ираке и стал рекордсменом по числу убитых солдат противника, за что иракцы прозвали его дьяволом. Кроме самой войны, фильм рассказывает о воспоминаниях жены Криса, которая была свидетелем растущей привязанности мужа к его сослуживцам.Производство: СШАЖанр: Боевик, триллер, военный, биографияРежиссер: Клинт ИствудАктеры: Брэдли Купер, Сиенна Миллер, Кайл Галлнер, Коул Конис, Бен Рид, Элиз Робертсон, Люк Саншайн, Трой Винсент, Брэндон Сальгадо, Кейр О’ДоннеллПеревод: ДублированныйПродолжительность: 02:12:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FAF216F52AB81EE1B80549BC410ED0DF8296E59
+magnet:?xt=urn:btih:076B18119AA974457AA88557CE26F82E39C4119A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,28 +295,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528035   (735431) от 31.01.2022
+###  Публикация: 795699   (689521) от 12.06.2014
 
-VA - Chillaxing Time, Vol. 01 (2013) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
+Отель «Гранд Будапешт» / The Grand Budapest Hotel (2014) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735431.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689521.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eddie Bitz, Trox - Missing You (Acidrain Remix) (4:12)
-02. Roy Bebop - Addicted to Minor (4:37)
-03. Pnfa - Concho (7:22)
-04. Mas Flores - Skywalker (Original Deep Mix) (8:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:21
+Фильм рассказывает об увлекательных приключениях легендарного консьержа Густава и его юного друга, портье Зеро Мустафы. Сотрудники гостиницы становятся свидетелями кражи и поисков бесценных картин эпохи Возрождения, борьбы за огромное состояние богатой семьи и… драматических изменений в Европе между двумя кровопролитными войнами XX века.Производство: США, Германия / Fox Searchlight Pictures, Indian PaintbrushЖанр: комедия, приключения, детектив, криминалРежиссер: Уэс АндерсонАктеры: Рэйф Файнс, Тони Револори, Сирша Ронан, Эдриан Броуди, Уиллем Дефо, Ф. Мюррэй Абрахам, Джуд Лоу, Эдвард Нортон, Джефф Голдблюм, Харви Кейтель, Том Уилкинсон, Матье Амальрик, Тильда СуинтонПеревод: ДублированныйЯзык озвучки: русский, английскийЯзык субтитров: Русский, АнглийскийКачество: BDRipПродолжительность: 01:39:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A0277A92791BA83B30ACB4CF962168721F88B72
+magnet:?xt=urn:btih:93D96B5F69A006C59B7F1A09DDAF8C5C3623423A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,28 +321,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528042   (735429) от 31.01.2022
+###  Публикация: 897029   (689500) от 11.05.2015
 
-VA - Chillaxing Time, Vol. 05 (2020) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
+Снайпер / American Sniper (2014) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735429.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lazy Hammock - Tears of El Nino (Original Mix) (4:33)
-02. VAN - Musician (Original Mix) (3:20)
-03. Weathertunes - La jolie (Original Mix) (4:54)
-04. VAN - Old Story (Original Mix) (6:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:17:34
+Экранизация мемуаров «морского котика» из Техаса Криса Кайла, который служил снайпером в Ираке и стал рекордсменом по числу убитых солдат противника, за что иракцы прозвали его дьяволом. Кроме самой войны, фильм рассказывает о воспоминаниях жены Криса, которая была свидетелем растущей привязанности мужа к его сослуживцам.Производство: СШАЖанр: Боевик, триллер, военный, биографияРежиссер: Клинт ИствудАктеры: Брэдли Купер, Сиенна Миллер, Кайл Галлнер, Коул Конис, Бен Рид, Элиз Робертсон, Люк Саншайн, Трой Винсент, Брэндон Сальгадо, Кейр О’ДоннеллПеревод: Дублированный (iTunes)Продолжительность: 02:12:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3029362C573E9540E9823B81DEB54E0005A909D
+magnet:?xt=urn:btih:95D540BB358D303692DE9C6A8F657126D1168FEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,28 +347,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528038   (735428) от 31.01.2022
+###  Публикация: 897090   (689181) от 11.05.2015
 
-VA - Chillaxing Time, Vol. 04 (2020) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+Мэгги / Maggie (2015) WEB-DL [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735428.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689181.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dreamhunter - Moment to Relax (Original Mix) (3:56)
-02. VAN - Evening by the Fire (Original Mix) (7:06)
-03. Lazy Hammock - Tears of El Nino (Original Mix) (4:33)
-04. Weathertunes - Into a Dream (Original Mix) (3:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:19:37
+История о девочке-подростке, которая оказывается зараженной в результате вспыхнувшей эпидемии и теперь медленно превращается в зомби…Производство: Швейцария, США / Lionsgate, Grindstone Entertainment Group, Gold Star FilmsЖанр: драма, триллер, ужасыРежиссер: Генри ХобсонАктеры: Арнольд Шварценеггер, Эбигейл Бреслин, Джоэли Ричардсон, Лора Кайюэтт, Эми Брассетт, Денис Уильямсон, Дж.Д. Эвермор, Рэден Грир, Эйден Флауэрс, Тейлор МерфиПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: (Lord32x)Язык субтитров: АнглийскийПродолжительность: 01:35:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2F15C36866505659DF4CAA9D3F18506B0C09E29
+magnet:?xt=urn:btih:5119B67D41AC97DD3241F629E6CF55BD7949F75B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,28 +373,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528037   (735427) от 31.01.2022
+###  Публикация: 1134349   (689081) от 15.05.2017
 
-VA - Chillaxing Time, Vol. 03 (2020) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+Жена смотрителя зоопарка / The Zookeeper's Wife (2017) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735427.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jasmon - Cuchama (Original Mix) (4:47)
-02. Openzone Bar - Mint Julep (Original Mix) (5:13)
-03. Weathertunes - Dimanche Matin (Original Mix) (4:38)
-04. Corrado Saija, Florent Campana - Amanda (Original Mix) (4:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:05
+Реальная история отважного подвига смотрителей Варшавского зоопарка Яна и Антонины Жабинских, давших убежище и сохранивших жизнь более, чем 300 евреям во время II Мировой войны. Ежедневный риск и опасность осложняются для Жабинских взаимоотношениями с бывшим другом семьи, а ныне высокопоставленным нацистским чиновником Лутцем Хеком, влюбленным в Антонину.Производство: СШАЖанр: Драма, военный, биография, историяРежиссер: Ники КароАктеры: Джессика Честейн, Йохан Хелденберг, Даниэль Брюль, Тимоти Редфорд, Эфрат Дор, Иддо Голдберг, Шира Хаас, Майкл МакЭлхаттон, Вэл Малоку, Марта ИссоваПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:01:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8960C8BA24C3B19658CBAAFB70FD8F58310E375
+magnet:?xt=urn:btih:52FDA07AADCC1B17AAB05A7957DB56C02300D809
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,28 +399,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528024   (735426) от 31.01.2022
+###  Публикация: 675140   (689008) от 02.07.2013
 
-VA - Downtempo Lounge & Chillwave, Vol. 3 (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
+Придурок / The Jerk (1979) HD-DVDRip [480p] iPhone/iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735426.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anthya - Orchidea (3:53)
-02. Sin Plomo - For Jesus (In the Sky Mix) (4:36)
-03. Project Blue Sun - Carpe Diem (3:43)
-04. Guenter Haas - Without You (5:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:14:20
+Узнав, что он приемный сын, Нэйвин бросает своих названых чернокожих родителей и отправляется за смыслом жизни в Сент-Луис. Поначалу большой город не принимает новичка, и Нэйвину упорно приходится доказывать, что он чего-то стоит. Долго мучиться не приходится, как говорится — дуракам везет, и на провинциального паренька нежданно-негаданно, оптом, сваливаются и богатство, и известность, и слава. Только вот, что делать со всем этим внезапным счастьем, придется поломать голову…Жанр: комедияВ ролях: Стив Мартин, Бернадетт Петерс, Кэтлин Эдамс, Мейбел Кинг, Ричард Уорд, Дик Энтони Уилльямс, Билл Мэси, Дик О'НейлПеревод: Русский многоголосый закадровый (CTC), одноголосый закадровый (А. Михалев)Продолжительность: 01:33:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4726DE3E37290B25A5BA753B600B1A0C8AA37AF1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +425,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528036   (735425) от 31.01.2022
+###  Публикация: 675155   (688806) от 02.07.2013
 
-VA - Chillaxing Time, Vol. 02 (2019) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+Полицейский из Беверли-Хиллз 2 / Beverly Hills Cop II (1987) [480p] BDRip iPhone/iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735425.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jens Buchert - Nanotime (2:28)
-02. Taburet - Blue Fire (5:35)
-03. Placid Larry - Mountain Run (3:38)
-04. Anemine - White Series 256 (7:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:37:05
+Продолжение подвигов по поимке преступников веселого и находчивого полицейского Акселя. Сексапильная блондинка вместе с группой гангстеров грабит ювелирный магазин. Но неутомимый Аксель тут как тут, на страже порядка и закона.
+
+Дальше, как и положено в полицейской комедии, динамичный сюжет раскручивается все в более и более быстром темпе, погони и перестрелки следуют одна за другой, лихой мордобой сменяют смешные, хотя порой и грубоватые шутки.Жанр: боевик, триллер, драма, комедия, криминалВ ролях: Эдди Мёрфи, Джадж Райнхолд, Джон Эштон, Юрген Прохнов, Ронни Кокс, Бриджит Нильсен, Аллен Гарфилд, Дин Стокуэлл, Пол Райзер, Гилберт Р. ХиллПеревод: Русский многоголосый закадровый (Киномания)Продолжительность: 01:42:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0BA3A33C194EE9A38E715B976C5267C1F50739A
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +453,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528017   (735423) от 31.01.2022
+###  Публикация: 674971   (688724) от 02.07.2013
 
-VA - Easy Like Sunday Morning (Beautiful Lounge Session), Vol. 2 (2019) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+Закусочная на колесах / Kuai can che / Wheels on Meals (1984) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735423.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lazy Hammock - Wavedrops (MichaelE Remix) (5:13)
-02. Bob Zopp - Dubby Day (Original Mix) (5:58)
-03. Peter Pearson - That Pass In The Night (Original Mix) (4:51)
-04. Svendaq - Space Dimension (Original Mix) (4:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:20
+Два энергичных китайца организовали в Барселоне передвижную харчевню. Их желтый фургончик дарит людям вкусную еду и очаровательный китайско-испанский сервис. Но однажды всю их выручку похищает хитрая синьорита Сильвия. Масса самых забавных ситуаций, сумасшедшие гонки на автокухне, виртуозные сцены рукопашных поединков и, как всегда, полный задора и отточенности в (   Читать дальше...   )Производство: Гонконг / Golden Harvest Company, LaurenfilmЖанр: Боевик, Мелодрама, Комедия, КриминалРежиссер: Саммо ХунАктеры: Джеки Чан, Юэнь Бяо, Саммо Хунг Кам-Бо, Бенни Уркидез, Кит Витали, Херб Эдельман, Лола Форнер, Ампаро Морено, Хосе Санчо, Монтсеррат Хулио, Сюзана Сентис, Луис ПаленсуэлаПеревод: Русский многоголосый закадровый (UniDigital), многоголосый закадровый (5 канал СПБ), двухголосый закадровый (UniDigital), одноголосый закадровый (Ю.Живов), одноголосый закадровый (М.Иванов), одноголосый закадровый (С.Визгунов), одноголосый закадровый (Л.Володарский), Английский дублированныйСубтитры: * 3GPP Text -  Русский
+* 3GPP Text -  Русский (Мишин)
+* 3GPP Text -  АнглийскийПродолжительность: 01:48:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BF14AFE3C6B45862FBDAC25ECCDA223AE808A44
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +481,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528026   (735422) от 31.01.2022
+###  Публикация: 1534989   (688695) от 05.03.2022
 
-VA - Lounge Weekend - Chillout Beats for Relaxation (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Street King Presents Miami 2022 (2022) [AAC|~324 Kbps] <House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735422.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chill 2 U - Nightwalker (4:53)
-02. Ryan Pearce - Open All Night (Ibiza Guitar Lounge Mix) (4:19)
-03. Lady Tut - Sleeping in My Bed (Instrumental) (5:46)
-04. Terrace Chillerz - Breathing (Ibiza Beachclub Vocal Mix) (4:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:04
+01. DJ Fopp - Fire In The House (Unreleased Mix) (6:04)
+02. Sid Vaga, Herald, Ceciel Moyano - INHACA (Unreleased Afro Drum Dub) (5:32)
+03. B-Liv - Rise Yourself (Unreleased Afro Side) (5:23)
+04. Dan T - Tell Me (Unreleased Mix) (6:00)(   Читать дальше...   )Жанр: Classic House, Soulful House, Deep House, Afro House, Tech HouseПродолжительность: 03:34:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F6855E6D6F6F83255B103A2D10483304FFDB120
+magnet:?xt=urn:btih:957FD1B37F76E1C290B4DDBF010D2A2FAF403C1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,28 +510,184 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528044   (735421) от 31.01.2022
+###  Публикация: 1535047   (688692) от 05.03.2022
 
-VA - Chillaxing Time, Vol. 06 (2020) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Toolroom Miami 2022 (2022) [AAC|~335 Kbps] <House, Tech House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735421.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lazy Hammock, Ivan M-sax - Wavedrops (Original Mix) (4:16)
-02. Florent Campana - Et dieu pour tous (Original Mix) (3:55)
-03. Weathertunes - Into a Dream (Original Mix) (3:43)
-04. VAN - Pink Flamingo (Original Mix) (8:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:49
+01. Mark Knight, Mason - Givin' Up (6:31)
+02. Martin Ikin, Astrotrax, Shola Phillips - Feel The Vibe (5:35)
+03. Guz, Havoc & Lawn - Come Back (5:45)
+04. Flashmob - Funky Pills (5:21)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 07:29:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FBA7D8C1A5270624BFE8E67FE3BD42DE7E815F8
+magnet:?xt=urn:btih:0BA73C06B1A8BC4544EE1DC1D16371C67416693D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134371   (688657) от 15.05.2017
+
+Время первых  (2017) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688657.jpg" />
+</div>
+
+
+###  Подробнее
+
+60-е. Разгар холодной войны. Две супердержавы, СССР и США бьются за первенство в космической гонке. Пока СССР впереди, на очереди — выход человека в открытый космос. За две недели до старта взрывается тестовый корабль. Времени на выявление причин нет. И пусть риски огромны, мы не можем уступить лидерство. Опытный военный летчик Павел Беляев и его напарник Алексей (   Читать дальше...   )Производство: РоссияЖанр: Приключения, триллерРежиссер: Дмитрий КиселёвАктеры: Евгений Миронов, Константин Хабенский, Владимир Ильин, Анатолий Котенёв, Александра Урсуляк, Елена Панова, Александр Новин, Марта Тимофеева, Геннадий Смирнов, Юрий НифонтовПеревод: Не требуетсяСубтитры: НетПродолжительность: 02:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4DA273838D88F87EF90AC1549F434CB2F17FBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 675187   (688423) от 02.07.2013
+
+Падение Олимпа / Olympus Has Fallen (2013) BDRip [480p] iPhone/iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Визит корейского премьер-министра обернулся террористическим нападением на Белый дом, и все Соединенные Штаты с ужасом наблюдают безуспешные попытки властей справиться с ситуацией. Лишь бывший спецагент находит единственную возможность обуздать зарвавшихся экстремистов. И кажется, что всё под контролем у террористов, но знания и опыт Майка Бэннинга помогают ему справиться (   Читать дальше...   )Производство: США / Millennium Films, Nu-Image FilmsЖанр: Боевик, ТриллерРежиссер: Антуан ФукуаАктеры: Джерард Батлер, Аарон Экхарт, Морган Фриман, Рик Юн, Финли Якобсен, Анджела Бассетт, Рада Митчелл, Роберт Форстер, Дилан МакДермотт, Эшли ДжаддПеревод: Русский дублированныйСубтитры: АнглийскийПродолжительность: 01:59:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289404   (688264) от 15.03.2019
+
+Черная книга / Zwartboek (2006) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая мировая война. Рахиль Штайн — немка еврейского происхождения. Спасаясь от фашистского геноцида, она находит пристанище в Нидерландах, где присоединяется к движению Сопротивления. Рахиль непременно должна найти предателя, по вине которого погибла вся ее семья. Отныне месть — смысл ее жизни…Производство: Нидерланды, Германия, Великобритания, Бельгия / 	AVRO Television, Egoli Tossell Film AG, Hocus Focus Films, VIP 4 MedienfondsЖанр: Триллер, Драма, ВоенныйРежиссер: Пол ВерховенАктеры: Кэрис Ван Хаутен, Себастьян Кох, Том Хоффман, Халина Рейн, Вальдемар Кобус, Дерек Де Линт, Кристиан Беркель, Питер Блок, Мишель Хайсмэн, Рональд Армбраст, Фрэнк Ламмерс, Джонни Де МолПеревод: Дублированный, авторский одноголосыйСубтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 02:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED627ED5B55A1468E29F48BBE8AAE7F482783FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289250   (688255) от 15.03.2019
+
+Отдать жизнь за любовника / An Affair to Die For (2019) WEB-DL [1080p] ATV (MVO)
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайное свидание в дорогой гостинице. Жена изменяет своему мужу. Муж изменяет своей жене. Казалось бы, ничего необычного. Но что, если всё пойдёт не так?Производство: Испания / Illogic Srl, Kobalt Entertainment, Martha Production, Roxbury PicturesЖанр: ТриллерРежиссер: Виктор ГарсияАктеры: Клер Форлани, Джейк Эйбел, Титус Уэлливер, Нэйтан Купер, Мелина МэтьюзПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Английские (Full)Продолжительность: 01:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2790035F87DEE15F2EEB119B5EC0BF9058C2D5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028648   (688234) от 23.06.2016
+
+Голограмма для короля / A Hologram for the King (2016) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алан Клей — муж, отец, бизнесмен. Но его бизнес терпит крах, его брак трещит по швам, и он не знает, где взять деньги на оплату обучения дочери. Чтобы избежать банкротства и разорвать замкнутый круг, Клей отправляется в Саудовскую Аравию, где он надеется продвинуть свой дерзкий технологический проект. Во время томительного ожидания встречи с королем Алан познает (   Читать дальше...   )Производство: Великобритания, Франция, Германия, США, МексикаЖанр: Комедия, драмаРежиссер: Том ТыкверАктеры: Том Хэнкс, Александр Блэк, Сарита Чоудри, Сидсе Бабетт Кнудсен, Трэйси Фэирэуэй, Джейн Перри, Том Скеррит, Михаэль Бараль, Льюис Райнер, Александр МолкентинПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1578C2E455C5BB89D577E443E73BFCCBD185F0B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289294   (688139) от 15.03.2019
+
+Апокалипсис сегодня / Apocalypse Now (1979/2001) BDRip [576p] iPad [Redux version]
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время войны во Вьетнаме спецагент отправляется вверх по реке в Камбоджу с приказом найти и убить полусумасшедшего полковника, создавшего в отдаленном районе нечто вроде собственного королевства насилия. По пути он становится свидетелем мира ужасов войны.Производство: США / Zoetrope StudiosЖанр: Драма, ВоенныйРежиссер: Фрэнсис Форд КопполаАктеры: Марлон Брандо, Мартин Шин, Роберт Дювалл, Фредерик Форрест, Сэм Боттомс, Лоренс Фишбёрн, Альберт Холл, Харрисон Форд, Деннис Хоппер, Г.Д. СпрэдлинПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 03:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3C5B748279A1C7FB42DFE706EC0DBE816AD204
 ```
 
 https://mybot314.ru/tekegram_catalog/

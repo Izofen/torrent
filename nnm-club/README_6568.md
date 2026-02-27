@@ -1,25 +1,141 @@
-###  Публикация: 1277167   (785443) от 20.01.2019
+###  Публикация: 1123573   (786215) от 09.04.2017
 
-Lutz Rahn - Solo Trip (1978) Reissue CD, 2012, MIG [MP3|320 Kbps] <Electronic, Krautrock>
+VA - Отдыхаем с лучшими хитами. Звездная тусовочка. Часть № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sasha Dith & Russian Mc - Тобой Простужен 2:59
+002. Charli Xcx & Kyary Pamyu Pamyu - Crazy Crazy 3:46
+003. Тимур Спб - Лучшая Подруга 3:27
+004. Катя Гордон - Нет Стыда 3:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C780F6646A4E7AE7F839A758DA721698AFC22A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123544   (786214) от 09.04.2017
+
+VA - Драйвовый весенний музон (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786214.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юлианна Караулова - Ты Мой 3:05
+002. Зара - Без Многоточий 3:36
+003. Пицца - Лети 3:39
+004. Ira Smith - Буду Выше 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE4123F256C881E4113A18CA8C5E844EEDE8EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123552   (786213) от 09.04.2017
+
+VA - Положительный заряд Hit FM. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786213.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Оля Полякова - Цветочек Аленький 3:23
+002. Константин Легостаев - Не Матерись 3:04
+003. Миля - Выбирай Любовь 3:55
+004. Егор Диких - Маэстро 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FD8831B12A7E6608663337A78D900B16FFF7BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123722   (786212) от 09.04.2017
+
+Devon Allman's Honeytribe - Space Age Blues (2010) [FLAC|Lossless|image + .cue] <Blues Rock, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Could Get Dangerous  (04:14) 
+02. Space Age Blues  (05:16) 
+03. Salvation  (04:41) 
+04. Sir Duke  (03:47) (   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A90D9A04195C8503B8C7578B32F6C8565C0A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123731   (786211) от 09.04.2017
+
+Lachrimatory - Transient (2011) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785443.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786211.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Немецкий клавишник (родился 10/11/1951, в Гамбурге). Владелец Brucken-Studio. Известен своей постоянной работой в группе Novalis. Выпустил единственный - предлагаемый сольный альбом.01. Solo Trip (2:07)
-02. Yeti (4:02)
-03. Galaxy Taxi (5:06)
-04. September (3:46)(   Читать дальше...   )Жанр: Electronic, KrautrockПродолжительность: 00:29:03
+01. Seclusion (12:14)
+02. Lachrimatory (11:29)
+03. Twilight (08:11)
+04. Clarity (08:26)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 01:03:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CA14CFD9E1E253DB246B228CF03854CF02B29E2
+magnet:?xt=urn:btih:D0BEF065BF1869FE01DF6BC86849ED64FF084DBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277350   (785442) от 20.01.2019
+###  Публикация: 1123754   (786210) от 09.04.2017
 
-Валера Шунт - Жизнь босяцкая (2000) [FLAC|Lossless|image + .cue]<Шансон>
+Negative Voice - Cold Redrafted (2016) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal, Doom Metal>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785442.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786210.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Жизнь босяцкая
-02. Заочницы
-03. Русская идея
-04. Случайная встреча(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:54:37
+1. Limitation (05:23)
+2. City of Decaying Gaze (05:41)
+3. Nightmare Everlasting (05:44)
+4. Instant (06:09)(   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Doom MetalПродолжительность: 00:46:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F90EE9ADEF76C49AE7E20FFA35BF9EE0C29DEEF4
+magnet:?xt=urn:btih:3087FCB39770CDC5597912AE9A14525BDD892FF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277284   (785441) от 20.01.2019
+###  Публикация: 1123993   (786209) от 09.04.2017
 
-Труды Первого Всероссийского Съезда по борьбе с торгом женщинами и его причинами [2 тома] (1911-1912) [PDF]
+Devon Allman - Turquoise (2013) [FLAC|Lossless|image + .cue] <Blues Rock>
 
->>Научная и техническая литература
->>Историческая литература
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785441.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786209.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Труды первого всероссийского съезда по борьбе с торгом женщинами и его причинами, происходившего в С.-Петербурге с 21 по 25 Апреля 1910 года.
-
-Среди вызванных условиями современной жизни прискорбных явлений, содействующих физическому и нравственному развращению населения, одно из первых мест принадлежит торговле женщинами и проституции во всех ее видах.
-(   Читать дальше...   )Жанр: История, политология, экономика, психология, криминология, правоведение, документалистика, публицистикаФормат: PDF
+01. When I Left Home  (04:05) 
+02. Don't Set Me Free  (03:40) 
+03. Time Machine  (03:39) 
+04. Stop Draggin My Heart Around  (04:46) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B68201265E55CD31751EFDE65DB1505A0CB0DAA3
+magnet:?xt=urn:btih:BDAEBF3B87F48F5C428A4D0007144D232AB6445F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +201,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203891   (785440) от 04.02.2018
+###  Публикация: 1123948   (786208) от 09.04.2017
 
-VA - The Official UK Top 40 Singles Chart 02.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+VA - Ori Uplift - Uplifting Only 217 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Avenger - Orca (New World Intro Mix Remaster)
+2. Syntouch & Blue Moon - Fields of Florette (Phil Dinner Remix)
+3. PRE-RELEASE PICK: Night Sky & Rebecca Louise Burch - Till I Break Free (Madwave Remix)
+4. The Enturance & Exouler - Inspiration(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86CBC122C313D3F56967C5ACB20B66492E09874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124047   (786207) от 09.04.2017
+
+Jonathan Butler - Do You Love Me? (1997) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Song for Elizabeth (04:10)
+02 Do You Love Me? (04:34)
+03 The Other Side of the World (04:33)
+04 Life After You (04:43)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181B7B5FB2962E8E117B0DF59893C2227ADBB624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123768   (786206) от 09.04.2017
+
+VA - Deep House For Lady (2017) [MP3|320 Kbps] <Deep House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785440.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786206.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Drake - God's Plan
-02. Ramz - Barking
-03. Eminem - River (feat. Ed Sheeran)
-04. Dua Lipa - IDGAF(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:25:59
+001. Paul Lossa - The Blaze
+002. Ambassadeurs - Looking At You (Moods Remix)
+003. ENNE - Fear
+004. Francois Devois - Another Light Out (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:08:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45E6C389F7126A955FDD90DFA40B6F6DD6B1192E
+magnet:?xt=urn:btih:6950B4CFCF88EA078A1B903463FA799C1AE65648
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203929   (785439) от 04.02.2018
+###  Публикация: 1123575   (786205) от 09.04.2017
 
-VA - Art of Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Музыкальный презент на Europa Plus. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
 
->>Electronic
->>Easy listening
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785439.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Talking Toy - Oort Cloud - Epic Soundtrack Intro Mix
-02. Leslie Dhani - What I Need - Deep House Dance Mix
-03. Out Of Balance - Black Sky Falling - 808 Lounge Mix
-04. Madam Charlton - Your Voice Is in My Mind - Vocal Pop Lounge Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:59
+001. Черешня - Градус Любви 3:50
+002. Ustinova - Ночь Поет 3:16
+003. Дискотека Авария - Моя Любовь 3:08
+004. Davlad - Прости 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:933F93CDFFF6FEAFB532342405A7CD0056C6E436
+magnet:?xt=urn:btih:AAE53F797C728B84C391DF5D8ED740F87219F5B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,25 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204100   (785438) от 04.02.2018
+###  Публикация: 1123546   (786204) от 09.04.2017
 
-Приход храма Св. Духа сошествия на Лазаревском кладбище (изд.) | Молитвенное последование с покаянным каноном о грехе убийства чад во утробе (аборте) (2017) [PDF, DJVU]
+VA - Лучшая дискотека на Europa Plus. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785438.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для покаяния в грехе аборта существует исповедь, на которой священник в частном порядке назначает епитимью в соответствии с духовным и телесным состоянием кающегося, возрастом, состоянием здоровья и прочими обстоятельствами. Аборт – один из самых тяжких грехов. Святая Церковь, согласно канонам, отлучала совершивших грех аборта от причастия на 10 лет, наравне с убийцами. (   Читать дальше...   )Жанр: МолитваФормат: PDF, DJVU
+001. Dato - Если Это Не Любовь 4:27
+002. Fargo - Взаимные Лайки 3:50
+003. Султан (Sultan) - Она Моя 3:34
+004. Восемь По Гринвичу - Родились Побеждать 3:37(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7451E1E91D0794A678F260128556D815A4B6C4D2
+magnet:?xt=urn:btih:B6B82688375EC03EE5BC1DF71A5434C9960A246B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203969   (785437) от 04.02.2018
+###  Публикация: 1123577   (786203) от 09.04.2017
 
-Antendex - Take Shelter (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic>
+VA - Весенняя 100-ка популярных треков. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785437.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786203.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gravitational Phantom (05:32)
- 02. Spring Will Come As Always (04:38)
- 03. Home-grown Drone (06:20)
- 04. Boreal Estate (04:04)(   Читать дальше...   )Жанр: Ambient, AcousticПродолжительность: 00:37:10
+001. Натали Янковских - Ты Мой 3:34
+002. Слайд - Ближе И Ближе 3:31
+003. Сиран Агасаров - Для Тебя 3:33
+004. Катя Лель - Придумала 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D9896C655FA3CD1CB37168EC04A79957C91A48B
+magnet:?xt=urn:btih:4304E68DD1623A54374323CCDA41A2255D294638
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,112 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203984   (785436) от 04.02.2018
+###  Публикация: 1123870   (786202) от 09.04.2017
 
-Линда Ховард | Гора Маккензи (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда школьная учительница и старая дева Мэри Элизабет Поттер столкнулась с Вульфом Маккензи, отцом бросившего школу мальчика, она оказалась лицом к лицу с ожесточенным и опасно-привлекательным мужчиной, который до сих пор расплачивается за несовершенное преступление. Но в том, в ком горожане видят опасного полукровку, Мэри разглядела честного, хорошего человека. (   Читать дальше...   )Жанр: Любовный романПродолжительность: 09:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADABF6D1EFECB92F4C702CD0D7A3FC8D859E96C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203945   (785435) от 04.02.2018
-
-VA - Age Of Love 10 Years (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age Of Love - The Age Of Love (Jam & Spoon Watch Out For Stella Mix) 06:48
-02. Niels van Gogh - Pulverturm (DJ Tomcraft Remix) 09:12
-03. The Pusher - Sinthy (Pluto Mix) 05:56
-04. BBE - Seven Days And One Week 08:27(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 08:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC174DAA67E9E1EEC23620D7D5E5CC75A9DF3AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203834   (785434) от 04.02.2018
-
-VA - Chillout Lovers: Introspective Chillout Sounds (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vincenzo Ricca  -  Oceanic Love (Original Mix)  5:00
-02.  Marga Sol  -  Feelings For Free (Original Mix)  5:06
-03.  Flor De Lis  -  Carinhoso (Original Mix)  1:55
-04.  Gianni Tommas  -  Peacefull Aim (Original Mix)  5:08(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E91D1615AA63288A2DB9199BB28D15A3348BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203906   (785433) от 04.02.2018
-
-John Dummer Blues Band - Cabal (1969) Reissue, 2003, Sunrise Records [MP3|320 Kbps] <Blues Rock>
+Blind 'n' Dangerous - In Flames (1995) 2014, Bnd Music Co. [FLAC|Lossless|image + .cue] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785433.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. I Need Love
-2. Just A Feeling
-3. No Change With You
-4. Young Fashioned Ways(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:03
+01. Gangster (5:26)
+02. Skippin' On The Edge (3:37)
+03. Splinter (4:53)
+04. I Can't Help It (5:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:781F9E84AE745A2BE41F3D5E264B158F2A5A3460
+magnet:?xt=urn:btih:9FC9640FB906DB8632345CDB8D47068E5EF0F41B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203973   (785432) от 04.02.2018
+###  Публикация: 1123148   (786201) от 09.04.2017
 
-Auto Reverse - Loneliness Of The Deep Space Traveller (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthwave>
+VA - Trancespotting Vol.3 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785432.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Apparent Magnitude (06:24)
-02. The Sirius Conspiracy (05:52)
-03. Quantum Leak (06:08)
-04. Neon Galaxy (05:20)(   Читать дальше...   )Жанр: Electro, SynthwaveПродолжительность: 00:35:31
+01.  Mike Sanders - Kanassa (Radio Cut)  2:54
+02.  Wearealienss - Polar (Radio Cut)  3:08
+03.  7 Baltic & Wojciech Kania - Call Me (Radio Cut)  3:37
+04.  Skyvol - Werewolf's Heart (Radio Cut)  3:55(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:27:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3615A5CAD0A1F9350657126070F022ADC694B66F
+magnet:?xt=urn:btih:BE5FE460007A16139D8C903EDAB37EC9290FAB2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204049   (785431) от 04.02.2018
+###  Публикация: 1123549   (786200) от 09.04.2017
 
-VA - Timeless in Space: Universe Lounge Journey (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Танцевальная вечеринка от Хит FM. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
 
->>Electronic
->>Easy listening
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785431.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Raphael Van Sandern - Timeless in Space - Space Edit Mix
-02. Substrata - Theresa - Electronic Dance Pop Mix
-03. Crimson Stone - What Is the Meaning - Electronip Space Night Mix
-04. Roleystone - Galactica - Space Club Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:52
+001. Роза Герц - Расстаться 4:04
+002. Dj Mrid & Борис Агаджанян - Самая 4:02
+003. Антонина Громова - Я Тебя Обожаю 3:07
+004. Лада Мишина - Лети 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B929FB28766E4021AF2E3C455E9AFC28803CB12A
+magnet:?xt=urn:btih:5816F7308DD1B909596A1E4763870BD514977E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,26 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203988   (785430) от 04.02.2018
+###  Публикация: 1123569   (786199) от 09.04.2017
 
-Елена Чижова | Планета грибов (2018) [MP3]
+VA - Отдыхаем душой на стильном радио Шансон выпуск № 10 (2017) [MP3|256 Kbps] <Шансон>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785430.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786199.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Елена Чижова – автор романов «Время женщин», премия «РУССКИЙ БУКЕР», «Орест и сын», «Терракотовая старуха», «Лавра», «Крошки Цахес», «Полукровка».
-Как гриб не растет без грибницы, так и человек вырастает из прошлого: страны, города, семьи. Но что делать, если связь с родительским домом принимает болезненные формы? Не лучше ли ее разорвать, тем самым изменив свою (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 13:09:04
+001. Виктор Матросов - Мой Бог 4:11
+002. Сборная Союза - Падали И Поднимались 4:02
+003. Виталий Аксенов - Дай Мне Все Понять 5:44
+004. Олег Безъязыков - Три Года Строгого 5:38(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8B8F3C3FCB67673BBE2B8CE353CD55D7C1EAD81
+magnet:?xt=urn:btih:5CBEED8BD4F29B32ED0E0A50A8DD7990D7A56D7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,196 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204025   (785429) от 04.02.2018
+###  Публикация: 1123824   (786198) от 09.04.2017
 
-Laura Branigan (Лора Брэниган) - Laura Branigan (1990) Atlantic, 7567-82086-2, Europe [MP3|320 Kbps] <House, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Moonlight On Water 4:40
-02. Bad Attitude 4:03
-03. Never In A Million Years 4:11
-04. Smoke Screen 4:07(   Читать дальше...   )Жанр: House, Pop Rock, Synth-popПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B3C65F83176000D0EF146E9F8DCCB1737944CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204050   (785428) от 04.02.2018
-
-CoolUtils PDF Combine 6.1.0.117 RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785428.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Combine - надежный инструмент и незаменимая программа для быстрого склеивания нескольких файлов PDF в один. Утилита работает с любыми типами PDF файлов очень быстро и качественно, что позволяет в считанные секунды получить нужный нам результат. Результат работы всегда точен и аккуратен, что важно для инвойсов, контрактов, банковских указов и других документов. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C7966507E164C1EFD9796C3AF14C6DBD547D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203968   (785427) от 04.02.2018
-
-David Myles - Real Love (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Night & Day
-02 – Real Love
-03 – Night After Night
-04 – Knockout(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3FEC15C3A9F2BE73DD40DBB860D55F6A509C5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203926   (785426) от 04.02.2018
-
-В. Г. Трухановский (отв. ред.) | Против фальсификации истории (1959) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник статей подготовлен коллективом сотрудни­ков Института истории Академии наук СССР. На основе большого фактического материала авторы статей опровергают антинаучные концепции буржуазных истори­ков по некоторым основным проблемам всемирной истории. В статьях сборника дается марксистское освещение поставленных проблем, вскрывается ложный путь, по которому развивается (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7715BC83AD832F4BC5DCCE5C5E5C154F5A2DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204129   (785425) от 04.02.2018
-
-VA - Silk Music Pres. Talamanca 01 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talamanca – Departure (Extended Mix)
-02. Roald Velden, Talamanca & Morrison Kiers – Savannah (Original Mix)
-03. Shingo Nakamura – Sapporo (Talamanca Remix)
-04. Talamanca – A Day At The Beach (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3A8F5761965524C1CF4F62652C564ED0E264E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203974   (785424) от 04.02.2018
-
-VA - Pool Party Hits (2018) [MP3|320 Kbps] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785424.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Selena Gomez Feat Gucci Mane - Fetish
-02. Demi Lovato - Sorry Not Sorry
-03. Shawn Mendes - There's Nothing Holdin' Me Back(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 02:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50606048222B7B9777AA669345AE59F156FB436A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204048   (785423) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Remember Me (2005) Dance Street, DST 75080-2, Russia [MP3|320 Kbps] <Trance, House>
+Frumpy - All Will Be Changed (1970) 1991, Repertoire Records [WavPack|Lossless|image + .cue] <Krautrock, Prog Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785423.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Challenge 5:08
-02. If That's What It Takes 4:41
-03. I Can See Again 3:59
-04. The Winner Takes It All 5:21(   Читать дальше...   )Жанр: Trance, HouseПродолжительность: 00:30:23
+1 Life Without Pain 3:45
+2 Rosalie Part I 6:01
+3 Otium 4:22
+4 Rosalie Part II 4:12(   Читать дальше...   )Жанр: Krautrock, Prog RockПродолжительность: 00:48:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D72D3D00C2698C63F8D56EFCDEBA7822E814A75B
+magnet:?xt=urn:btih:6A035F9F8E6EB20DC7D214A05E0B8F4DD195E439
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204000   (785422) от 04.02.2018
+###  Публикация: 1123816   (786197) от 09.04.2017
 
-Laura Branigan (Лора Брэниган) - Branigan 2 (1983) Atlantic, 78 0066-1, UK & Europe [MP3|320 Kbps] <Ballad, Disco>
+Wes Jeans - Hands On (2000) [FLAC|Lossless|image + .cue] <Blues-Rock>
 
->>Pop
->>Зарубежная поп-музыка
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785422.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Solitaire 4:05
-02. Deep In The Dark 3:51
-03. Close Enough 3:42
-04. Lucky 3:57(   Читать дальше...   )Жанр: Ballad, DiscoПродолжительность: 00:37:16
+01. Tell Me  (03:22) 
+02. Ridin' In The Moonlight  (03:42) 
+03. Now You Look At Me  (02:24) 
+04. Use What You Got  (06:18) (   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:47:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23F59F323D36F758ED4FC31D9E40E463565F8013
+magnet:?xt=urn:btih:787B6F2251D06CA48DD2B887671AEDB9DC6A7D87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,59 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204014   (785421) от 04.02.2018
+###  Публикация: 1124063   (786196) от 09.04.2017
 
-Laura Branigan (Лора Брэниган) - Touch (1987) Atlantic, 81747-1, US [MP3|320 Kbps] <Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Over Love 3:50
-02. Shadow Of Love 5:05
-03. Angels Calling 3:48
-04. Meaning Of The Word 5:42(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9CC91549D2F9FAC604D01910111A9837D0A290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277060   (785420) от 20.01.2019
-
-Inkubus Sukkubus - Beltaine (Original Recordings 1990/91) (1996) Reissue, 2006, CD-Maximum [FLAC|Lossless|tracks + .cue] <Pagan Rock, Gothic Rock>
+Improved Sound Limited - Improved Sound Limited (1971) Remastered, 2001, Long Hair [MP3|320 Kbps] <Progressive, Krautrock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785420.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Beltaine" – такое название носит дебютный альбом культовой британской pagan gothic rock группы Inkubus Sukkubus, изначально изданный на кассетах, но, позднее в 1996 году, по многочисленным просьбам поклонников, переизданный в виде компакт-диска компанией Resurrection Records.
-
-"Beltaine" содержит много песен, впоследствии вошедших в другие диски (   Читать дальше...   )01.Beltaine (4:31)
-02.Wytches I (3:26)
-03.Pagan Born (3:25)
-04.Song To Pan (2:59)(   Читать дальше...   )Жанр: Pagan Rock, Gothic RockПродолжительность: 00:58:42
+01. Doctor Bob Dylan
+02. Pink Hawthorn
+03. Johanna
+04. If You Want To(   Читать дальше...   )Жанр: Progressive, KrautrockПродолжительность: 01:11:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:487CD6FDFA6536BE21F941F9E6E1E8C85DD78D9E
+magnet:?xt=urn:btih:BC0C857F8D7C578BB4982BF1531818167E4C615D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,27 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277312   (785419) от 20.01.2019
+###  Публикация: 1123580   (786195) от 09.04.2017
 
-Х. Рейхель | Русские придут наверняка: Антикоммунистические вымыслы и фальсификации (1987) [DJVU]
+VA - Сотка популярных весенних хитов. Версия № 4 (2017) [MP3|256 Kbps] <Pop>
 
->>Разное (категория книг)
->>Публицистика
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785419.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786195.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге прогрессивного западногерманского публициста рассказывается о том, как западные спецслужбы и средства массовой информации фабрикуют и активно используют фальшивки о «советской угрозе». Временные рамки книги охватывают период с 20-х гг. по настоящее время.
-
-Показаны укрывательство и использование нацистских преступников и изменников Родины для борьбы против (   Читать дальше...   )Жанр: История, политология, экономика, публицистика, психологияФормат: DJVU
+001. Виталий Козловский - Мое Желание 3:31
+002. Tony Tonite - Ты Мне Не Снишься 3:22
+003. Александр Шоуа - Я Там Где Ты Оставила Меня 3:46
+004. Helena Shadia - Люби Меня 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D871A8E699EED07B0EDD34F8F124C249B12B9CA0
+magnet:?xt=urn:btih:F0A628487C6276566B1DEE8F062CF02775DB6729
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,28 +607,140 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277411   (785418) от 20.01.2019
+###  Публикация: 1123534   (786194) от 09.04.2017
 
-Омела - Тайная Тропа (2019) [MP3|320 Kbps] <Folk Metal>
+Гибкие и прозрачные дисплеи будущего могут быть сделаны на основе тончайшего серебряного слоя
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785418.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_786194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Тайная Тропа
-02. Игра
-03. Другая Жизнь
-04. Отпускаю(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:08:46
+Читая эти строки вы, быстрее всего, смотрите через или на тончайший слой оксида олова-индия (indium tin oxide, ITO), хрупкого керамического материала, который обладает достаточно высокой электрической проводимостью и является прозрачным. Этот материал используется сейчас в производстве практически всех экранов, начиная от экранов огромных телевизоров и заканчивая (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:426BF5A8EEF87F2218B616D35CEA6AE67C9D3E63
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123947   (786193) от 09.04.2017
+
+Karolina Smietana - Illusion (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something
+02. Skylark
+03. Within
+04. É Preciso Perdoar(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375E34BF88EFE21659EB7F38BDF6DD8427DD29CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123555   (786192) от 09.04.2017
+
+VA - Лучший весенний хит. Сборник № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786192.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Влада Пилипец - Время Лечит 2:30
+002. Потап & Настя - Золотые Киты 2:13
+003. Султан (Sultan) - Она Моя 3:34
+004. Андрей Гризли & Вахтанг - Небо Над Нами 3:29(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AA9B7905652916878E482805B59C9BDA8357F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123974   (786191) от 09.04.2017
+
+Танцуют все! (2017.04.09) SATRip (сезон 1, выпуск 4)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786191.jpg" />
+</div>
+
+
+###  Подробнее
+
+На телеканале "Россия" стартует новый суперпроект "Танцуют все!"
+Лучшие танцевальные коллективы со всей страны начинают танцевальный марафон. Они выйдут на сцену, чтобы удивить и поразить зрителей и доказать всей стране, что они настоящие профессионалы! Мы увидим танцы, которые волнуют весь мир, танцы, которые хотят танцевать все!
+Каждую неделю (   Читать дальше...   )Телекомпания: РоссияЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C49B0D06314B31EE2F54CF94C1BA6C1E477A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123562   (786190) от 09.04.2017
+
+VA - Весенний хит русского шансона. Выпуск № 3 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786190.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Лещев - Единое Целое 3:46
+002. Александр Солодуха - Вечно Молодой 3:31
+003. Бумеr - Именем Республики 3:46
+004. Мариан - Зазноба 3:30(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3A52A9729D79180A9CA10174C8D7246705ADED
 ```
 
 https://mybot314.ru/tekegram_catalog/

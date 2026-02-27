@@ -1,3 +1,67 @@
+###  Публикация: 973706   (978942) от 09.01.2016
+
+Almudena Merino Mino - Dejolull, La Cepa Magica (2015) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amanecer
+02. Reina Guerrera
+03. Oscuridad
+04. Reina Guerrera - Amanecer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9C0E06345E2C1808B08C77871E5703E9EDCCA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742432   (978853) от 06.01.2014
+
+Музыкальный коллектив Петра Налича - Кухня (2013) [MP3|320 кб/с]<Jolly Baburi>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Your Music
+02. Boubalezi
+03. Kiki
+04. Frenchmarch
+05. Gasqerigimdym
+06. A+P
+07. Boomerang
+08. Dead Husband
+09. Don Bon Brown
+10. RRR(   Читать дальше...   )Жанр: Jolly BaburiПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78261D23BC8B9462F55712753AEAB7FE4320D912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 166030   (978790) от 13.01.2010
 
 Ennio Morricone - The Good, the Bad and the Ugly (1966) / Хороший, плохой, злой (Digitally Remastered) (2004) [MP3|320 kbps]<OST>
@@ -729,76 +793,6 @@ Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB9EB5EF6CBF20FB40F42016DFC1F80FED2101F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743131   (975604) от 08.01.2014
-
-The Gold Star Orchestra - Romantic Classics (2009) [FLAC|Lossless]<Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. A Man Without Love			(03:25)
-02. Somewhere My Love (Lara's Theme)	(03:19)
-03. Ode to Billy Joe			(04:10)
-04. Softly as I Leave You		(02:56)
-05. The Girl from Ipanema 		(03:04)
-06. Autumn Concerto			(03:33)
-07. The Shadow of Your Smile		(03:11)
-08. I've Grown Accustomed to Your Face	(03:31)
-09. By the Time I Get to Phoenix	(04:02)
-10. I Left My Heart in San Francisco	(03:11)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7586F6DF7B577B80C3040C22FE2679312360BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743205   (975602) от 08.01.2014
-
-Dynaudio - Accentuations Guitar Impressions (2007) [FLAC|Lossless]<Audiofile, Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Don Ross,Klimbim
-02 Don Ross,Dracula & Friends part. 1
-03 Don Ross,New Born
-04 Take Four Guitar Quartet,Allegro Marciale
-05 Take Four Guitar Quartet,Con Vivacita
-06 Take Four Guitar Quartet,Vivo
-07 Take Four Guitar Quartet,Lento con Tristeza
-08 Take Four Guitar Quartet,Dolce
-09 Take Four Guitar Quartet,Allegro con Spirito
-10 Take Four Guitar Quartet,Prestissimo(   Читать дальше...   )Жанр: Audiofile, ТеstПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13EF887D7DABACD625F4590A1D6515ED3F930355
 ```
 
 https://mybot314.ru/tekegram_catalog/

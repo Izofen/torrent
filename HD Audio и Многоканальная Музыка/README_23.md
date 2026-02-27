@@ -1,3 +1,203 @@
+###  Публикация: 887298   (627585) от 12.04.2022
+
+Acker Bilk - Klarinet (1980) [FLAC 2.0 (image+.cue)|Vinyl-rip (24/96)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627585.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Szállj Fel Magasra
+Written-By – Gallai Péter, Köves Miklós
+A2	Képzelet
+Written-By – Bágya András, Mészáros Ágnes(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22B3A869E7A2CCEE6E02273FDB462F13F279209D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852481   (627576) от 12.04.2022
+
+Billie Piper - Walk Of Life (2000) [FLAC 2.0|16/44,1 (MC-Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Day & Night	3:15
+02	Something Deep Inside	3:21
+03	Walk Of Life	3:49
+04	Safe With Me	3:32(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F4979DD7AC0E8640EF81EFA2426AD453D6384E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853575   (627459) от 12.04.2022
+
+Jennifer Paige - Positively Somewhere (2001) [FLAC 2.0 (image+.cue)|16/44,1 (MC-Rip)]<Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 These Days
+02 Here With Me
+03 Stranded
+04 Make Me(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246D8D1872131F105E7C4E1EE00B08834621E8A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144551   (627358) от 22.06.2017
+
+Slade - The Story Of Slade (1977) 2LP, Compilation [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627358.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Coz I Luv You (3:25)
+A2. Gudbuy T' Jane (3:32)
+A3. Keep On Rocking (6:27)
+A4. Good Time Gals (3:32)(   Читать дальше...   )Производство: Barn Records - 2689 001Жанр: RockПродолжительность: 01:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7DAB0A250EC65959BDBFB98AADF283AA69798F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 802765   (626669) от 06.07.2014
+
+The Who - Who Are You (1978)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626669.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. New Song (4:24)
+A2. Had Enough (4:30)
+A3. 3.905 (3:59)
+A4. Sister Disco (4:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72ECC808B1421C20474771099EF76DE3A25E3751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229482   (626021) от 06.06.2018
+
+The Beatles/Битлз - Российский/Советский Лицензионный Винил {Мелодия/AnTrop/BRS} (1986-1993) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock & Roll, Pop Rock, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Beat, Rock & Roll, Pop Rock, SoundtrackПродолжительность: 09:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7ED6C8ADC89311332E1B354BB15D915C533CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544239   (623574) от 14.04.2022
+
+Joe Satriani - Дискография (26 releases) (1984 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Instrumental Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джозеф «Джо» Сатриани (англ. Joseph "Joe" Satriani; род. 15 июля 1956 года, Вестбери, Нью-Йорк, США) — американский гитарист-виртуоз. Учитель таких гитаристов, как Стив Вай, Кирк Хэммет, Алекс Сколник, Дэвид Брайсон, Чарли Хантер, Ларри ЛаЛондэ и многих других.1986 - Not of This Earth
+1987 - Surfing with the Alien
+1989 - Flying in a Blue Dream
+1992 - The ExtremistЖанр: Instrumental Rock, Hard RockПродолжительность: 29:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9398D67AC129A855AA4B648B1BA340AF247D609B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910131   (623295) от 19.06.2015
 
 Barbra Streisand - The Movie Album (2003) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <pop/rock, vocal, ballad>
@@ -538,207 +738,6 @@ A4	История Любви(   Читать дальше...   )Жанр: Pop, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1E65B9B856742027C7E9D86F3727932BD599739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070326   (619907) от 16.04.2022
-
-VA - Golden Hits Of Turkish / Золотые Хиты Турецкой Эстрады (2003) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emrah - Tirlamisim
-02. Infernal - Turkish Bizarre
-03. Izel - Bebek
-04. Ruber Hatemo - Vur dibine(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDF75C9E94F3F159AD388A4B25EC609962A71D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910949   (619835) от 21.06.2015
-
-Scorpions - Love At First Sting (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619835.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Bad Boys Running Wild (3:55)
-A2. Rock You Like A Hurricane (4:12)
-A3. I'm Leaving You (4:18)
-A4. Coming Home (5:00)(   Читать дальше...   )Производство: EMI / HarvestЖанр: Hard RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B46D2EB83A020829F628B0FEE437476965C456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145493   (619610) от 26.06.2017
-
-Therion - Vovin (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rise Of Sodom And Gomorrah (6:46)
-02. Birth Of Venus Illegitima (5:15)
-03. Wine Of Aluqah (5:05)
-04. Clavicula Nox (8:50)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88B23D3DDD9EE3C97D1BEA7B1B5CD40C5C5185D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043512   (618294) от 17.04.2022
-
-Abdul Hafis - Flute Music (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Arabian, Folk, Traditional>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flute Music track 01
-02. Flute Music track 02
-03. Flute Music track 03
-04. Flute Music track 04(   Читать дальше...   )Жанр: Arabian, Folk, TraditionalПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7427027A7CF52C9C988FD34456C283D0878ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047276   (618125) от 17.04.2022
-
-Трио Современной Джазовой Музыки: В. Чекасин, В. Тарасов, В. Ганелин - Джазовые Импровизации (1976) [FLAC 2.0|96/24|side-tracks|Vinyl-Rip] <Free Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618125.jpg" />
-</div>
-
-
-###  Подробнее
-
-А	Джазовые Импровизации
-В	Джазовые Импровизации (Окончание)Жанр: Free JazzПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864A40CB67B61C44A369D71699BE3CE1AFA27DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049808   (617994) от 17.04.2022
-
-VA - Вас Поздравляют Звёзды! (1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617994.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 А. Пугачева, Р. Горобец, Б. Шукенов, А. Барыкин, А. Буйнов - Рождество
-A2 С. Минаев - Ломбаба
-A3 Е. Семенова - А жизнь меня кружила
-A4 И. Саруханов - Barbe(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02200B0E797239E4C67177E3DBA9B2A5D48BA3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230334   (616977) от 11.06.2018
-
-Enigma - MCMXC a.D. (1990) Virgin, Universal Music | Remastered 2016 [FLAC 2.0|24/44.1|tracks|SACD-Rip] <New Age, Downtempo, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Voice Of Enigma (02:21)
- 02. Principles Of Lust: Sadeness / Find Love / Sadeness (Reprise) - Medley (11:43)
- 03. Callas Went Away (04:29)
- 04. Mea Culpa (05:01)(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9635BD46AD88B3ED4F7584445B60D63AF609020
 ```
 
 https://mybot314.ru/tekegram_catalog/

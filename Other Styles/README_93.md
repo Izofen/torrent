@@ -1,3 +1,67 @@
+###  Публикация: 1143016   (639074) от 16.06.2017
+
+Wuauquikuna - The Best of Wuauquikuna (2016) [MP3|320 Kbps] <Native American, Chillout, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way of life (04:47)
+02. Amanecer (06:05)
+03. The last Inka Warriors "Siwar" (04:35)
+04. Sayri Nan (06:25)(   Читать дальше...   )Жанр: Native American, Chillout, WorldПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB91942AB1CE51F11002FD64C024F9DF75D35C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519180   (639003) от 05.07.2012
+
+V.A. - Pedro Del Mar - The Perfect Lounge Collection (3CD) (2012) [FLAC|Lossless]<Chillout, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_639003.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:19:19
+
+01. Pedro Del Mar - Playa Del Lounge (intro mix)
+02. Pedro Del Mar & Blue Tente - You Left (Alexei Zakharov Ambient mix)
+03. The Movement - Rainmaker (Chillout mix)
+04. System F - Exhale (Tim Besamusca's Lounge mix)
+05. Steve Forte Rio - Blossom (Lounge mix)
+06. Hysteria - Talking Eyes (Chillout mix)
+07. Eximinds - I Feel You (Chillout mix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 03:55:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033373   (638229) от 11.07.2016
 
 Cosmic Inc. (Cosmic Baby) - Futura (1994) [FLAC|Lossless|image + .cue]<Trance, Ambient>
@@ -737,70 +801,6 @@ VA - Песни кубанских казаков (2002) [MP3|320 кб/с]<Folk 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE56372EC0E20BA4E7CE15ED1C9920003A926F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519981   (635203) от 07.07.2012
-
-VA - Cossacks-Songs and dances of the Don and Cuban Cossacks / Казаки-песни и танцы Донских и Кубанских казаков - 3 Альбома (2008) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635203.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Vocal ensemble from Leningradskaya stanitsa - Zazhurilis chernomortsy (5:55)
- 2. Bayda (4:45)
- 3. A vzhe lit bilsh dvesti (3:57)
- 4. Vy, kubantsy, brattsy-molodtsy (2:49)
- 5. I ne pyut, ne yedyat koni voronye (3:23)
- 6. Zelyonoe zhito, zelene (3:07)
- 7. Cholovik propiv indika (1:49)
- 8. Stradaniya (0:33)
- 9. Korobeyniki (1:14)
- 10. Vocal ensemble from Chelbasskaya stanitsa - Oy, vechora - izvechora (3:49)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CFB6CB16596B59B0B7E3C1DFE2D6B39418F890E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033914   (634360) от 13.07.2016
-
-Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image + .cue] <New age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Will I Be Faithful? (radio edit)    04:06
-02.  Will I Be Faithful? (forever mix)    04:36
-03.  Will I Be Faithful? (heaven cut)    04:37
-04.  Jonas Song    05:16Жанр: New age, EnigmaticПродолжительность: 00:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531B21B12BADD057382F81A92BC70EDDF9928E6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

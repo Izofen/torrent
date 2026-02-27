@@ -1,3 +1,60 @@
+###  Публикация: 753771   (936765) от 05.02.2014
+
+Ravi Shankar - The Master (3CD Box Set) (2010) [MP3|320 кб/с]<Ethnic, World>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(08:40) 1. Padhasapa
+(04:59) 2. Kaharwa
+(10:46) 3. Improvisation on the Theme of ''Rokudan''
+(07:59) 4. Namah Shivaya
+(13:20) 5. Tribute to Nippon
+(23:35) 6. Raga Hemant (Homage to Baba Allauddin)Жанр: Ethnic, WorldПродолжительность: 01:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02C436D27DA03E0FF63C1B8A0D71B71FD2626C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753404   (936465) от 05.02.2014
+
+Kristopher Carter, Michael McCuistion, Lolita Ritmanis and Shirley Walker - Супермен / Superman: The Animated Series (2014 (1996-2000)) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ScoreПродолжительность: 05:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED81E3D0FC3F0D130FB498BF67C75602C6ADC0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364291   (936399) от 03.03.2020
 
 Felix Slovacek - Con amore (1998) [FLAC|Lossless|tracks + .cue] <Instrumental>
@@ -742,72 +799,6 @@ Lawerence Fritts - Blues Backing Tracks (2006) [MP3|192 kbps]<Blues>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860903   (934637) от 20.01.2015
-
-The Secret Sisters - Put Your Needle Down (2014) [FLAC|Lossless]<Country, Pop-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Rattle My Bones - 03:41
-02. Iuka - 04:42
-03. Dirty Lie - 02:55
-04. The Pocket Knife - 04:34
-05. Let There Be Lonely - 03:10
-06. Black And Blue - 03:31
-07. Lonely Island - 02:32
-08. I Cannot Find A Way - 03:13
-09. If I Don't - 03:53
-10. Good Luck, Good Night, Goodbye - 03:34(   Читать дальше...   )Жанр: Country, Pop-RockПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3A3D62C4527E359E7ECC852DB3BE2283F0F209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658275   (934484) от 20.01.2015
-
-Timothy Wenzel - 4 альбома (2011-2014) [MP3|320 кб/с]<New age, Relax, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-2011 - A Coalescence of Dreams
-2012 - Mountains Take Wing
-2013 - River Serene
-2014 - Summon The Wind - добавлен 18.01.2015Жанр: New age, Relax, CelticПродолжительность: 03:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38509A32A7EE3FC48ACA66F2F470AC8882E11C13
 ```
 
 https://mybot314.ru/tekegram_catalog/

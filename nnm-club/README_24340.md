@@ -1,25 +1,54 @@
-###  Публикация: 1774333   (71550) от 20.01.2025
+###  Публикация: 1770904   (71916) от 05.01.2025
 
-Pallbearer - Mind Burns Alive (2024) [FLAC|Lossless|image + .cue] <Doom Metal>
+Reminor - 2 альбома (2011-2013) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Априори
+02. Затмение
+03. Страна контрастов
+04. Отражения(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E02AE4211D5C5FF0993FA52E0DC9BEBB3EBB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770989   (71915) от 05.01.2025
+
+WhoreMother - Slayed in Poland (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71550.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71915.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Where The Light Fades 6:40
-02. Mind Burns Alive 7:57
-03. Signals 7:53
-04. Endless Place 10:39(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:50:59
+01. Bunker 44 [00:03:38]
+02. 13 Plastic Bags [00:04:57]
+03. Devil's Death [00:03:27]
+04. In the Candle Light [00:04:23](   Читать дальше...   )Жанр: Black Metal, Melodic Death MetalПродолжительность: 00:29:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF5BC56EC381C1D416DF8739E73DA9E029DA90D3
+magnet:?xt=urn:btih:263FEEAD060356FC2747DE2ABC2D117BA28B5A03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774318   (71549) от 20.01.2025
+###  Публикация: 1770543   (71914) от 05.01.2025
 
-Ihsahn - Ihsahn (2024) [FLAC|Lossless|image + .cue] <Black Metal, Avantgarde>
+Эсента - Вечность (2018) [MP3|320 Kbps] <Symphonic, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71549.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71914.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ладно, на самом деле я никогда не слышал сольного материала Исана, но этот альбом, кажется, привлек много внимания и обсуждений, поэтому я хотел проверить его и сделать обзор. Я уже некоторое время являюсь довольно случайным поклонником Emperor, и, учитывая, что они в основном стали пионерами в слиянии оркестровой музыки с блэк-металом, вполне логично, что Исан будет (   Читать дальше...   )01. Cervus Venator 1:19
-02. The Promethean Spark 4:52
-03. Pilgrimage To Oblivion 4:20
-04. Twice Born 3:37(   Читать дальше...   )Жанр: Black Metal, AvantgardeПродолжительность: 00:48:41
+◈ 01 - Не Сейчас (00:04:54)
+◈ 02 - Высь (00:03:38)
+◈ 03 - Путь (00:04:35)
+◈ 04 - На Краю Земли (00:04:42)(   Читать дальше...   )Жанр: Symphonic, Heavy MetalПродолжительность: 00:47:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CFCFFF6DA7880D359DDEC3A87A52CAE349823FB
+magnet:?xt=urn:btih:05B7CD5810A2263AE63FB2291FF0C36F0A34027B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,276 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774310   (71548) от 20.01.2025
+###  Публикация: 1771264   (71913) от 05.01.2025
 
-Nostradameus - Studio Albums (6 releases) (2000-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nostradameus — шведская пауэр-метал группа из Гетеборга, сформированная в 1998 году.2000 - Words of Nostradameus
-2001 - The Prophet of Evil
-2003 - The Third Prophecy
-2004 - HellboundЖанр: Power MetalПродолжительность: 04:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3857F0FB702B7EE045CD2655C1A02A88C3EB6188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774495   (71547) от 21.01.2025
-
-НХЛ 2024-2025. Питтсбург Пингвинз - Лос-Анджелес Кингз (20.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71547.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 января 2025, вторник. 06:30 МСК. Стадион: Крипто.ком-Арена (Лос-Анджелес, США), 18 145 зрителей (96% при вместимости 18 867)
-Главный судья: Крис Шленкер (Медисин-Хат, Канада); Главный судья: Крис Ли (Сейнт Джон, Канада); Линейный: Кил Марчисон (Кловердейл, Канада); Линейный: Джо Махон (Калгари, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50A73D75878C2FE834E8ABEEEF9D65448E7F248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774512   (71546) от 21.01.2025
-
-Цыган Рафаэль / Zigeuneren Raphael (1914) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крестины первенца превращаются в кошмар, когда маленького сына барона и баронессы фон Вильгельм похищают цыгане (это ж цыгане, они постоянно детей воруют). Лишь спустя 20 лет мать и сын встречаются снова, когда цыгане останавливаются табором недалеко от поместья...
-Вот это я называю дрaма, так дрaма! На разрыв.Производство: Дания / Filmfabrikken DanmarkЖанр: драма, немое киноРежиссер: нет сведенийАктеры: Эмануэл Грегерс, Элизабет Ларсен, Кай Ларсен, Thorleif Lund, Charles Lowaas, Вальдемар Мюллер, Расмус Оттесен, Занни Петерсен, Emilie Sannom, Эльза ВенгПеревод: немой с интертитрами (В. Сачков)Субтитры: немецкие (интертитры), русскиеПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E49EF26F323387757F8F012475677AE0BC2619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774454   (71545) от 21.01.2025
-
-10 дней любопытного человека / 10 Days of a Curious Man / Merakli Adamin 10 Gunu (2024) WEBRip [H.264/1080p] [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в Стамбуле пропадает девушка, уставший от жизни писатель попадает в смертельно опасную цепь событий в попытках ее найти — и заодно написать интересную историю.Производство: Турция / Ay YapimЖанр: триллер, драма, криминал, детективРежиссер: Улуч БайрактарАктеры: Нежат Ишлер, Рыза Коджаолу, Кадир Чермик, Илаида Акдоган, Шенай Гюрлер, Джем Услу, Сезер Арычай, Onur Gürçay, Хазал Субаши, Джем Озерен и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:28Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:424A1A877047EDE28E2EDF06F34249E03426A550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774245   (71544) от 21.01.2025
-
-Vintage Culture - One World Radio Residency 038 (2025-01-17) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CIOZ ft. Bludropp - These Accordi
-02. Oliver Huntemann & Marc Romboy - Schwarze Witwe
-03. Vintage Culture ft. Izzy Bizu - If I Live Forever (Arodes Remix)
-04. ID - ID(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2270CADD78909FB9AB0ED2AD5B069F9A876D34AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774487   (71543) от 21.01.2025
-
-Daath - The Deceivers (2024) [FLAC|Lossless|image + .cue] <Industrial, Melodic Death, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71543.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. No Rest No End
-2. Hex Unending
-3. Ascension
-4. With Ill Desire(   Читать дальше...   )Жанр: Industrial, Melodic Death, Groove MetalПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD60321AED3F99237DBF454F1AE7C07C22382CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774456   (71542) от 21.01.2025
-
-10 дней любопытного человека / 10 Days of a Curious Man / Merakli Adamin 10 Gunu (2024) WEBRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в Стамбуле пропадает девушка, уставший от жизни писатель попадает в смертельно опасную цепь событий в попытках ее найти — и заодно написать интересную историю.Производство: Турция / Ay YapimЖанр: триллер, драма, криминал, детективРежиссер: Улуч БайрактарАктеры: Нежат Ишлер, Рыза Коджаолу, Кадир Чермик, Илаида Акдоган, Шенай Гюрлер, Джем Услу, Сезер Арычай, Onur Gürçay, Хазал Субаши, Джем Озерен и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:28Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B04E04431BDF3A898B44ABA0FA8402D8DBAA9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774470   (71541) от 21.01.2025
-
-Клятва на крови / Обещание крови / Janji Darah (2024) WEBRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о паре — Райхане и Шерен, чья жизнь изменяется после появления в ней мистических сил. В ожидании первенца супруги сталкиваются с угрозами, связанными с древним обещанием, данное когда-то ради их любви. Это обещание оказывается ключом к серии зловещих событий, которые вскрывают глубины верности, любви и страха перед неизведанным. На фоне этих событий пара (   Читать дальше...   )Производство: Индонезия / Max Pictures, Merpati FilmsЖанр: ужасыРежиссер: Sentot Sahid, Andri SofyansyahАктеры: Наташа Вилона, Эмир Махира, Ферджи Джованна Бриттани, Дженар Маэса Аю, Кики Нарендра, Месси Густи, Абирама Путра, Ятие Сурачман, Emmi Lemmu, Shabrina LunaПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:44:42Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFBAA8E7BB3B40732CAC1797C6FD0AB8E3536026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774445   (71540) от 21.01.2025
-
-VA - Uplifting Only Top 15: January 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamira & Tsuki Shizumutoki - Revive (Intro Mix) [5:37]
-02. Etasonic - In The Valley Of The Blue River (Extended Mix) [9:40]
-03. Jericho Frequency & Kate Miles - Blink Of An Eye (Extended Mix) [7:14]
-04. Dalmoori & RillLua with Euphoric Heart - Wheel Of Fortune (Harmonic Wave Extended Remix) [5:38](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D67EA0974A8C9985108BBA60F531B6BEB5E087B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774246   (71539) от 21.01.2025
-
-Afterlife - Timelines 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient>
+The Blue Moods - Force & Grace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71539.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Return To Forever [00:03:39]
-02. Across The Deep Blue Sea [00:03:59]
-03. Temple Of Bass [00:03:51]
-04. Sirens of Titan [00:03:40](   Читать дальше...   )Жанр: AmbientПродолжительность: 00:51:58
+01.  Crisis (4:42)
+02.  First Light (4:19)
+03.  Latina (4:04)
+04.  Brigitte (4:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7B585D85D1FED3C8729BCDDA76BD4D6B2648B96
+magnet:?xt=urn:btih:11A918C443F12BF82E1F6A74FE8D0A8F1AEC320D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -333,257 +114,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774485   (71538) от 21.01.2025
+###  Публикация: 1771236   (71912) от 05.01.2025
 
-The New Roses - Attracted To Danger (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You Fall In Love
-02. Natural Born Vagabonds
-03. Attracted To Danger
-04. Four Wheels(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA8261B55F99ACD61671F4A3E04024D3D34FDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774550   (71537) от 21.01.2025
-
-Андрей Швиденко - 2 Albums (2023, 2024) [MP3|320 Kbps] <авторская и военная песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В море-дома [00:04:46]
-02. Глубина [00:04:18]
-03. Торпедная атака [00:03:22]
-04. БЧ-5 [00:04:51](   Читать дальше...   )Жанр: авторская и военная песняПродолжительность: 2 CD, 02:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D885DD5EBFBA01B8005D53FD173045D18DBFB37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774208   (71536) от 21.01.2025
-
-VA - Italo Disco - The Lost Legends Vol. 16 (2018) [AAC|320 Kbps] <Electronic, Italo-Disco, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiki Gaida - Virginal Mystery
-02. Parsifal - Carillon (English Version)
-03. Tenere - Moon Destination (Vocal English Version)
-04. Zener - New Generation(   Читать дальше...   )Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A92A5C5398167646378855B26D0E9B42B6CB4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774260   (71535) от 21.01.2025
-
-Kariny Phonsy - CHECKMATE (2024) Super Deluxe, 2025, Kariny Phonsy [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Brazil POP>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CUNT [00:03:37]
-02. JOGAÇÃO [00:03:01]
-03. CHECKMATE [00:03:01]
-04. DOCE TENTAÇÃO [00:02:52](   Читать дальше...   )Жанр: Brazil POPПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFCC5C98DBF5BC742D6375B80A4D5486170C863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774646   (71534) от 23.01.2025
-
-Pete Yorn - Day I Forgot (2003) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro    [0:00:47.18]
-02. Come Back Home    [0:03:23.53]
-03. Crystal Village    [0:03:48.31]
-04. Carlos (Don’t Let It Go to Your Head)    [0:03:29.21](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC58D31FC335E02A6D10F4BABF2B1B7EED4B8C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774891   (71533) от 23.01.2025
-
-Stephen Kellogg and the Sixers - Bulletproof Heart (2004) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorpio    [0:03:13.37]
-02. You've Changed    [0:03:43.38]
-03. Thirteen    [0:03:54.00]
-04. See You Later, See You Soon    [0:03:55.37](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1429EDA6C61ABEE101ACE937865A7E93232629A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774852   (71532) от 23.01.2025
-
-Witchwood (ex-Buttered Bacon Biscuits) - Studio Albums (4 releases) (2009-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Prog Rock, Southern Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Witchwood — итальянская хард-рок-группа, основанная в 2014 году.2009 - From The Solitary Woods (as Buttered Bacon Biscuits)
-2015 - Litanies From The Woods
-2016 - Handful of Stars
-2020 - Before the WinterЖанр: Hard Rock, Prog Rock, Southern RockПродолжительность: 03:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBD40BD5CF113A7E7760072782A0A0DAA916B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774807   (71531) от 23.01.2025
-
-VA - Blue Notes, Vol.1: The Essence Of Modern Jazz (1953 - 1962) 10CD, 1999, The Intense Media [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sheila Jordan - Falling in Love With Love [2:32]
-02. Sheila Jordan - If You Could See Me Now [4:33]
-03. Sheila Jordan - Am I Blue [4:12]
-04. Sheila Jordan - Dat Dere [2:44](   Читать дальше...   )Жанр: Bop, Hard Bop, Vocal JazzПродолжительность: 12:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA498EE64200F088AEB0A0015B2C6DF81C717FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774765   (71530) от 23.01.2025
-
-Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной Церкви | Святая Олимпиада и другие диакониссы древней Церкви (2010) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+Святитель Афанасий Великий | Жизнь и наставления преподобной Синклитикии Александрийской (2000) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71530.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кто такие диакониссы и в чем заключалось их служение – об этом, а также об исключительной личности – святой Олимпиаде, преданнейшей ученице святителя Иоанна Златоуста, рассказывает эта книга. Богато одаренная Богом всеми преимуществами, о которых, казалось бы, можно только мечтать: знатностью рода, всеобщим почтением, огромными богатствами, незаурядным умом и редкостной (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+«Блаженная Синклитикия родилась в Александрии. Семейство, к которому она принадлежала, вело свой род из Македонии, было уважаемо и богато. Услышав об особом благочестии александрийцев, предки преподобной оставили Македонию и переехали в Александрию, где нашли искреннюю веру и истинную любовь к Богу…».Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2CE8786A982A6A2DB5050A906052DCC5EFB128C
+magnet:?xt=urn:btih:F7A765044F405B8E74696C5BDAAAE9DDF0FD5234
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -591,27 +140,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774769   (71529) от 23.01.2025
+###  Публикация: 1771263   (71911) от 05.01.2025
 
-Монахиня Игнатия (Пузик) | Святитель Игнатий – Богоносец Российский (2003) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+Saedin - Entre Rios (2020) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71529.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В жизнеописании святителя Игнатия (Брянчанинова) автор рисует необычный облик Святителя, останавливаясь на малоизвестных страницах его жизни и на особенностях его духовного пути. Автор размышляет о месте Святителя в традиции русского старчества и характерных чертах его литературного творчества.
+01 Castillo rojo
+02 Ni una menos
+03 Corazón nazarí
+04 Entre ríos(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73C40CE5B9CB38EC12803347E2C81BED3D4A285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771175   (71910) от 05.01.2025
+
+Николай Гоголь | Мертвые души (2011) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тонкая ирония, яркие персонажи, великолепный гоголевский текст, неподражаемая игра замечательного актера и режиссера Алексея Багдасарова и абсолютно уникальная музыка Владимира Бруса. Аудиокнига "Мертвые души" не оставит равнодушной ни одну живую душу.
 
-В книгу вошли также произведения святителя Игнатия, отражающие различные (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+ Николай Гоголь на NoNaMe ClubЖанр: Русская классика, поэмаИздательство: ВимбоПродолжительность: 12:48:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C04D986CFBB44D58B899E51AF43E3D6441DF9C64
+magnet:?xt=urn:btih:92D587A766E9BB737F1F421F0FDF6D34A6C6F8F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,28 +197,192 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774809   (71528) от 23.01.2025
+###  Публикация: 1771013   (71909) от 05.01.2025
 
-Visions Of Atlantis - Armada LIVE Over Europe - Pt. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+Pink Floyd - Live At Odeon (Newcastle-upon-Tyne, UK, 9 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shine On You Crazy Diamond (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [22:00]
+02 - Raving And Drooling (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [13:10]
+03 - You've Got To Be Crazy (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [16:25]
+04 - Speak to Me (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [1:13](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BB19E6BEDE15E44FE3F705E0BA411BE55576B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771012   (71908) от 05.01.2025
+
+Pink Floyd - Live at Empire Pool (Wembley, London, UK, 17 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Raving And Drooling (Live at Empire Pool, Wembley, London, UK, 17 November 1974) [14:20]
+02 - You've Got To Be Crazy (Live at Empire Pool, Wembley, London, UK, 17 November 1974) [16:27]
+03 - Shine On You Crazy Diamond (Live at Empire Pool, Wembley, London, UK, 17 November 1974) [21:37]
+04 - Speak to Me (Live at Empire Pool, Wembley, London, UK, 17 November 1974) (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE53E09F913C5B40521CA0A98BEBB686FE613BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771222   (71907) от 05.01.2025
+
+Архимандрит Ефрем Святогорец | Жемчужины подвижнической мудрости. Главы о молитве и послушании (2001) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71907.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Прежде чем начать чтение этого замечательного сборника слов и писем, читателю, вероятно, будет совсем небезынтересно узнать что-нибудь и об их авторе. Но, говоря об отце Ефреме, нельзя не сказать и о его Старце, которого он так часто упоминает в своих словах, – Иосифе Исихасте, или Пещернике, как его еще называют. Это – одно из великих имен в современной истории (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C101A7D193E7BAB5E33F9B11A8FF5AA0745434DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771248   (71906) от 05.01.2025
+
+Deblon jackson - FLUTOPIA (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deblon Jackson feat. Jerald Daemyon & Stanley Cooper - Flutopia (4:42)
+02.  Deblon Jackson feat. Jerald Daemyon - Hypnotic (4:37)
+03.  Deblon Jackson feat. Jerald Daemyon & Kevin Levi - Mozambique (3:59)
+04.  Deblon Jackson feat. Greg Dokes & Stanley Cooper - Cruisin' (4:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D76D2F9EF0DAB81C563BF87933180AC116ED391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771365   (71905) от 06.01.2025
+
+Михаил Шолохов | Тихий Дон (2021) [MP3, Сергей Горбунов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман-эпопея Михаила Шолохова «Тихий Дон» – одно из наиболее значительных, масштабных и талантливых произведений русскоязычной литературы, принесших автору Нобелевскую премию. Действие романа происходит на фоне важнейших событий в истории России первой половины ХХ века – революции и Гражданской войны, поменявших не только древний уклад донского казачества, к которому (   Читать дальше...   )Жанр: Классика, РоманИздательство: МедиаКнигаПродолжительность: 71:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313D2EC146BA0D1B8E9DE2EDD771E66C2BA1233E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771364   (71904) от 06.01.2025
+
+Алексей Толстой | Хождение по мукам (Книги 1-3) (2022)  [MP3, Сергей Дидок]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71904.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хождение по мукам» – трилогия романов Алексея Николаевича Толстого, прослеживающая судьбы русской интеллигенции накануне, во время и после революционных событий 1917 года. Состоит из романов «Сёстры» (1918—1922), «Восемнадцатый год» (1927—1928) и «Хмурое утро» (1940—1941).
+
+"Книга «Хождение по мукам» – это хождение совести автора по страданиям, надеждам, восторгам, (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ИДДКПродолжительность: 44:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C4959FFEC65ACA3093AC76E019114DE86917BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771505   (71903) от 06.01.2025
+
+QOwnNotes 25.1.3 Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71528.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - To Those Who Choose to Fight (LIVE at Lyon) (02:19)
- 02 - The Land of the Free (LIVE at Lyon) (04:41)
- 03 - Monsters (LIVE at Nuremberg) (03:49)
- 04 - Heroes of the Dawn (LIVE at Paris) (04:42)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:26:44
+QownNotes – менеджер заметок, позволяющий четко организовать свои заметки, эффективно управлять записями. Удобные функции сортировки, вывода на печать, расшаривания, синхронизации заметок с облачным сервисом. Такая синхронизация позволит открывать и редактировать файлы, например в мобильном устройстве. Записи хранятся в простых текстовых файлах. Есть возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72131AA442F277FCB9F7D6F1C5BFA43507FE94B3
+magnet:?xt=urn:btih:EBB22F37E07A45E7443D5F4BFF625E17560C1B36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,28 +390,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774828   (71527) от 23.01.2025
+###  Публикация: 1771370   (71902) от 06.01.2025
 
-VA - Deep-House Hunters, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+VA - The Orient Collective: Sacred Nomads (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
->>Electronic
->>House
+>>Other Styles
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71527.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lavidaa - Best in Town (02:50)
-02. Estonia - Every Time (Off Shore Instrumental) (05:26)
-03. Aaron Noise - Ready for This (Extended Mix) (06:15)
-04. Mike Frechson - Journey To The Moon (03:49)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:06:30
+01. Yuluka - Bounce Bazar (5:24)
+02. Paolo Lofrè - Doa (7:32)
+03. DaDa Sound Project - Trakia (5:00)
+04. 4Moon Music - Terra (6:12)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09CE505881ECD169D1550576D08B3A87A40FEC6D
+magnet:?xt=urn:btih:ABEB259BFC3DC7E4870D521DD28DF1EC35066342
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,27 +419,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774860   (71526) от 23.01.2025
+###  Публикация: 1771452   (71901) от 06.01.2025
 
-Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 7-й. ПСЖ (Франция) - Манчесткр Сити (Англия) (22.01.2025) HDTVRip [H.264/1080p]
+Брайан Олдисс | Видимость жизни (2024) [MP3, Puffin Сafe]
 
->>Спорт и активный отдых
->>Футбол
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71526.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 7-й.  ПСЖ (Франция) - Манчесткр Сити (Англия) (22.01.2025)
-СУДЬЯ Марциняк Шимон (Плоцк, Польша)
-СТАДИОН «Парк де Пренс» (Париж)Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:54:17
+"Спустя десятки тысяч лет после начала космической эры, человечество заполняет экспонатами инопланетную циклопическую постройку неизвестного назначения, расположенную вдоль экватора на одной из планет. На каталогизацию уйдут тысячелетия. Один из Ищущих посещает бесконечный музей человеческой истории, чтобы найти ответы на вопросы, но находит страшную догадку (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:44:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72907BEAA5A1474B595BF6971A749528C7D638F6
+magnet:?xt=urn:btih:F0935E9E208864A9A7B6D9BBC4DC531B49645557
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -705,25 +445,263 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774768   (71525) от 23.01.2025
+###  Публикация: 1771420   (71900) от 06.01.2025
 
-Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной Церкви | Победа над последним врагом. Случаи воскресения из мертвых (2000) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+12 рождественских собак: Спасение приюта для щенков / 12 Dogs of Christmas: Great Puppy Rescue (2012) WEBRip [H.264/1080p]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71525.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Смерть – один из самых поразительных фактов человеческого бытия. Нет никого, кому удалось бы ее миновать, она общий удел, неизбежное завершение нашего пути. И вряд ли кто-то мог бы это оспорить: в том, что смерть есть, уверен, наверное, каждый. Но что такое смерть – ответ на этот вопрос для человека верующего и для атеиста будет совершенно различным»…Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+Собаки Довервиля снова в беде, и Эмили О'Коннер вернулась спустя 6 лет, чтобы спасти их. Местный магнат Финнис Джеймс задумал закрыть приют щенков, и если Эмили не найдёт деньги, то приют закроют. С помощью друзей Эмили организует благотворительный вечер, чтобы достать деньги на спасение приюта. Ей помогает новая знакомая Зои — бывшая актриса, а теперь предсказательница, (   Читать дальше...   )Производство: США / 12 Dogs II, Kragen / Merrill Family FilmsЖанр: комедия, семейныйРежиссер: Кит МэриллАктеры: Шон Патрик Флэнери, Даниэль С. Райан, Скайлер Холман, Алиша Маллалли, Джеймс Гейсфорд, Ронн Лукас, Алли Симпсон, Д.Б. Суини, Кэти Вортингтон, К. Данор ДжералдПеревод: Многоголосый профессиональный (Кипарис)Язык озвучки: Русский, английскийСубтитры: Русские (AI)Продолжительность: 01:37:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D79EAC3EDCABD079405BB985DBBEAC1C3CD76A91
+magnet:?xt=urn:btih:50F4D3DD3DD3B6181F0F3E8BC10899074122AEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771375   (71899) от 06.01.2025
+
+Александр Рудазов, Ксения Рудазова | Паргоронские байки. Том 4 (2025) [MP3, FAN12]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71899.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Титаны – это своего рода живой адамант. Вместо кости у них чистый алмаз, вместо крови – прозрачный ихор, а вместо сердца – пылающая звезда. Внешне титаны похожи на очень рослых людей, но с людьми у них меньше общего, чем у жуков-палочников.
+Одни смертные считают титанов чем-то вроде земных богов. Это не так. Другие смертные считают титанов чем-то вроде буйных стихий, (   Читать дальше...   )Жанр: Юмористическое фэнтезиИздательство: ЛитРес: Чтец, АвторПродолжительность: 25:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FA6537840987B3FCE6BC12A92E7A2179987AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771423   (71898) от 06.01.2025
+
+Тысяча и один / A Thousand and One (2023) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8.1, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк. Середина 1990-х годов. Мать-одиночка Инес скитается по хостелам, а её маленький сын Терри живёт в приюте. Однажды Инес принимает непростое решение - она похищает собственного сына и уезжает в другой город, чтобы там начать новую нелегальную жизнь...Производство: США / Sight Unseen Pictures, Focus Features, Hillman GradЖанр: драма, криминалРежиссер: А.В. РокуэллАктеры: Тейяна Тейлор, Аарон Кингсли Адетола, Авен Кортни, Джозайя Кросс, Уильям Кэтлетт, Терри Эбни, Делисса Рейнольдс, Амелия Уоркмэн, Адриан Ленокс, Гэвин ШлоссерПеревод: Дублированный (Iyuno-SDI Group), Многоголосый (TVShows)Язык озвучки: русский, украинский, английскийСубтитры: русские (forced, full), украинские, английские (full, SDH)Продолжительность: 01:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6428D6A35D63BCE0D81946738FE3DE4802418E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771185   (71897) от 06.01.2025
+
+4K Video Downloader + 1.10.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.12.2024Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241477F1AC35D82375E8D3B1E903419F98E5440E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771374   (71896) от 06.01.2025
+
+Александр Рудазов, Ксения Рудазова | Паргоронские байки. Том 3 (2021) [MP3, Павел Шехов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нет на свете места уютнее, чем малый зал «Соелу», лучшего паргоронского ресторана. Впускают туда далеко не каждого, но уж если вас впустили – радуйтесь, ибо сегодня вы гость Янгфанхофена, Паргоронского Корчмаря. А это значит, что вы будете вкушать то, что больше всего любите, пить лучшие в круговерти миров напитки и слушать истории, которых не услышите больше нигде. (   Читать дальше...   )Жанр: Юмористическое фэнтезиИздательство: ЛитРес: Чтец, АвторПродолжительность: 24:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96AE19241EE094423A4D44491A2FFAE55904816F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771376   (71895) от 06.01.2025
+
+Новый Человек-паук / The Amazing Spider-Man (2012) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71895.jpg" />
+</div>
+
+
+###  Подробнее
+
+В детстве Питер Паркер был оставлен своими родителями, и поэтому воспитывался дядей и тётей. Шли годы, Питер был обычным примерным школьником, подвергался нападкам хулиганов и был влюблён в свою одноклассницу Гвен Стэйси, которая сама втайне отвечала ему взаимностью. Но после укуса генетически изменённого паука, Питер получает невероятные сверхспособности и его жизнь (   Читать дальше...   )Производство: США / Columbia Pictures, Marvel Entertainment, Laura Ziskin ProductionsЖанр: фантастика, боевик, приключенияРежиссер: Марк УэббАктеры: Эндрю Гарфилд, Эмма Стоун, Рис Иванс, Дэнис Лири, Мартин Шин, Салли Филд, Эмбет Дэвидц, Кэмпбелл Скотт, Ирфан Кхан, Крис ЗилкаПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские (forced, full), английскиеПродолжительность: 02:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE699DBFF9B3CD36FC68ADA75E4D83BEB2C1F57C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771478   (71894) от 06.01.2025
+
+Последний выстрел / Dead Shot (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отставной ирландский военный Майкл становится свидетелем смерти своей беременной жены от рук офицера особой военной службы. Раненый Майкл сбегает, чтобы отомстить. Однако добраться до поднимающегося по карьерной лестнице агента становится все сложнее, и выстрел, перевернувший жизнь Майкла, становится началом большой войны.Производство: Великобритания / Highland Midgie, Piecrust Productions, Rocket Science, Stylopik, Upper StreetЖанр: боевик, триллерРежиссер: Чарли Гард, Томас ГардАктеры: Колин Морган, Марэйд Тайерс, Brian McCann, Амл Амин, Марк Стронг, Уильям Оксборро, Хайвел Морган, Rory Grant, Люсьэнн МакЭвой, Мартин МакКардиПеревод: Дублированный (Lucky Production)Язык озвучки: русский, английскийСубтитры: русские, английские, португальские, испанские, французские, голландскиеПродолжительность: 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A7B9A765DE174E7B2C775C3EE481DB891B5EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770594   (71893) от 06.01.2025
+
+Big One - Pink floyd Show (2006) [MP3|320 Kbps] <Rock, Alt Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine on you crazy diamond [13:24]
+02. Medley time / breath reprise [06:20]
+03. The great gig in the sky [05:35]
+04. Money [08:17](   Читать дальше...   )Жанр: Rock, Alt RockПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396A8FB48DA1B7F7BB03AD8AF3E6A71BC9EC380A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771338   (71892) от 06.01.2025
+
+Ильяс Найманов | I.M.M.O.R.T.A.L. (Книга 8). Варвара (2025) [MP3, Роман Ефимов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество безоговорочно пятится от новой формы жизни, больше похожей на новую форму смерти. Не имея практически ничего, что можно противопоставить пожирающему саму жизнь гнусу, оно растворяется и перемалывается им. Что ждёт человека, волею случая, получившего один шанс на спасение? Что может спасти тринадцатилетнюю девушку, оставшуюся в живых практически случайно (   Читать дальше...   )Жанр: Боевая фантастика, Постапокалипсис, МистикаИздательство: Аудиокнига своими рукамиПродолжительность: 09:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:776B6403F9146FEF68E82B4B2DD74BAF4767CF48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770843   (71891) от 06.01.2025
+
+Тот, кто должен умереть / Celui qui doit mourir (1957) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на романе «Распятый Христос» (также известном как «Греческие страсти») Никоса Казандзакиса... В оккупированной турками греческой деревне вскоре после Первой мировой войны жители ставят «Страсти Христовы», в которых обычные люди исполняют роли Иисуса, Петра, Иуды и т. д. Постановка спектакля приводит к восстанию против своих турецких правителей...Производство: Франция, Италия / Cinétel, Da Ma Produzione, Filmsonor S.A., Indusfilms, Прима-фильмЖанр: драмаРежиссер: Жюль ДассенАктеры: Жан Сервэ, Мелина Меркури, Роже Анен, Морис Роне, Карл Мёнер, Грегуар Аслан, Герт Фрёбе, Тедди Билис, Рене Лефевр, Люсьен Рэмбур, Пьер Ванек, Николь Берже, Фернан Леду, Джозеф ДассенПеревод: любительский одноголосый (Мика Бондарик)Язык озвучки: русский, французскийСубтитры: русские (Антон Каптелов), английскиеПродолжительность: 02:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75EE8E553AAC6816F70127204798DB3D97F3D6BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

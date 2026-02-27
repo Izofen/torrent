@@ -1,3 +1,311 @@
+###  Публикация: 917773   (589028) от 12.07.2015
+
+Radiorama - Greatest Hits & Remixes (2015) 2CD [FLAC|tracks]<Italo Disco, Euro House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desire (Vocal) [3:52]
+02. Aliens (Album Version) [4:12]
+03. Vampires (Short Version) [4:22]
+04. Chance To Desire (Album Version) [4:08](   Читать дальше...   )Жанр: Italo Disco, Euro HouseПродолжительность: 02:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7083552EAC9F1ECB6230AF917AF1D18D9A37C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551769   (588992) от 18.05.2022
+
+VA - DMC Back To Back Classix (Classic Mixes) (Vol.1) (2021) [MP3|320 Kbps] <Rock & Roll, Disco, Dance-pop, Beat>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Bowie - Bowie Classix (Mixed By Lucien Vrolijk)
+02. Elton John & Alessandro Safina - Your Song (DMC Extended 2020) (Remixed By Lucien Vrolijk)
+03. Rick Astley - Never Gonna Give You Up (DMC Bass Remix) (Remixed By Lucien Vrolijk)
+04. Various - 3 Decades Of Popmusic (Part 3) (Mixed By Arjan Van Der Paauw)(   Читать дальше...   )Жанр: Rock & Roll, Disco, Dance-pop, BeatПродолжительность: 01:18:13 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB1863BCF0EDAC6397E9A2E9AF0DC02CCB17FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551780   (588915) от 18.05.2022
+
+VA - DMC Dancing Divas (Classic Mixes) (Volume 1) (2015) [MP3|320 Kbps] <Electro House, Soul, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spice Girls - Dmc Spice Girls Megamix
+02. Diana Ross - Diana Ross Mixdown
+03. Cilla Black - Cilla Black Minidance Mix “The Segue of Surprise”
+04. Whitney Houston - Whitney Houston Mega-Remix(   Читать дальше...   )Жанр: Electro House, Soul, Dance-popПродолжительность: 01:20:01 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4029076EBABF723F10BC9710BF339CFBA92B050C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551773   (588909) от 18.05.2022
+
+VA - DMC Back To The 80s (Classic Mixes) (Volume 1) (2021) [MP3|320 Kbps] <Electro, Funk, Dance-pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Culture Club - Ultimate Culture Club Megamix (Part 1 & 2) (Mixed By Kevin Sweeney)
+02. ABC - The ABC Mix (Mixed By Marco Oude Wolbers)
+03. Art Of Noise - Art Of Noise Mix (Mixed By Marco Oude Wolbers)
+04. VA - Trapped In The 80s (Mixed By Jimmy 'Slimjay' Langtoft)(   Читать дальше...   )Жанр: Electro, Funk, Dance-pop, HouseПродолжительность: 01:18:09 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F15FF61CF507D628D495BCAE050B76B83A183A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917897   (588672) от 13.07.2015
+
+R5 - Sometime Last Night (2015) [MP3|320 кб/с]<Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night
+02. Wild Hearts
+03. Dark Side
+04. Let's Not Be Alone Tonight(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D190D278A0407F0D75397BEDEC9812E0F88F84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552212   (588529) от 19.05.2022
+
+Elen Cora - House of Cards (2012) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me Why (3:35)
+02. Forgive Me (4:14)
+03. Astronomers in China (4:41)
+04. Wanna Be Real (4:20)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579D4027DDA0CDAEE3F4845F2EE185932523D6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552213   (588514) от 19.05.2022
+
+Elen Cora - House of Cards (2012) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me Why (3:35)
+02. Forgive Me (4:14)
+03. Astronomers in China (4:41)
+04. Wanna Be Real (4:20)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0CAEB2BF5405DE1515E8DDA13D5E138068E40B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809230   (588382) от 31.07.2014
+
+Wish Key - Uno (2010) [FLAC|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acumbacha
+02. Make It Up
+03. The Key Of Sunshine
+04. No Woman No Cry
+05. Last Summer
+06. The One You Love
+07. Life
+08. Orient Express
+09. Make It Up (Maxi Version)
+10. Orient Express (Vocal)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06AF0AD62EEF2E665CDB1B560DE50787013065B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809232   (588376) от 31.07.2014
+
+Wish Key - Uno (2010) [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acumbacha
+02. Make It Up
+03. The Key Of Sunshine
+04. No Woman No Cry
+05. Last Summer
+06. The One You Love
+07. Life
+08. Orient Express
+09. Make It Up (Maxi Version)
+10. Orient Express (Vocal)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1E47BF295DEB1B861F7380B9F6F00792F6A372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809258   (588364) от 31.07.2014
+
+K.B. Caps - Catch Me Now I'm Falling (2005) [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Really Need Me? (maxi mix)
+02. Catch Me Now I'm Falling
+03. Julia (maxi mix)
+04. Dancing In The Dark
+05. Angel Of The Dreamland (extended version)
+06. Wait, Baby, Wait
+07. Do You Really Need Me? (original version)
+08. Julia (funk b-mix)
+09. Catch Me Now I'm Falling (instrumental)
+10. Dancing In The Dark (crazy version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7543CA5C5C8BF87FB04006D5035A65AF574E7856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 809257   (588339) от 31.07.2014
 
 K.B. Caps - Catch Me Now I'm Falling (2005) [APE|Lossless]<Italo-Disco>
@@ -484,305 +792,6 @@ VA - Modern Talking Árnyékában 1. (2009) [FLAC|Lossless]<EuroDisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5BA06A0C10FA15DED02AC845393F9672FB6A95B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809570   (586459) от 02.08.2014
-
-VA - Modern Talking Árnyékában 1. (2009) [MP3|320 кб/с]<EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K.B.Caps - Do You Really Need Me (Maxi Version) (6:39)
-02. Solid Strangers - Music In The Night (Maxi Version) (5:24)
-03. New Baccara - Call Me Up (Maxi Version) (5:04)
-04. Grant Miller - Doctor For My Heart (Maxi Version) (5:16)
-05. C.C. Catch - Strangers By Night (Maxi Version) (5:46)
-06. Lift Up - Diamonds Never Made A Lady (Maxi Cut) (5:10)
-07. Patty Ryan - Stay With Me Tonight (Maxi Version) (5:42)
-08. Lian Ross - It's Up To You (Maxi Version) (5:38)
-09. Bad Boys Blue - For Your Love (Album Maxi Version) (   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C4331E4E45F40397C09186571CBFACB90F9A463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040622   (586453) от 05.08.2016
-
-The Z.A.C.K. - Disco Cosmix (1979) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интереснейший проект в стиле спейс-диско.01. Mister Satellite (7:26)
-02. 565, Where Are You (6:07)
-03. Mind The Cosmic Rocker (6:55)
-04. Immediate Boarding Folks To The Moon (12:11)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0563A6F18C9480DE08B19860761D828A74B407FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040536   (586435) от 05.08.2016
-
-VA - Танцевальный рай: RIO (2016) [MP3|320 Kbps] <Pop, Eurodisco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiosonik X Jerome - Thong Song
-02. Willy William - Ego (Radio Edit)
-03. TWiiNS - One Night Stand (Radio Edit)
-04. Vengaboys - 2 Brazil! (Dance Radio Edit)(   Читать дальше...   )Жанр: Pop, EurodiscoПродолжительность: 01:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897D901AAE0190DBB6CE53548D8745C0477D881A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809556   (586424) от 02.08.2014
-
-Video Kids - The Invasion Of The Spacepeckers (2007) [FLAC|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do The Rap 3:35
-02. Cartooney Tunes (Incl.Happy Birthday) 4:24
-03. La Bamba 4:14
-04. I'm Rock And Rollrpecker 2:28
-05. Communication Outer Space 3:09
-06. Woodpeckers From Space 5:57
-07. Give Me That Banana 4:07
-08. Do You Like Surfing ? 3:21
-09. Sky Rider 3:13
-(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB847D2C5626594D0BBDF6754097FE849D0E93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301330   (586178) от 10.05.2019
-
-Tight Fit - Back To The 60's (1981) LP [MP3|320 Kbps] <Pop, Disco, Rock & Roll>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mixed - Back To The 60s - Side One (18:32)
-02. Mixed - Back To The 60s - Side Two (18:03)Жанр: Pop, Disco, Rock & RollПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB8DDAD6367556C42E791D7EEE10570F6EB854A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918848   (585941) от 16.07.2015
-
-VA - Romantic Worlds Vol.2 (2008) [FLAC|image + .cue]<Pop, New Age>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yello - Homage to the mountain [0:35]
-02. Natalie Cole - If i ever lose my faith in you [5:38]
-03. Eskobar - Someone new [3:30]
-04. Secret Servise - Destiny of love [4:11](   Читать дальше...   )Жанр: Pop, New AgeПродолжительность: 01:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F6FA1BB6E3B594D0AEC95DE199834E4E00A5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918687   (585860) от 16.07.2015
-
-Доминик Джокер - Дежавю (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солнце взойдет
- 02. Буду я любить
- 03. Если ты со мной
- 04. Небо напрокат(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE0C9A448DFF16F2C1BA2AA47362A6B958D37C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552162   (585845) от 22.05.2022
-
-VA - The Original Masters, Vol. 7 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eli's Second Coming - Love Chant (5:57)
-02. Tony Silvester - Pazuzu (6:38)
-03. Dennis Coffey - Boogie Magic (5:46)
-04. Porn Music - Boogie Nights (2:38)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C2E14FFAF7D6F9C0791483727618C52E6B4260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552164   (585844) от 22.05.2022
-
-VA - The Original Masters, Vol. 8 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tee Cee's - Ecstasy (8:21)
-02. Calender - Hypertension (5:50)
-03. Pam Todd And The Love Exchange - Let's Get Together (5:23)
-04. Cory Daye - Green Light (9:00)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90A45FB399B01781CC7883ECAECEE8351F235C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552157   (585840) от 22.05.2022
-
-VA - The Original Masters, Vol. 4 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eruption - I Can't Stand the Rain (6:28)
-02. Chilly - For Your Love (11:48)
-03. Skatt Brothers - Walk the Night (5:23)
-04. Bay City Rollers - Don't Stop the Music (5:59)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70740C18D6B325B3769431FF445A5EE16987420
 ```
 
 https://mybot314.ru/tekegram_catalog/

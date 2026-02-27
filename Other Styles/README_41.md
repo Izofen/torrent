@@ -1,3 +1,64 @@
+###  Публикация: 643043   (874414) от 13.04.2013
+
+Caravelli - 54 альбома (1965-2011) [MP3|128-320 кб/с]<Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Оркестр Каравелли (Caravelli Orchestra) - едва ли не самый знаменитый на сегодняшний день оркестр, исполняющий лёгкую инструментальную музыку. Потрясающая фоновая музыка, на все времена! Французский музыкант, пианист, композитор, великолепный аранжировщик, дирижёр, создатель вышеупомянутого коллектива, сын итальянца и француженки - всё это сказано о Клоде Вазори, взявшего себе сценический псевдоним Caravelli. Целая плеяда артистов, приверженцев инструментальной музыки, из самых разных стран, так, или иначе, выросли вместе с творчеством французского маэстро. Почему, собственно, только артистов? Все семидесятники - восьмидесятники, так или иначе, выросли на этих записях...01 - I'm Not In Love
+ 02 - Born To Be Alive
+ 03 - Dancing Queen
+ 04 - Une, Deux, Tois
+ 05 - Chiquitita
+ 06 - Un Banc, Un Abre, Une Rue
+ 07 - Magic Fly
+ 08 - Samson & Delilah
+ 09 - Tweedle Dee, Tweedle Dum
+ 10 - T.S.O.P (The Sound Of Philadelphia)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5143BCAA53CC8283A5D662BD412017FACA753837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300574   (874264) от 25.02.2011
+
+Gregorian - Best Of 1990-2010 (2011) [MP3|320 kbps]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 -Жанр: New AgeПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF34006CC0C96683C19A53C94647A73C73FA7885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 783854   (874193) от 09.04.2020
 
 Troika (David Arkenstone) - Shaman (2000) [FLAC|Lossless]<New Age>
@@ -725,61 +786,6 @@ Romantic Collection - HARP (2002) [MP3|320 кб/с] <Instrumental, vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A443639C09ECF53C11D15E07B9E5553190A77E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186479   (871440) от 31.03.2010
-
-David Nevue - 10 albums (1991-2007) [MP3|320 kbps]<New Age, Solo pian>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age, Solo pianoПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496505   (871397) от 18.09.2021
-
-Sarah Patterson - Buddhasongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, World, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Heart Sutra
-02. Buddha of the Wild and Green
-03. Deer in the Morning (Chenrezig)
-04. Medicine Buddha Healing(   Читать дальше...   )Жанр: New Age, World, MantrasПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A406732959A4E7C5FD8AE63ACF7E6F4EDF772C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

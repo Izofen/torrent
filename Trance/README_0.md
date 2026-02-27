@@ -1,3 +1,61 @@
+###  Публикация: 1845160   (1050597) от 30.12.2025
+
+VA - Progressive Vibes Dark 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Speckmann - The Redemption (Radio Edit) 03:37
+02. Robinito - Everlasting (Radio Edit) 05:01
+03. Domundo - Intermission (Radio Edit) 03:11
+04. Ahmad Shams Music(TM) - Marionette (Original Mix) 04:03(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FDF1021CADDDAD795715559C39D914ABD686F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845149   (1050596) от 30.12.2025
+
+VA - Progressive Vibes Music 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Hillfire - Soulfire (Radio Edit) 03:52
+02. Matte Plane - Mar Don Hills 04:00
+03. K.O.V.I. Project - Forgiven (Radio Edit) 03:34
+04. Mekci - Playing With Fire 03:48(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B93311B2F911FD049F7224495EF437D63E410C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844518   (1050425) от 28.12.2025
 
 VA - Best Of Tidy Two 2025 (2025) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - The Best Of Suanda Music 2025 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:534DF3F5A2EBA4765F3340833E99FA8E0EC71B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839324   (1046474) от 28.11.2025
-
-VA - Trance: The Vocal Session 2026 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC & Fragma - Look At You Now (Extended Mix) [7:01]
-02. Richard Durand & Nicholas Gunn feat. Alina Renae - For You (Extended Mix) [6:46]
-03. Andy Jay Powell & DJ Fait - Love Is Heartbreak (Uplifting Mix Extended) [5:49]
-04. Ayla & York & NELLY TGM - Left On Our Own (Extended Mix) [6:19](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA822D6123DFB58B12904125BAF9A2482E01594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605105   (1045082) от 16.01.2023
-
-VA - Uplifting Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Kearney - Kaia (Original Mix) (3:40)
-02. Raz Nitzan & Neev Kennedy - Release You (Original Mix) (3:44)
-03. Paul Clark (UK) & Nicholson with Chelsea Holland - In Your Arms (Original Mix) (3:31)
-04. DIM3NSION - Theia (Original Mix) (3:59)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BB9610532547457BAD3579935F684A4C5DE9CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

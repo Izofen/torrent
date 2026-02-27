@@ -1,3 +1,150 @@
+###  Публикация: 930165   (516265) от 22.08.2015
+
+VA - Летние super новинки. Часть 6. 50/50 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516265.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. София Тарасова - Восьмое Чудо (03:01)
+002. Kick The Habit - Buttons (04:05)
+003. Bahh Tee - Неужели Ты Моя (03:18)
+004. T-Pain - Coming Home (03:50)(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:826180F2CAD4E16950BF450A6352B37FEB76A62B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930604   (515154) от 23.08.2015
+
+VA - Зачетный хит Русский (2015) [MP3|160-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515154.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 30.02 - Но ты
+002. Даша Суворова - Чайки
+003. Натали - Давай со мной за звёздами
+004. L’one & Фидель - Океан(   Читать дальше...   )Жанр: PopПродолжительность: 06:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358DC28AF2257C4F773990A1FDD9F16BFE61B17B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930507   (514847) от 23.08.2015
+
+VA - Ты только мой. Супер сборник популярной музыки (2015) [MP3|192-256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514847.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ольга Соколова - Ты только мой
+002. Ария - Ангелы неба
+003. Mozgi - Хит Моего Лета
+004. Mr. Credo - Медляк(   Читать дальше...   )Жанр: РорПродолжительность: 06:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78BFCA77C9316D646652CA92220A3FDE76841CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535814   (514584) от 18.08.2012
+
+VA - The Official UK Top 40 Singles Chart (12-08-2012) [MP3|320 кб/с]<Pop, Rok, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаем традицию регулярной публикации UK Singles Chart — официального хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
+Составляется с 1952 года как аналог американского Billboard Hot 100.
+Существует и «братский» хит-парад альбомов — UK Albums Chart.1. Wiley Feat Rymez & Ms D - Heatwave (3:14)
+2. Calvin Harris Feat Example - We'll Be Coming Back (3:56)
+3. Lawson - Taking Over Me (3:10)
+4. Florence + The Machine - Spectrum (Say My Name) (Calvin Harris Remix) (3:38)(   Читать дальше...   )Жанр: Pop, Rok, R&BПродолжительность: 02:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25EDC5B4B316DCFA519226617274CAB279D8272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314612   (513811) от 19.07.2019
+
+VA - Synthpop Multimix (2019) [MP3|320 Kbps] <Pop, Synthpop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513811.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marti Caine - I'll Never See You Again
+002. Team Rush Hour - Forever (Feat. Revi)
+003. Gosto - Cigarette
+004. The Kiez - Cool(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 07:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8B41A03E2A3BC9102925800863282C6F60917C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315327   (513548) от 19.07.2019
 
 VA - Summer Ahead: Party Pop Music 90s (2019) [MP3|213-273 Kbps] <Pop>
@@ -649,169 +796,6 @@ VA - Самые Лучшие Хиты радио DFM 50+50 (2012) [MP3|256 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73275144C7214E42B0A323357D9FF3E450EA0EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933891   (502315) от 05.09.2015
-
-VA - Попсовая соточка MTV. Сборник 3 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502315.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mband - Дай Мне
-002. A-Trak Feat. Andrew Wyatt - Push
-003. Базиль - Ай-Яй-Я
-004. Baauer Feat. Alunageorge & Rae Sremmurd - One Touch(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F05723B95EFE72A48815F5694ED9117B3051946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932088   (502139) от 05.09.2015
-
-VA - Летние super новинки. Часть 7. 50/50 (2015) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502139.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дима Билан - Болен Тобой (03:42)
-002. Mirami - The Party'll Never End (03:26)
-003. Soprano Турецкого - Ветреная (03:14)
-004. Oliver Heldens & Becky Hill - Gecko (02:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FC2D17A0872BDB04CA0D774CB18B20C3F68F13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541180   (502111) от 30.08.2012
-
-VA - 150 хитов в машине (2012) [MP3|128-192 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502111.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Павла - Навсегда
- 002. Nефть Feat. Олег Мовчан - Янтарь
- 003. Гриша Ургант - Голосами
- 004. Потап И Настя Каменских - Если Вдруг
- 005. Таня Терешина - Как Ты Мог
- 006. Сергей Пенкин - Ангел
- 007. Дискотека Авария - Воля И Разум
- 008. Сергей Трофимов И Лайма Вайкуле - Я И Ты
- 009. Tomas Nevergreen & Кристина Орбакайте - Без Тайн (Remix)
- 010. Непара - В Облаках(   Читать дальше...   )Жанр: PopПродолжительность: 09:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0B23A801DEC886444D07339EF0840F3E3478D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541464   (501496) от 31.08.2012
-
-VA - Ночной эфир - Выпуск 50/50 (2012) [MP3|320 kbps]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501496.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wynter Gordon - Stimela
-002. Андрей Леницкий &amp; St1ff И Mc Pasha - Любовь Сохрани
-003. Gary Barlow &amp; The Commonwealth Band - Sing
-004. Sandro Monte Feat. Mischa Daniels &amp; J-Son - Simple Man
-005. Lmfao - Party Rock Anthem
-006. Rudimental Feat John Newman - Feel The Love
-007. T.O.T.A.L. И Антитіла - Весна-Любовь
-008. The Saturdays - All Fired Up
-009. Eleni Foureira - Ti Poniro Mou Zitas
-010. Arash Ahangari - Ahange Zamoone(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC4A34633C4E8FDFE090DC382449230301A4E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541473   (501318) от 31.08.2012
-
-VA - Радио Новинки Проверенные Качеством 50/50 (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Элина - Ты Не Мой (Версия 2012)
-02. Pusha T &amp; Kanye West - New God Flow
-03. 3XL PRO - В Объятья Лета
-04. DJ Caren feat. Violet - I Say (La La La) (Radio Edit)
-05. Maga X feat. MiKKi - Этим Летом
-06. Emin - I Should've Known Better
-07. Алексей Матиас - Горянка
-08. Eric feat. K-Brown - Amor (Radio Edit)
-09. Дмитрий Нестеров - Беспосадочный Перелет
-10. Eva - Get Away (French Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAAA9009799EA1A4B5A8E421BF281558CACCFCE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

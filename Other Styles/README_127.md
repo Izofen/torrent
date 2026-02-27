@@ -1,3 +1,67 @@
+###  Публикация: 1062938   (436793) от 15.10.2016
+
+Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe Pain Can Save Us (03:03)
+02. Cerca Trova (03:18)
+03. I'm Feeling A Tad Vulnerable (02:09)
+04. Seek And Find (02:04)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBECEF838F5DACCE1FE811C420C9E2E55BAF499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554754   (436250) от 01.10.2012
+
+Blonker - Wellness (Musik Fur Die Seele) (1990) [FLAC|Lossless]<Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sidewalk Cafe
+02. Amazonas
+03. Fantasia
+04. In Balance
+05. Time To Remember
+06. Dragon Fly
+07. Morning Breeze
+08. Merlin
+09. Anak
+10. Inspired(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410426   (436080) от 21.09.2020
 
 VA - Still Like a Stone Structure: Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
@@ -687,66 +751,6 @@ Watkins Family Hour - Vol. II (2022) [FLAC|Lossless|tracks + .cue] <Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CF8852BB70719048A3DC427C09053279EF8DE22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410926   (431642) от 23.09.2020
-
-Malando & His Tango Orchestra - Malando Best Selection (2019) [FLAC|Lossless|image + .cue] <Latin, Folk, World & Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Danny Malando Orchestra - знаменитый голландский оркестр исполняющий музыку танго. В модернизированном оркестре играют 15 участников, удивительно слаженно исполняющих сколь сложные, столь и прекрасные музыкальные композиции.
-
-Название оркестра, начавшего творческую деятельность летом 1939 года, происходит от имени его основателя Арие Маасланда (Arie Maasland) (26 (   Читать дальше...   )Трeклист:
-01. Blauer Himmel (03:04)
-02. Ich Kusse Ihre Hand Madame (03:12)
-03. Tango Delle Rose (02:29)(   Читать дальше...   )Жанр: Latin, Folk, World & CountryПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72162AE5131325001F1D0960575C829AC3AF2204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945491   (431571) от 11.10.2015
-
-Francisco Canaro & Carlos Roldn - Que me quiten lo bailao (1944) [MP3|320 кб/с]<Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destellos | Destellos
-02. Naipe
-03. Esta noche de luna
-04. Por las calles de la vida(   Читать дальше...   )Жанр: TangoПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A1C1C45AA5F9A25043E9AC1016BD9D9F795155
 ```
 
 https://mybot314.ru/tekegram_catalog/

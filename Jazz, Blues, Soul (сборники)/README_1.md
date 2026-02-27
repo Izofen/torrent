@@ -1,3 +1,32 @@
+###  Публикация: 1621646   (1030953) от 25.03.2023
+
+VA - Turn On Electro Jazz (2023) [MP3|320 Kbps] <Jazz, Instrumental, Improvisation>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030953.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Loiriplukari - 86
+002. Gazzara - Orinoco
+003. Sicania Soul - Life Is A Tree
+004. Kate Hamann - Daydream(   Читать дальше...   )Жанр: Jazz, Instrumental, ImprovisationПродолжительность: 09:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F503DDBCD3B0EC1753D5B74B6A506A310E9C084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452419   (1027721) от 06.03.2021
 
 VA - Lazy Jazz Cat vol 1 (2021) [MP3|320 Kbps] <Jazz>
@@ -710,35 +739,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE230F5D61327B775FF0D15DD8A2E3F6D9A6C631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477604   (1010971) от 15.06.2021
-
-VA - Elegant Jazz Music (2021) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010971.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Micah Gaugh - Walk Thru
-002. Jizue - Sabaku No Tsuki
-003. Nazareno Caputo - Abside
-004. Machomovers - Intro The Sky(   Читать дальше...   )Жанр: JazzПродолжительность: 09:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD2BFE7A0715AC8F790E19003BB52AEB28A6334
 ```
 
 https://mybot314.ru/tekegram_catalog/

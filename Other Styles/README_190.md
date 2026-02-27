@@ -1,3 +1,73 @@
+###  Публикация: 466468   (81591) от 12.03.2012
+
+Amernan - The Best Of Indianer (2007) [MP3|320 кб/с]<Folk, Native american, Instrumental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(5:49) 01. Spirit Of The Flying Eagle
+(2:52) 02. The Last Of The Mohicans
+(5:19) 03. Mayampi
+(5:11) 04. Ananau
+(5:27) 05. Flying Condor
+(5:37) 06. Wakantanka Vision
+(6:00) 07. Matsuri
+(5:33) 08. Echoes Of Time
+(5:22) 09. White Buffalo
+(4:47) 10. Arco Iris(   Читать дальше...   )Жанр: Folk, Native american, InstrumentalПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0194331D7D947B9C3A62FA45CB6B1325B578567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464590   (81466) от 11.03.2012
+
+Flёur (Fleur) - Пробуждение (Коллекционное издание) (2012) [APE|Lossless] <Cardiowave>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (00:47)
+02. Живое (04:04)
+03. Тридцать семь (04:59)
+04. Шиповник (04:59)
+05. Это будет моим ответом (03:52)
+06. Великое ничто (06:08)
+07. Спасти (03:16)
+08. Вальсаутро (02:02)
+09. Vakna 1 (01:36)
+10. Дикое сердце (03:39)(   Читать дальше...   )Жанр: CardiowaveПродолжительность: 01:05:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 464920   (81362) от 11.03.2012
 
 Irish Ёрш - Я Ирландец! (2011) [MP3|320 кб/с]<Celtic, Irish Folk>
@@ -780,76 +850,6 @@ OST - Disney Afternoon (1991) [MP3|192]<ost>
 8. Monkey In Your Taint
 9. Boogy Bigl Blues
 10. Gummy Bears(   Читать дальше...   )1991Жанр: ost
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450003   (75239) от 10.02.2012
-
-VA - The Rough Guide To The Cuban Music Story (2001) [FLAC|Lossless] <Latin, Afro-Cuban Jazz, Mambo>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Beny Moré - Bonito Y Sabroso (02:57)
-02. Niño Rivera - El Jamaiquino (04:26)
-03. Afro Cuban Jazz Project - Campiña (06:01)
-04. Afro Cuban All Stars - Al Vaivén De Mi Carreta (07:43)
-05. Mario Bauzá - Chucho (03:53)
-06. Bebo Valdés - To Mario Bauzá (06:04)
-07. Guillermo Portabales - El Carretero (03:10)
-08. Cuarteto Patria & Manu Dibango - Quizás Quizás (06:35)
-09. Maraca - Quiero A Mi Guajira (05:07)
-10. Pancho Amat - Fanía (04:36)(   Читать дальше...   )2001Жанр: Latin, Afro-Cuban Jazz, MamboПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 103470   (75100) от 09.02.2012
-
-OST Г. Гладков - Обыкновенное чудо (1996) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Геннадий Гладков - Белеет мой парус
-02. Геннадий Гладков - Танго любви
-03. Геннадий Гладков - Ах, какая жалость
-04. Геннадий Гладков - В Каннах
-05. Геннадий Гладков - Танго
-06. Геннадий Гладков - Шествие с огнями
-07. Геннадий Гладков - Песня Эстер
-08. Геннадий Гладков - Рождение Гулливера
-09. Геннадий Гладков - Пролог
-10. Геннадий Гладков - Неаполитанская песня(   Читать дальше...   )1996Жанр: SoundtrackПродолжительность: 54:57
 
 ## Скачать торент
 ```bash

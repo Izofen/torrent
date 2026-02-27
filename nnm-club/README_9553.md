@@ -1,54 +1,25 @@
-###  Публикация: 1226195   (656032) от 20.05.2018
+###  Публикация: 1539427   (657144) от 26.03.2022
 
-Armaggedon - I.N.R.I. (I, Nazarene, Recognize My Impurity) (2009) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brutal Panzer Assault 03:54
-02. Kill The Koward Khrist 03:27
-03. 6 (66) Millions de Survivants 04:27
-04. Judeocide 05:07(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8DB8154E37E21367ADCCC71C6CC7CE6477D2CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226194   (656031) от 20.05.2018
-
-Armaggedon - Imperium wird durch das Blut wieder aufleben (2005) [APE|Lossless|image + .cue] <Black Metal>
+Placebo - Never Let Me Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656031.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Darkness & Hate 04:16
-02. Crushing The Bastard 04:14
-03. Open The Gates Of Hell 03:21
-04. Fullmoon Apocalypse 03:20(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:31:22
+01. Forever Chemicals (5:10)
+02. Beautiful James (4:09)
+03. Hugz (3:52)
+04. Happy Birthday in the Sky (5:09)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:57:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02078A5577E33DEBBCC250C18680D58474E0A037
+magnet:?xt=urn:btih:33307870CB8900F0FFF3A72BCC63CBC3A41C17D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226169   (656029) от 20.05.2018
+###  Публикация: 1539688   (657143) от 26.03.2022
 
-Alatyr - Alatyr (2007) [APE|Lossless|image + .cue] <Pagan Black Metal>
+ORPALIS PaperScan Professional 4.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>
->>
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_656029.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.	Alatyr (Intro)	04:29
-02.	Burka	08:36
-03.	Popol	07:36
-04.	Priepast	07:38(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:48:31
+ORPALIS PaperScan Professional является универсальной, мощной и простой в использовании программой для сканирования. Большинство приложений подобного рода предназначены для одного сканера, PaperScan позволяет управлять любым сканером, в том числе сетевыми сканерами (TWAIN или WIA протоколы поддерживаются). Вы можете импортировать любые изображения / PDF-файлы в PaperScan (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7EE9310D2221DC3B5805B0B228EF118819948ED2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +53,196 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226369   (656026) от 20.05.2018
+###  Публикация: 1539709   (657142) от 26.03.2022
 
-Floe - Attributes (2018) [MP3|320 Kbps] <Trance>
+VA - Turbo Disco - Лучшие Хиты Дискотек (2001) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eruption - One Way Ticket
+02. A La Carte - Doctor, Doctor (Help Me Please)
+03. Bad Boys Blue - Kiss You All Over, Baby
+04. Grant Miller - Wings Of Love(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594C4E23183E8383C140C080F71861D54FA5CAE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539559   (657141) от 26.03.2022
+
+Красавица и чудовище / Beauty and the Beast (1991) BDRip 3D [H.264/1080p] [Theatrical cut] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657141.jpg" />
+</div>
+
+
+###  Подробнее
+
+В заколдованном замке, скрытом в темном лесу, живет ужасное Чудовище. Растопить лед в его сердце и вернуть ему человеческий облик, сняв заклятие, может только прекрасная девушка, которая полюбит его таким, какой он есть.Производство: США / Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, мелодрама, семейныйРежиссер: Гари Труздейл, Кирк УайзПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторский (одноголосый)Язык озвучки: Русский, украинский, английскийСубтитры: русские (forced, full, songs), украинские (full), английские (full)Продолжительность: 01:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA704B223197498DF191F19EB0BF24330FA045F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539715   (657140) от 26.03.2022
+
+PDFCreator 4.4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657140.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFCreator –  бесплатная программа для конвертирования документов в формат PDF. Принцип работы программы простой – берете документ, который хотите конвертировать, посылаете его на печать в виртуальный принтер, созданный PDFCreator, а потом сохраняете его в выбранном Вами формате. Данный инструмент позволит сохранять документы в таких форматах - PDFs: JPG, BMP, TIFF, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20DCD3F7B27B7D139EC438875C2DFA4A5DDFA82E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226149   (657139) от 19.05.2018
+
+Jack Teagarden - 1941 - 1943 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Eyes [03:21]
+02. Prelude In C Sharp Minor [03:22]
+03. Chicks Is Wonderful [03:22]
+04. Blues To The Lonely [03:02](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4201272EAB563EE9C2943E5F05529C30BCEABAFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226230   (657138) от 19.05.2018
+
+Curtis Peagler & The Modern Jazz Disciples - Disciples Blues (1959, 1960) 2001, Prestige [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After You've Gone [06:06]
+02. Disciples Blues [07:16]
+03. Slippin' & Slidin' [05:11]
+04. A Little Taste [06:44](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B3CEA803AF54FAF89507BF76F6DC9C9CF7C98CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226187   (657137) от 19.05.2018
+
+DiNT - Hooker (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hooker (05:45)
+ 02. Shovel (05:45)
+ 03. Skewer (10:09)
+ 04. Shovel (Ontal Remix) (04:49)(   Читать дальше...   )Жанр: Techno, Industrial, ExperimentalПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D79D7E400EA573C843699C80341ABC12460D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226262   (657136) от 19.05.2018
+
+Veselin Tasev - My Universe (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656026.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Floe & Edvarvhile – Introspection 2018 (Album Mix)
-02. Denis Sender & Floe – Charisma (Album Mix)
-03. Floe – Constitution (Album Mix)
-04. DJ T.H., Floe & Angel Falls – Only Time (Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:42:46
+01. The Land Of The Proto-Bulgarians (Original Mix)
+02. My Universe (Original Mix)
+03. Eleven Years (Original Mix)
+04. Fly Of Six Chords (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87E18A19A68230D3623E7F7E26F09ED696173F7F
+magnet:?xt=urn:btih:89CBA2929E6B2083F8ECEFC8A837A7F45B15384B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,86 +250,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515318   (656025) от 26.06.2012
+###  Публикация: 514878   (657135) от 25.06.2012
 
-Брена Сильвия, Страффи Иджинио | Дилогия "Майя Фокс" [2010-2011] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F44412F8AE1127615BC8E80013B65422EDAAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515647   (656023) от 26.06.2012
-
-VA - Музыкальный сюжет лета (2012) [MP3|192 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 05:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D802D39C6082C6AA9F471BEE0FE8550BC0CD2E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515241   (656017) от 26.06.2012
-
-VA - Dance Club Party (2012) [MP3|256 kbps]<Club|Dance>
+VA - Esthetics Lounge Vol. 2 (2012) [MP3|320 kbps]<Downtempo|Lounge|Chillout>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656017.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tiesto feat. Kay - Work Hard, Play Hard (Andrew Rayel Hard Remix)
-02. Disco Superstars Feat. Seventy7 - Right Now (Eddy Remix)
-03. Riktam & Bansi - Haloween (Aerofeel5 Remix)
-04. Jovani - Burning Man (Original Mix)
-05. Porn Stars & Jay Jacob - Time To Party (Ftampa Remix)
-06. Amr Diab - Wayah (DJ Fisun remix)
-07. Cheeky D - Boogie Bitch (Original Mix)
-08. Adstedt & Alaa Feat. Lina Harriette - Illusion (Andy Harding Remix)
-09. Eximinds Ft. Dragana - I Want To Fly Again (Original Mix)
-10. Timo Graf feat. Mia Moore - Prometteur (Original Mix)(   Читать дальше...   )Жанр: Club|DanceПродолжительность: 09:38:27
+01. Arisa - Amami
+02. Secret Garden - Prayer
+03. Etro Anime - Let It Go
+04. Vox Trat - Real Life Version
+05. Club Des Belugas Ft Anna Luca - The Road Is Lonesome
+06. Telepopmusik Feat Angela Mccluskey - Love's Almighty
+07. Hooverphonic - One
+08. Sex Chill - Body Language
+09. Jimmy Scott - Nothing Compares To You
+10. New Conception Of Jazz - Trouble(   Читать дальше...   )Жанр: Downtempo|Lounge|ChilloutПродолжительность: 03:43:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2CE5CCD51C644FCE15DD78BAAFE6F1AC8BAAC50
+magnet:?xt=urn:btih:82622C6FF7FFBED4184314D0A0A15F50D32EFB67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,25 +285,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 513967   (656016) от 26.06.2012
+###  Публикация: 515360   (657130) от 25.06.2012
 
-[EN] Этот тёмный мир / Higher Ground (2011) DVDRip
+Сваты у плиты. Серия №12 (2012) SATRip
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656016.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм охватывает почти три десятилетия жизни Кэролин Бриггс, кульминацией которой стала дорожная авария, где чуть не погибла ее маленькая дочь. После этого Кэролин и ее муж рок-музыкант уверовали в божественное провидение и в результате стали членами религиозной коммуны. Однако происходящие в жизни события наносят удары по вере Кэролин, приводя к конфликту между семьей и верой, любовью к своей семье и Богу.Жанр: ДрамаРежиссер: Вера ФармигаАктеры: Джошуа Леонард, Норберт Лео Батц, Майкл Чернус, Вера ФармигаПеревод: ОтсутствуетПродолжительность: 01:51:40
+Любимые герои народного сериала научат вкусно готовить простые блюда. И, конечно же, все это будет подано под соусом из шуток и хорошего юмора!
+На воскресной кухне вы встретитесь практически со всеми героями самого любимого народного сериала "Сваты": бабушкой Валей, прабабушкой Людмилой Степановной, внучкой Женечкой, соседкой Ларисой и, конечно же, Митяем. Ведь приготовление еды – это настоящее творчество, где каждый может поделиться своим секретом и дополнить блюдо лично приготовленным соусом. Тогда и самая обычная утка с яблоками превращается в шедевр кулинарии.
+А чтобы Ваш дом стал еще более хлебосольным, эксцентричный и неугомонный Митяй поделится рецептами напитков, которые лучше подавать к тому или иному блюдо. Ведь в приготовлении всевозможных коктейлей Митяю нет равных. Не говоря уже о том, что в умении правильно выбрать алкоголь для праздничного стола, веселый сосед семьи Будько даст фору даже самым образованным сомелье.Жанр: Кулинарный сериал, юморТелекомпания: В ролях: Татьяна Кравченко, Ольга Аросева, Олеся Железняк, София Стеценко, Николай ДобрынинПродолжительность: ~ 00:26:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92DDBAA3F61FDF4B6A86723D5C843E366E28483C
+magnet:?xt=urn:btih:BEAE43972FC45C3FF0AEF29BDABEF25C471B2603
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,25 +313,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515637   (656015) от 26.06.2012
+###  Публикация: 515272   (657129) от 25.06.2012
 
-[Графика] Художник - иллюстратор Митченко Юлия (2012)
+Футбол. Чемпионат Европы 2012. 1/4 финала. Англия - Италия (2012) HDTVRip [H.264/720p]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656015.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Художник - иллюстратор Митченко Юлия
+24 июня 2012 года, воскресенье. 22:45 мск
+ Киев (Украина). Стадион НСК Олимпийский.
+ Главный судья: Педру Проэнса (Лиссабон, Португалия)Жанр: СпортПродолжительность: 02:37:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3BEC9348A67E55E0E8AE521E0835D5C3DFFA8A2
+magnet:?xt=urn:btih:B63F388574C92FCFFC64F75BBDE2C8AF44237CEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,206 +341,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515368   (656014) от 26.06.2012
+###  Публикация: 515147   (657128) от 25.06.2012
 
-Л. Сигельбаум | Машины для товарищей. Биография советского автомобиля [2011] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Л. Сигельбаума - это история российского и советского автомобиля с дореволюционных времен до наших дней. Как объект индивидуальных желаний машина — в сущности, мобильная частная территория — всегда находилась в противоречии с коллективистской идеологией коммунистической партии. В последние годы существования СССР эти желания превратились в настойчивые требования. (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63D3BE3CBA9DB11BA4918425C18C680E021EFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515554   (656013) от 26.06.2012
-
-Arnej - Unreleased (2012) [MP3|320 кб/с]<Progressive House / Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arnej - Unreleased (2012)
-
-Год: 2012
-Жанр: Progressive House / Trance
-Продолжительность:01:44:47Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта:CBRТрек лист:
- 01. Arnej - Intro (02:16)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2613DFF6B5FCCD35C7321672A25C012CE725CB30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515593   (656011) от 26.06.2012
-
-[Wallpapers] Comic Book Wallpapers (26.06.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57256E8DA668980AE488F0E64C1D1E87041D523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515502   (656010) от 26.06.2012
-
-Безрукий / Armless (2010) SATRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656010.jpg" />
-</div>
-
-
-###  Подробнее
-
-В голове Джона полно странных идей. Он, например, собирается изменить свое тело радикальным образом, — избавиться от собственных рук, и всерьёз ищет врача, готового произвести ампутацию. У Джона есть жена, и ей приходится нелегко…Жанр: КомедияРежиссер: Хабиб АзарАктеры: Дэниэл Лондон, Джанель Молони, Мэтт Уолтон, Зои Листер Джонс, Лори Кеннеди, Кит Пауэлл, Энджел Синг, Эйвери Пирсон, Джеймс ЛампеПеревод: Профессиональный двухголосыйПродолжительность: 01:21:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF02BD2A61D7A6771B6A00C3191D81F51F84AF72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515603   (656009) от 26.06.2012
-
-Mel Torme & Cleo Laine - Nothing Without You (1992) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_656009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Nothing Without You (Coleman, Zippel) [03:04]
-02. I Thought About You (Mercer, VanHeusen) [03:51]
-03. Where or When (Hart, Rodgers) [05:09]
-04. I Wish I Were in Love Again (Hart, Rodgers) [03:11]
-05. Girl Talk (Hefti) [05:09]
-06. After You've Gone (Creamer, Layton) [04:44]
-07. Brazil/Bahia (Barroso, Russell) [04:19]
-08. Birdsong (Sambalaya) (Dankworth) [02:53]
-09. Isn't It a Pity? (Gershwin, Gershwin) [04:04]
-10. Love You Madly (Ellington) [03:34](   Читать дальше...   )Жанр: JazzФормат: *.flacПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514734   (656007) от 26.06.2012
-
-[EN] Бродяги / Bindlestiffs (2012) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три студента Андрей, Люк и Джон отстранены от занятий в школе на одну неделю за нанесение граффити на стенах ванной комнаты в знак протеста против запрета в школе произведения "Над пропастью во ржи". Имея массу свободного времени подростки решили весело провести время. Это значит совершить путешествие, остановиться в комнате мотеля, а там наркотики, женщины...Жанр: КомедияРежиссер: Эндрю ЭдисонАктеры: Джон Карна, Люк Лофтин, Эндрю Эдисон, Уилл Фордайсе, Морган АлександрПеревод: ОтсутствуетПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A5DF654BFA51F2BA63FB2F2DDEC3D881D5E255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515747   (656006) от 26.06.2012
-
-VA - Жаркая летняя дискотека (2012) [MP3|256 кб/с]<Pop>
+VA - Русские Новинки Vol.60 (2012) [MP3|320 kbps]<Pop>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656006.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. АЖУР - Город (Remix) (3:05)
-2. Пропаганда & MC Джимми - Хабиби (3:06)
-3. Ани Лорак - Обними Меня (3:20)
-4. Амина - Дни-Недели (DJ Nariman Mix) (3:50)
-5. Aslan Feat. Misty - Знаю, Знаю (3:28)
-6. Потап И Настя Каменских - Не Хватило Воздуха (3:26)
-7. Бьянка - Весна-Лето 3 (3:13)
-8. Инфинити - Где Ты (Alex Menco 2012 Remix) (5:27)
-9. Афродита - Освободи Свой Телефон (3:37)
-10. Serebro - Давай Держаться За Руки (4:13)Жанр: PopПродолжительность: 06:07:49
+01. Женя Юдина feat. Mike Energy - Ты
+02. Никита - Вместе (Timosh Mix)
+03. Никита - Слова Как Пули
+04. T1One - Каплями
+05. Palyur - Ангелы Видят Нас
+06. Интонация (In2nation) - Не Со Мной
+07. Серебро - Paradise
+08. Инь-Ян - Инопланетянин
+09. USB & Сергей Жуков - Скажи Зачем
+10. Павла - Будь Со Мной(   Читать дальше...   )Жанр: PopПродолжительность: 03:03:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65727871A4A451AAEB026FC332BE75192B49CEEA
+magnet:?xt=urn:btih:FFCE776285B21F7D84AC1ED66A92069EB3C866D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,28 +376,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140468   (655985) от 06.06.2017
+###  Публикация: 515296   (657121) от 25.06.2012
 
-Mike Cuozzo - Mighty Mike (1955) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+Джек Хиггинс, Ивен Монтегю | Операция «Адлер» [1991] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657121.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник включены два остросюжетных произведения.
+Джек Хиггинс в своем произведении «Орёл приземлился» рассказывает о планах похищения Черчилля немцами в ноябре 1943 г.
+Документальная повесть «Человек, которого не было» рассказывает об одной из военных хитростей, применённых английской контрразведкой против гитлеровской Германии. Ивен Монтегю знал все подробности секретной операции, так как сам был её автором и участником.
+
+Содержание:
+Джек Хиггинс. Орёл приземлился
+Ивен Монтегю. Человек, которого не былоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D346CF9C94C80E5F9CB4504A081B19BA64139DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515077   (657120) от 25.06.2012
+
+Журнал | Инженер №5 [май 2012] [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657120.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Инженер» - ежемесячный научно-популярный журнал, в каждом номере которого публикуются сенсации, исследования, изобретения. В круг интересов издания входят следующие области: наука, техника, производство и образование. Журнал с интересом читают не только специалисты, научно-технические работники институтов, промышленных предприятий, КБ, но и все, кто интересуется новым в современной науке, в особенности учителя, преподаватели вузов, студенты, школьники.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94C79E41C6F97D6F1F9456EDF24F4C6F9F2988D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514796   (657116) от 25.06.2012
+
+Морские обезьяны / Umizaru (2004) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа стажеров Береговой Охраны проходит изнурительный курс подготовки под руководством жестокого и требовательного сержанта, который стремится сделать из них элитную группу спасателей…Жанр: Боевик, ДрамаРежиссер: Эйитиро ХасумиАктеры: Хидэаки Ито, Аи Като, Карина, Ацуши Ито, Киоко, Дзюн Кунимура, Тацуя ФудзиПеревод: Одноголосый закадровыйПродолжительность: 02:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBB1253AE2C1724FCCD765EC488BF358C7584C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 343328   (657115) от 29.05.2011
+
+Зона турбулентности (2010) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три новеллы – "Ирина", "Митя", "Сережа" – это три дня из жизни современной деловой женщины, ее взрослого сына и ее внука, о существовании которого отец и бабушка узнают лишь спустя пять лет после его рождения...Жанр: МелодрамаРежиссер: Евгения ТирдатоваАктеры: Инга Оболдина, Сергей Епишев, Дарья Семенова, Светлана Малюкова, Ваня Тюрин, Леонид Бичевин, Иван Охлобыстин, Анатолий Белый, Нина Кравец, Александр Лучинин, Роман Нестеренко, Агния Кузнецова, Андрей Сорокин, Александр Филитов, Владимир КоттПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF8B582F1B9215AFD503A002565A28D60E4DC363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903782   (657094) от 01.06.2015
+
+Francesca Palamidessi - In Other Words I Am Three (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz, Contemporary>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655985.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. There Will Never Be Another You [03:57]
-02. What Is This Thing Called Love [04:48]
-03. Nancy [04:54]
-04. Walk Up [05:12](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:34:38
+01. Blue Tide
+02. Eclipse
+03. Sue's Changes
+04. Portrait(   Читать дальше...   )Жанр: Vocal Jazz, ContemporaryПродолжительность: 00:46:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D44C5178D2675DD9912CB0DFA55A5DC588751D55
+magnet:?xt=urn:btih:DDE05915B6AABA35545DDE2033D58FF86BD48D0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,251 +515,231 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140472   (655984) от 06.06.2017
+###  Публикация: 903854   (657093) от 01.06.2015
 
-Don Friedman Quartet - Dreams And Explorations (1964) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Episodes [05:36]
-02. Exploration [06:26]
-03. Park Row [05:41]
-04. Blizzard [05:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294948449E6F9D8E0BA5BE1897B7469A8BA6A49E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539958   (655983) от 27.03.2022
-
-AIMP 5.02 build 2369 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655983.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E25FF840379625862EC0411D7DE25B5FF8D734B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539740   (655982) от 27.03.2022
-
-Rebelway, Igor Zanic | Water FX in Houdini (2016) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Houdini стал популярным инструментом в индустрии FX. Того, кто освоит его потенциал, будет невозможно остановить!
-«Ныряйте глубже» в водные эффекты и не бойтесь навести «брызг» в этом обширном мастер-классе. В нем Вы не только «намочите ножки». А если Вас нужно немного подтолкнуть, чтобы Вы зашли в воду, мы поможем с этим. Научитесь создавать полный спектр водных (   Читать дальше...   )Производство: RebelwayЖанр: СимуляцияЯзык озвучки: Русский (отдельным файлом)Продолжительность: 16:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F14A87FB55C1C7DC9A32A26B5120BE0F475F1C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140534   (655981) от 06.06.2017
-
-VA - Uplifting Trance Collection By Independent Art Vol.12 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memory Lane (05:49)
-02. Summer Eclipse (04:17)
-03. Abroad (04:24)
-04. Divine (05:47)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECB7502F8D9A441C498B79EC66955487F17CEE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539874   (655980) от 27.03.2022
-
-Хоккей. НХЛ 2021-2022. Коламбус Блю Джекетс - Миннесота Уайлд (26.03.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655980.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 марта 2022, воскресенье. 03:00 МСК
-Стадион: Эксел Энерджи-центр (Сент-Пол, США), 19 089 зрителей (99% при вместимости 19 326)
-Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада); Главный судья: Майкл Маркович (Скарборо, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC580F925F9153912A2CC11D116CE943395AFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140364   (655979) от 06.06.2017
-
-Narel - Losing Adequacy (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655979.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pulse Garden  8:20
-2. The Void Which Binds  7:43
-3. Circle Sky  10:09
-4. Return Of The Northerlies  7:35(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA7D8AE6F5AB0D57D46BED31BB89982696E0E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539948   (655978) от 27.03.2022
-
-Auslogics Video Grabber 1.0.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Video Grabber - быстрый и простой инструмент, позволяющий скачивать видео с YouTube, Dailymotion, Vimeo, Metacafe, Facebook, Bing и многих других сайтов, а также конвертировать их в формат, совместимый с iPhone, iPad, iPod, Android или с устройствами PSP. Вы даже можете настроить Video Grabber на скачивание по расписанию в удобное для вас время.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1ADCF472F290DEFB327B7D39E57C8F749601A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140553   (655977) от 06.06.2017
-
-Jimmy Giuffre - The Four Brothers Sound (1958) 2013, Warner [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Brothers [03:25]
-02. Ode To Switzerland [04:46]
-03. Space [03:32]
-04. I Gotta Right To Sing The Blues [03:26](   Читать дальше...   )Жанр: CoolПродолжительность: 00:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E03F32109B4A52A951B604B31F6E67EEDD60A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140440   (655976) от 06.06.2017
-
-Phoenician - Last Orders (2017) [MP3|320 Kbps] <Stoner Rock>
+Tornado - Black President (2015) [MP3|320 кб/с]<Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655976.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mobius (05:27)
-02. Beacon (04:11)
-03. Cast Out (02:50)
-04. The Beetroot Parade (05:24)(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:54:28
+1. Black President
+2. I, Individual
+3. 911 First Responder (FDNY)
+4. Flesh Crawling Nightmare(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B26B44D07F77FFF24F6095F4975BE036F9885DA5
+magnet:?xt=urn:btih:46A21EA78CBCC405B0E9C36647BC54C12FAF4399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903728   (657092) от 01.06.2015
+
+Siren - A Kingdom Aflame (2015) [MP3|320 кб/с]<Heavy Metal, Doom Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire & Blood
+02. Into the Starless Night
+03. Ursine Lineage
+04. Bastard of the Dreadfort(   Читать дальше...   )Жанр: Heavy Metal, Doom Metal, Black MetalПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E519A2D47B981B8F2EDCD8714658A63237CD77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903624   (657091) от 01.06.2015
+
+The Souldiggers Band - Search For Greater Things (2012) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch The Ghost (04:38)
+02. Mindgazer (03:56)
+03. Too Hot Woman (03:18)
+04. Seeds Of Love (04:02)(   Читать дальше...   )Жанр: Hard Rock, Southern Blues RockПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF422566C475106802E488BB39C5451FF4E71420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903993   (657090) от 01.06.2015
+
+Dave Holland Big Band - What Goes Around (2002) [FLAC|Lossless]<Jazz, Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triple Dance [09:53]
+02. Blues for C.M [09:05]
+03. The Razor's Edge [06:19]
+04. What Goes Around [17:25](   Читать дальше...   )Жанр: Jazz, Post-Bop, Big BandПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D13BD771DC0F8AAE04FF8A111AB2F992649AA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903640   (657089) от 01.06.2015
+
+Milt Jackson & Coleman Hawkins - Bean Bags (2012) [FLAC|Lossless]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close Your Eyes [06:57]
+02. Stuffy [05:47]
+03. Don't Take Your Love From Me [04:55]
+04. Get Happy [05:33](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B71B56297B713FECC7303559B37DAC344E70E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903878   (657088) от 01.06.2015
+
+The Souldiggers Band - Second Coming (2015) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:54)
+02. Son Of A Bitch (04:28)
+03. Blissout (03:28)
+04. Curious Girl (03:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBB7A94B784A273BBFD377D4C5AA54ADE33F7C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225811   (657087) от 19.05.2018
+
+Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал-Восточной конференции. 1-й матч. Тампа-Бэй Лайтнинг – Вашингтон Кэпиталз (11.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657087.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 мая 2018 года, суббота. 03:00 МСК
+НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восток. 1-й матч
+Тампа-Бэй Лайтнинг – Вашингтон Кэпиталз
+Стадион: Амали-Арена (Тампа, США), 19092 зрителя (98 % при вместимости 19500)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD228CE7891B218E6F4EDA04ACF0B7A98606978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226246   (657086) от 19.05.2018
+
+VA - Trance Favorites Episode 013 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominik Von Francois - 100 States Of Trance (Cosmic Heaven Remix)
+02. Samvel - Arctic Echoes (Mosahar Remix)
+03. AQUADREAMR - Existential (Original Mix)
+04. Noize Compressor - Black & Chrome (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA8B6FFC69AB6353AE5A0278BF740CB261C5543
 ```
 
 https://mybot314.ru/tekegram_catalog/

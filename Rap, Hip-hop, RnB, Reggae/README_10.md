@@ -1,3 +1,32 @@
+###  Публикация: 1377194   (853422) от 21.04.2020
+
+Wiz Khalifa - The Saga of Wiz Khalifa (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Y U Mad (feat. Megan Thee Stallion, Ty Dolla $ign & Mustard) [03:31]
+02. Out in Space (feat. Quavo) [02:50]
+03. Still Wiz [02:51]
+04. Bammer (feat. Mustard) [03:03](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:857F49CD40AB4B2D5992EEB60D60CE458543E76A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110703   (851649) от 03.03.2017
 
 Смоки Мо - День третий (2017) [MP3|320 Kbps] <Rap>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:929242F3A78630AA01BDCCBD227AF553E0A650D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007515   (821070) от 15.04.2016
-
-Сява - На битах (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. НаБитах (Интро)
-02. Катит
-03. Ненавижу Измену
-04. Телефон Пи Дидди(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906A5BD28865EAD78A2EDCB35975417CBE1D5393
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1815666   (4931) от 31.08.2025
+
+Liora Stedman - Spirit of Cobalt (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Spirit of Cobalt (5:00)
+02.  Only One (3:31)
+03.  Champion's Match (3:36)
+04.  Lady Like That (4:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED636063D691D266D28E4572D503458699E1EDDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815670   (4929) от 31.08.2025
+
+Luna Artisan - Ego Rush (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scream in a Soft Voice (4:19)
+02.  Lady Slip-Up (3:08)
+03.  Moving in Your Shade (3:16)
+04.  Interpretation (3:31)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8522E5E396ABDCCFF8C0466D3DDF28427031A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815950   (4847) от 01.09.2025
+
+Michael Jackson - Off The Wall (1979) SACD, Reissue, Remastered, 2025, Mobile Fidelity Sound Lab [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Stop 'Til You Get Enough 6:05
+02. Rock With You 3:40
+03. Working Day And Night 5:14
+04. Get On The Floor 4:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA85AB2F4D67CA15E32564835F3371E7B11BFB19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815937   (4831) от 01.09.2025
+
+Soundset City - Beyond Lounge (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Downtown Lights
+02. Keep Me Close
+03. Love Song (Vocal Lounge Mix)
+04. Lounge Groove Chiller(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E28C55D81322502E11E2144EAD5508559B149F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815932   (4791) от 01.09.2025
+
+Nick Manzer - Through The Veil (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Crystal Clear (2:34)
+02.  She's Got Fire (2:11)
+03.  Guess I Can Be Fine (3:54)
+04.  The Night Goes On (1:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677164087D6AC0990DF20684ABF335E8F26DDCF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815928   (4790) от 01.09.2025
+
+Nelson Bragg - Melodie de Nelson: A Pop Anthology (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  We're Gonna Laugh About It (3:00)
+02.  No One's Home In Hollywood (4:20)
+03.  Tell Me I'm Wrong (3:35)
+04.  Lived This Life Too Long (3:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8DA1893A45DC07B3D626298C738EE3AEF3C754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815926   (4789) от 01.09.2025
+
+Mr. Creatovsky - Braincity Blues EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Braincity Blues (5:32)
+02.  Heartbreak Hotel (3:43)
+03.  Behind the Door (4:26)
+04.  Sanctuary (7:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D801C0941A8FC242DCB389B9074611804AC70D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815862   (4788) от 01.09.2025
 
 Huntress - Studio Albums (4 releases) (2010-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
@@ -542,209 +745,6 @@ Rick White - Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5276CD52D299E7B4EE350A13BA6150BA094DEB52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816275   (4400) от 04.09.2025
-
-Honeybear the Band - I Was Wrong (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Devotion (3:39)
-02.  Work In Progress (2:52)
-03.  If You Were Mine (3:09)
-04.  Everyone's Invited (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF8B573B9B8EC2B1CA1351F3EBFC53B288C488F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816282   (4399) от 04.09.2025
-
-Sebastian Rider - Gonna Know My Name (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I've Been Bad (2:46)
-02.  I Got Mine (3:14)
-03.  Soul Train (3:05)
-04.  Don't Want No Trouble (4:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1740CE5ACB760BF236CB25195A142DB48100CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816270   (4398) от 04.09.2025
-
-Bluebirds - You Take My Blues Away (The original live recordings) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Keep On Loving Me Baby (The original live recordings) (3:38)
-02.  You Take My Blues Away (The original live recordings) (2:46)
-03.  She's Tough (The original live recordings) (3:09)
-04.  Just Because (The original live recordings) (3:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4751372EF869907630D13416134B9D9D9924C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816286   (4397) от 04.09.2025
-
-The Bonnevilles - Age Of Monsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Not a Penny for the Earl (3:25)
-02.  Age of Monsters (5:00)
-03.  Two Big Fizzies (2:26)
-04.  The Bais (2:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E763B703ABE599D9B6D3883CFB71A08E3F34CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816289   (4396) от 04.09.2025
-
-Tim Erickson - Waiting On The Light (Artist's Cut) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fly Away (4:01)
-02.  Waiting On The Light (4:39)
-03.  Too Many Ghosts (2:58)
-04.  Stranger Things Have Happened (4:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC55D010DCECE45B6D26AE49E76D9934C8D4445B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816290   (4395) от 04.09.2025
-
-TesseracT (& Daniel Tompkins) - Studio Albums (7 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Djent>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4395.jpg" />
-</div>
-
-
-###  Подробнее
-
-TesseracT - британская рок-группа из города Милтон-Кинс, образованная в 2003 году. Группа считается одним из пионеров джент-направления в прогрессивном метале.2011 - One
-2013 - Altered State
-2015 - Polaris
-2018 - SonderЖанр: Progressive Metal, DjentПродолжительность: 06:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0640E4329519E4EA9CC5590F1471C2D8B94E0866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816269   (4394) от 04.09.2025
-
-Baba Blues - Glimmer of Gold II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fishermen (7:14)
-02.  Heavy Stone (6:20)
-03.  Bricks in My Pillow (3:59)
-04.  Blues is a Rainbow (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB3634D276153C638ADF36FCD710FDDD7CCC06C
 ```
 
 https://mybot314.ru/tekegram_catalog/

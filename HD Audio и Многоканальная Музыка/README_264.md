@@ -1,3 +1,204 @@
+###  Публикация: 1819744   (1120) от 24.09.2025
+
+VEXED - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте яркого нового таланта - VEXED. Мощный вокальный натиск несокрушимой вокалистки Меган Таргетт подкреплён безупречной техникой участников группы. Отточенные риффы в стиле звёзд жанра Meshuggah и таких исполнителей, как Periphery и Vildhjarta.2021 - Culling Culture
+2023 - Negative EnergyЖанр: Metalcore, DeathcoreПродолжительность: 01:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A2D3996426ABC4D92EA0611F1709126469CD9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819966   (1014) от 25.09.2025
+
+Robert Plant - Saving Grace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chevrolet(2:38)
+02. As I Roved Out(6:10)
+03. It's A Beautiful Day Today(3:41)
+04. Soul Of A Man(4:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF00A687878ED3A1885BCBBD1B56601282F9D8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819973   (999) от 25.09.2025
+
+Amorphis - Borderland (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal, Atmospheric Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Circle(4:35)
+02. Bones(4:55)
+03. Dancing Shadow(4:59)
+04. Fog To Fog(5:29)(   Читать дальше...   )Жанр: Melodic Death Metal, Atmospheric Progressive MetalПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D8C58E943D511DFF81E96ED93AAB5797D0E694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819969   (996) от 25.09.2025
+
+Rage - A New World Rising (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New World Rising(1:21)
+02. Innovation(3:18)
+03. Against The Machine(4:11)
+04. Freedom(3:11)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF61B5D6502D75CED0CDD3799F02B01450E9A7F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819951   (978) от 25.09.2025
+
+The Vintage Caravan - Portals (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Blues-Rock, Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philosopher (feat. Mikael Akerfeldt) (04:37)
+ 02. Portal I (00:36)
+ 03. Days Go By (03:58)
+ 04. Portal II (00:18)(   Читать дальше...   )Жанр: Hard Rock, Blues-Rock, Stoner RockПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD204C2FB956F41ED2F606CE6E8C1C384256A51B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819960   (977) от 25.09.2025
+
+Mors Principium Est - Darkness Invisible (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Death(5:35)
+02. Venator(3:45)
+03. Monuments(6:00)
+04. Tenebrae Latebra(1:49)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A03821DECD737EEC3C222112BACB2840DEEC25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819981   (976) от 25.09.2025
+
+Emilia Quinn - Dented Halos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Call Me By Her Name (4:34)
+02.  Dirty Little Lie (4:36)
+03.  Hell (3:38)
+04.  Hard To Read (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C385AE439AC675AD481178DC47DF18577647994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819993   (961) от 25.09.2025
 
 ZZ Ward - Liberation (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -542,209 +743,6 @@ Mariah Carey - Here For It All (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9AA6512C2B6A862989155E5FAD8D9EB3F8E3606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820656   (273) от 28.09.2025
-
-Creed - The Best Of Creed (Remastered 2025) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Higher (Radio Edit / Remastered 2025) (4:45)
-02.  One Last Breath (Remastered 2025) (4:00)
-03.  My Own Prison (Radio Edit / Remastered 2025) (4:15)
-04.  Overcome (Remastered 2025) (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA102FFAC85AC50E0B13405322A4654F58FA5D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820675   (236) от 28.09.2025
-
-Willow Suns - All out of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dear Light (4:20)
-02.  I Don't Know (3:34)
-03.  Roll with Me (4:00)
-04.  Running Around After You (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A966C987EC18B62C46D7375B5350851173E6B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820660   (235) от 28.09.2025
-
-Devil of a Woman - Last Call for Freedom (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Last Call for Freedom (4:06)
-02.  Change of Poison (4:18)
-03.  Midnight Dancer (4:10)
-04.  Hot Trap (4:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5DF404390CC259826470038DDEB86A884A4F617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820627   (234) от 28.09.2025
-
-Angelwreck - Pieces Of My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Misfit (4:52)
-02.  Super Sleuth (2:28)
-03.  Summertime Magic (3:25)
-04.  Puzzle Pieces (3:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF2F6C334DF722D9FA01B6EAFA9BCDC5276F5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820639   (231) от 28.09.2025
-
-Biffy Clyro - Futique (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  A Little Love (3:38)
-02.  Hunting Season (2:55)
-03.  Shot One (3:30)
-04.  True Believer (4:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD2FEE326B91CE9B33853287C87A4B405F0BD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820662   (228) от 28.09.2025
-
-Dust and Echoes - Whispers on the Wire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Another Saturday Night (4:56)
-02.  Glass on the Pavement (5:50)
-03.  Golden Hour Embrace (5:36)
-04.  Gypsy’s Lullaby (4:54)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CD4755CDD0917C777F1A93FF539D91E72885C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820670   (227) от 28.09.2025
-
-Nathan Mitchell - The Legacy Project (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Overture of Legacy (1:58)
-02.  After Hours (4:00)
-03.  Feel The Heat (4:15)
-04.  Breathe (4:50)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9288C5D60019DFC29EEF31DB1D0DFC091EB947
 ```
 
 https://mybot314.ru/tekegram_catalog/

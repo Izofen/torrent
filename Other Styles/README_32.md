@@ -1,3 +1,61 @@
+###  Публикация: 1367998   (909095) от 20.03.2020
+
+Александр Рябцев - Дайте мне крылья (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дайте мне крылья (5:04)
+02. Пробуждение (4:02)
+03. В вечность (3:34)
+04. Ледяной замок (4:27)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9595C13C65D03205E6BAE235B266986D8A26630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368008   (909074) от 20.03.2020
+
+Александр Рябцев - Ностальгия (2008) [FLAC|Lossless|image + .cue] <Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Расставание (4:31)
+02. На одном дыхании (3:45)
+03. Осень (3:38)
+04. Влюблённая во флейту (4:49)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42498AC32BB5B0ABD0C270A9E0B544E2DD6A5300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098310   (908944) от 30.01.2017
 
 Holly Davis - Animal Healing Workshop (2006) [FLAC|Lossless|tracks] <New Age>
@@ -726,61 +784,6 @@ VA - Kontor Top Of The Clubs: Electric 80s Vol.2 (2020) [MP3|320 Kbps] <Pop, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4A390B13CE43E82BBA18B8994AE8A5228B847FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368584   (905075) от 22.03.2020
-
-Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz, Pop, Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Henry Mancini - Pink Panther
-02. Nils Lofgren - Keith Don't Go
-03. Hugh Masekela - Stimela
-04. Ben Webster - Gentle Ben(   Читать дальше...   )Жанр: Jazz, Pop, RockПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DABF018BC7AAA75901473E7649435791627E589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181911   (904966) от 10.03.2010
-
-VA - The Best Of Cafe Del Mar - Compiled By Lahud (2009) [MP3|320 kbps]<Easy Listening/Lounge/Jazz/Lo-Fi>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Easy Listening/Lounge/Jazz/Lo-Fi
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

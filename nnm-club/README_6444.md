@@ -1,25 +1,23 @@
-###  Публикация: 1203356   (788680) от 01.02.2018
+###  Публикация: 1275817   (789449) от 13.01.2019
 
-VA - Psichi (Matsuri Digital Chill) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+Юрий Томин | Повести и рассказы (1975) [DJVU]
 
->>Electronic
->>Easy listening
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788680.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Olivier Orand - Psichi 7:00
-02. Circular - Juno 9:49
-03. Ascendant - Beyond The Horizon 6:18
-04. Elastic - Breaking Point Of No Return 6:28(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:55
+В сборник входит сказочная повесть "Шел по городу волшебник", повесть "Борька, я и невидимка" и несколько рассказов.
+Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5E199DCCD660D05F21C4B807ABA59B82D97A101
+magnet:?xt=urn:btih:D5836F132F4BD0708CA68F5891376682B50EA14D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +25,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203248   (788679) от 01.02.2018
+###  Публикация: 1275820   (789448) от 13.01.2019
 
-VA - Progressive Dream Escape (2018) [MP3|320 Kbps] <Progressive House, Trance>
+Жорж Санд | Мастера мозаики (1961) [DJVU]
 
->>Electronic
->>House
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788679.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Furkan Senol  -  Far & Close (Original Mix)  7:23
-02.  Seven24 & S.A.T feat. Allam  -  Infinity (Eugene Becker Remix)  5:31
-03.  Max Denoise feat. Angel Falls  -  Destiny (Alexander Volosnikov Lost Love Mix)  6:15
-04.  Anton DelaiTech  -  Safari (Original Mix)  7:36(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:04:57
+Из "Послесловия"
+
+Повесть «Мастера мозаики» Жорж Санд тоже предназначала для детей: она сочинила ее для своего сына Мориса, когда ему было тринадцать лет. Но эта повесть очень сильно отличалась от всего, что Жорж Санд писала для детей. В «Мастерах мозаики» ничего не выдумано — ни основные события, ни герои. Все они принадлежат истории. «Я хотела не только (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:853971F34F7810E80831CEDA9A814C7465C68153
+magnet:?xt=urn:btih:21352D08E3DACA95AD738AEFEE860DD8D7F2DF72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,140 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203294   (788678) от 01.02.2018
+###  Публикация: 1275731   (789447) от 13.01.2019
 
-David "Fathead" Newman - Under A Woodstock Moon (1996) Kokopelli [APE|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature Boy [04:40]
-02. Amandla [05:19]
-03. Up Jumped Spring [04:29]
-04. Spring Can Really Hang You Up the Most [05:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06AA7B9298087339ABF65D3218DB58743756B188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203126   (788677) от 01.02.2018
-
-Журнал | Нескучный сад №6 (128) (июнь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788677.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Нескучный сад" - украинский ежемесячный практикум садовода. Красочный журнал для садоводов: советы по выращиванию плодовых, декоративных и комнатных экзотических растений. Девиз журнала - работа в радость.Жанр: СадоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD0C0D25FBB51E9459CB15993EE3BD5DE9F0021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203163   (788676) от 01.02.2018
-
-VA - Dream Mood Energy (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tantricistics  -  Indian Soul (Original Mix)  5:02
-02.  The Alf Men  -  Rainy Day (Original Mix)  3:41
-03.  The Royal Club  -  Fuerteventura (Original Mix)  4:05
-04.  Spirit & Flame  -  Hot Long Night (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE1435AA275C0B1F0830413509C67757CD3C339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202816   (788675) от 01.02.2018
-
-Биатлон. Чемпионат Европы 2018. Риднау-валь-Риданна (Италия). Женщины. Гонка преследования (27.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788675.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 января 2018 года, суббота. 17:00 МСК
-Открытый чемпионат Европы по биатлону 2018 года. Риднау-валь-Риданна (Италия)
-Женщины. Гонка преследования 10 км
-Арена: Риднау (Риднау-валь-Риданна, Италия)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B810ACDD35FFDA1E66F0053B53859B6AD72384F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203172   (788674) от 01.02.2018
-
-SpamSieve 2.29.30 [Multi/Ru]
+Privatus 6.1.4 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788674.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Без преувеличения можно сказать, что SpamSieve - лучший спам-фильтр для Mail.app и многих других почтовых клиентов для macOS. Если ваши почтовые фильтры уже не справляются с непрекращающимся потоком спама, то это плагин несомнно вам поможет.
-
-Хотя SpamSieve имеет свою огромную базу спам-слов и серверов, все же какое-то время придётся потратить на обучения спам фильтра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2018Разработчик: C-Command SoftwareПоддерживаемая ОС: Mac OS X 10.6.8 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+Privatus - это простое приложение для удаления нежелательных данных после веб-серфинга. Программа работает в фоновом режиме. Просто завершите работу браузера - и Privatus удалит так называемые "tracking cookies", куки Flash, Silverlight и пр. Приложение автоматически анализирует данные и производит удаление самостоятельно. При необходимости Privatus может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.01.2018Разработчик: SweetP ProductionsПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E14F503B01EF9AC56C5C230094DD4E2596406A7
+magnet:?xt=urn:btih:9902356E98A22E87C91B92EE9883CDE6DB517EE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,28 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203098   (788673) от 01.02.2018
+###  Публикация: 1275790   (789446) от 13.01.2019
 
-VA - Empire Records - Trance Apocalypsis 2 (2018) [MP3|320 Kbps] <Trance>
+VA - Techno Biogram (2019) [MP3|320 Kbps] <Techno, Minimal, Electro>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788673.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Frainbreeze - Back To The Future (Original Mix)
-02. Ahmed Helmy - Quasar (Original Mix)
-03. Omar Diaz - Amazonas (Original Mix)
-04. NoMosk - Duel (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:15
+001. House Syndicate - Jam The Mace
+002. Ian Jose - Boo (Original Mix)
+003. Jamie Trench - That Teebs (Original Mix)
+004. Jeremy Stott - Caktuss(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:50:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8B72F4D8491470CFE5F6E85DA7FA0749E986255
+magnet:?xt=urn:btih:DD17B43DDDE5BDA6A8F65CEB8A7E109E911986A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -226,110 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203357   (788672) от 01.02.2018
+###  Публикация: 1275765   (789445) от 13.01.2019
 
-Газета | Сезон у дачи №1 (254) (Январь 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2ACABDA1617BB88E384EDF70CA3EA888BD0B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203167   (788671) от 01.02.2018
-
-Side Liner - Life Calculator (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgotten in a Train Seat (06:58)
-02. Life Calculator (06:36)Жанр: Downtempo, AmbientПродолжительность: 00:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFC7779066BE2103E05F8F2B0D0FC96970567C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203036   (788670) от 01.02.2018
-
-Booth And The Bad Angel - Booth And The Bad Angel (1996) [FLAC|Lossless|tracks] <Alternative Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Believe (02:57)
-02. Dance Of The Bad Angels (04:34)
-03. Hit Parade (03:17
-04. Fall In Love With Me (04:19)(   Читать дальше...   )Жанр: Alternative Rock, Soft RockПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8DEE62511C44EB0F347B32EE6563CA0B4F7638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203256   (788669) от 01.02.2018
-
-Lostly - Outburst presents Spotlight (2018) [MP3|320 Kbps] <Trance>
+VA - Disco House Cats, Vol. 1 (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
 
 >>Electronic
->>Trance
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788669.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lostly – Since (Album Mix)
-02. Lostly – The Art of Acid (Album Mix)
-03. Lostly & Emma Gillespie – Nightwalker feat. Emma Gillespie (Album Mix)
-04. Lostly – Rage at the Stars (Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:09
+01. Disco Project - Talking (Brooklyn & Friends Disco Mix)
+02. Tony Afrique - Sont Claires (Disco Disco Mix)
+03. Gold Jeans - Waiting For The Day (Morning Mix)
+04. Emmanuelle Duvall - Hands Of Loving (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:24:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83EF9F4766BFDEB6EA8E6012858A61D4D8004437
+magnet:?xt=urn:btih:007A595323D76EBE09BB4D3629EBA793F6A6AEC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,28 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203081   (788668) от 01.02.2018
+###  Публикация: 1275449   (789444) от 13.01.2019
 
-VA - Deep House | Odyssey, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+VA - Miami Beachin Vol.1 [Continuous Mix] Low Tide (2019) [MP3|320 Kbps] <House, IndieDance, Electronic>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788668.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nicolas Hannig – No Sleep | SoloWg Remix (06:32)
-02. Fynn – Altered State | Nils Hoffmann Remix (05:21)
-03. Mike Sulu – The Daywalker (06:09)
-04. Solee – Dromen | Reinterpretation (07:36)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:41:30
+01. RhythmDB - Miami Beachin Vol 1 Low Tide (continuous mix) 56:36
+02. Angel Order & Johnny Mars feat. Alexea - Who Knew (LUCCA SAVI Remix) 2:43
+03. Angel Order & Jota Mendosa - Si Tu Supieras (E.Q. Remix) 3:46
+04. RhythmDB - Soundtrack 3 (Instrumental Mix) 3:32(   Читать дальше...   )Жанр: House, IndieDance, ElectronicПродолжительность: 02:02:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D93FF85C07A9CE6BE205C8253F9094F010AB6D0
+magnet:?xt=urn:btih:CB76A33189E2E42FF0F836665138344DBCF1BE99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,115 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203166   (788667) от 01.02.2018
+###  Публикация: 1275811   (789443) от 13.01.2019
 
-Горные лыжи. Кубок мира 2017–2018. Китцбюэль (Австрия). Мужчины. Супергигантский слалом (19.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788667.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 января 2018 года, пятница. 15:00 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Китцбюэль (Австрия).
-Мужчины. Супергигантский слаломТелекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86BDBBC34A30F69EC5FE4776DC574C843A90B7E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203254   (788666) от 01.02.2018
-
-Горные лыжи. Кубок мира 2017–2018. Китцбюэль (Австрия). Мужчины. Скоростной спуск (20.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788666.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 января 2018 года, суббота. 13:30 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Китцбюэль (Австрия).
-Мужчины. Скоростной спускТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D898D270368937985B396FDE5256BD34F954BB70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203226   (788665) от 01.02.2018
-
-Morrissey - Bona Drag (1990) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piccadilly Palare (03:27)
-02. Interesting Drug (03:28)
-03. November Spawned A Monster (05:25)
-04. Will Never Marry (02:22)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D992D201567AF582C2E5B2DBE1B226FFFA9F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203239   (788664) от 01.02.2018
-
-VA - Chai Cafe (Early Morning Music For Awakening & Relaxation) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+VA - Zanzibar Cafe' Vol. 6 (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788664.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dan Phillipson – Spare A Thought 02:51
-02. Aleksandar Dimitrijevic – Illuminate No Drums Version 05:05
-03. Anaamaly – I Am Perfect Either Way 04:59
-04. Matt Starling – Music For Nina 07:28(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:16
+01. 3Stars - Black Orange (Lounge Mix)
+02. 71 Style - Jump For It (Lounge Mix)
+03. Agio-Lax - Another Day In Paradise (Lounge Mix)
+04. Andy Triton - Never On Time (Lounge Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, ElectronicПродолжительность: 01:00:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46330FC0DFBE60BFA0733DBE3ED5099373DC4B94
+magnet:?xt=urn:btih:6DA1D6C0094D631B552664512BDC3DA01E833DFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,57 +195,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203155   (788663) от 01.02.2018
+###  Публикация: 1275786   (789442) от 13.01.2019
 
-VA - Aurora Borealis Chillout 1 (2018) [MP3|320 Kbps] <Chillout, Instrumental, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Zierke  -  Memories (Instrumental Version)  2:38
-02.  Duplicity  -  Matte White Magic (Original Mix)  6:04
-03.  Morris Jones feat. Kim Greene  -  Let It Flow (Radio Edit)  3:39
-04.  Andre Schluter  -  Miss You (Patricio AMC Remix)  4:16(   Читать дальше...   )Жанр: Chillout, Instrumental, AmbientПродолжительность: 02:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F05485BCBAC6CA684CB8D580E4BC68B5BBC6136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203349   (788662) от 01.02.2018
-
-VA - 120 Progressive Trance Selections (2018) [MP3|320 Kbps] <Trance, Progressive, Electro>
+VA - Jungle In A Box (2019) [MP3|320 Kbps] <DnB, Jungle, Dubstep>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788662.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cosmic Gate & Sarah Lynn - Folded Wings
-002. Kaimo K, Cold Rush & Sarah Russell - Angel Fly
-003. Steve Bengaln - Broken Heart Phase 2 (Radio Cut)
-004. Aadagio feat. Anya - Elements (John Aidan Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 10:14:14
+001. Anthony Kasper - Zuluu
+002. Dave Owen - Jungle Justice
+003. Dutta - Dominos
+004. Kolectiv & Medika - Revolutionaries(   Читать дальше...   )Жанр: DnB, Jungle, DubstepПродолжительность: 09:22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:921EA9C7214C9E1BBFED4E73967C32091705E3F2
+magnet:?xt=urn:btih:0A29FC2F326C44EF356CC0FC6468F5338CCA85D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,28 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203162   (788661) от 01.02.2018
+###  Публикация: 1275839   (789441) от 13.01.2019
 
-Горные лыжи. Кубок мира 2017–2018. Кортина д Ампеццо (Италия). Женщины. Скоростной спуск (19.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+VA - Disco Planet (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788661.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-19 января 2018 года, пятница. 12:15 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Кортина д Ампеццо (Италия).
-Женщины. Скоростной спускТелекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:19:59
+01. Anita Ward - Ring My Bell (4:24)
+02. Betty Wright - Listen To The Music (Dance) (6:03)
+03. Joe Tex - Loose Caboose (6:45)
+04. Bobby Caldwell - What You Won't Do For Love (4:39)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:59:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82CE7DA0CC4B066D178537870AF42AE21966609F
+magnet:?xt=urn:btih:743DA94D90EA1A73759B821BED9C8CF061D4A00F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,25 +253,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203361   (788660) от 01.02.2018
+###  Публикация: 1275858   (789440) от 13.01.2019
 
-Газета | Сезон у дачи №2 (255) (Январь 2018) [PDF]
+Mono Mind - Mind Control (2019) BMG [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Dance, House>
 
->>Журналы
->>Домоводство (журналы)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788660.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+01. Away Away Away (0:52)
+ 02. In Control (4:25)
+ 03. LaLaLove (3:24)
+ 04. Down By The Riverside (3:13)(   Читать дальше...   )Жанр: Electronic, Pop, Dance, HouseПродолжительность: 00:50:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C11EA35E0FC153BD53C94D66B0063038994A9B0F
+magnet:?xt=urn:btih:F60BCE60AC1D0C3097FCE736320E0613372C74C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,28 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203352   (788659) от 01.02.2018
+###  Публикация: 1275772   (789439) от 13.01.2019
 
-Биатлон. Чемпионат Европы 2018. Риднау-валь-Риданна (Италия). Супермикст (28.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+VA - Billboard Hot 100 Singles Chart 12.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788659.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-28 января 2018 года, воскресенье. 15:00 МСК
-Открытый чемпионат Европы по биатлону 2018 года. Риднау-валь-Риданна (Италия)
-Супермикст
-Арена: Риднау (Риднау-валь-Риданна, Италия)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:47:18
+001. Halsey - Without Me
+002. Ariana Grande - thank u, next
+003. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
+004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:31:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AC370BC2166A3BDD1C608827739580F8E3AD9FB
+magnet:?xt=urn:btih:F578357EECA09D365E05FF01C286B874191F814E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,28 +311,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203150   (788658) от 01.02.2018
+###  Публикация: 1275767   (789438) от 13.01.2019
 
-VA - Empire Records - Classic Disco 4 (2018) [MP3|320 Kbps] <Nu Disco, Deep House>
+VA - Record Super Chart 569 (2019) [MP3|320 Kbps] <House, Club, Dance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788658.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Modell & Mercier  -  Electrika (Fashion Lovers Mix)  3:07
-02.  Tom Funk feat. Saucy Lady  -  Disco Town (Do The Right Thing Remix)  3:16
-03.  Gigamesh & Gavin Turek  -  I'd Do It Again  3:34
-04.  Flight Facilities  -  Sunshine (feat. Reggie Watts)  4:53(   Читать дальше...   )Жанр: Nu Disco, Deep HouseПродолжительность: 03:42:39
+01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+02.  Fisher  -  Losing It
+03.  Denis First & Reznikov & Bright Sparks - Shameless
+04.  Axwell - Nobody Else(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:42:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E10CC2D1D499BCD57D60CD60976924D787678E81
+magnet:?xt=urn:btih:092727C64627E63B3A85EDD85265B8F68E088D77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,28 +340,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203211   (788657) от 01.02.2018
+###  Публикация: 1275838   (789437) от 13.01.2019
 
-VA - Aly & Fila - Future Sound of Egypt 533 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+группа Мишки на севере - Мать-тюрьма (2001) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мать - тюрьма
+02. Транзит
+03. Записки из мёртвого дома
+04. Воронок(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6387FB37EA4A884BEE54C573797B871C5CAB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275674   (789436) от 13.01.2019
+
+VA - New Techno: Winter Show (2019) [MP3|320 Kbps] <Techno, Electronic, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789436.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adverze Ft. Mc Instinct - On The Block
+002. 2Pole - Magnetar
+003. Alan Mille - Solaris
+004. Salim - Alchemy(   Читать дальше...   )Жанр: Techno, Electronic, Tech HouseПродолжительность: 13:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4787D8A53D2C335CCF568EFFD3D5FC9B05B224B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275850   (789435) от 13.01.2019
+
+VA - Trending Topics (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789435.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Fre - Violences Verbales
+002. Bonez Mc - Kokain
+003. Casus Belli - Nardinoum
+004. 47 Crew - Le Grand Saut(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D81ADB5258A00A7172F97DC7B24DD56F15405B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275889   (789434) от 13.01.2019
+
+Spacehawk - The Last Guardian (2019) [MP3|320 Kbps] <Spacesynth, Spacedisco>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788657.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. FSOE Radio — FSOE 533 Intro
-02. Andre Absolut — Momentum Milani (Original Mix)
-03. Microtrauma — Vona 1.2 (Original Mix)
-04. Filter Bear — Never In (We Need Cracks Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:56
+01. Intro (1:27)
+02. From The Shadows (4:05)
+03. Sky Shield (4:13)
+04. Humanity (3:58)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 00:35:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CB7D3BB9AF618D2793DF7E4A46355A830961A91
+magnet:?xt=urn:btih:FA8B098F61FCA7514150C1B45D403E8D99969121
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,28 +456,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203360   (788656) от 01.02.2018
+###  Публикация: 1275848   (789433) от 13.01.2019
 
-Биатлон. Чемпионат Европы 2018. Риднау-валь-Риданна (Италия). Смешанная эстафета (28.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+VA - Space Jump (2019) [MP3|320 Kbps] <Techno, Electronic>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788656.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-28 января 2018 года, воскресенье. 17:00 МСК
-Открытый чемпионат Европы по биатлону 2018 года. Риднау-валь-Риданна (Италия)
-Смешанная эстафета 2x6 + 2x7,5 км
-Арена: Риднау (Риднау-валь-Риданна, Италия)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:12:26
+001. Alex Plug - Inception
+002. Helix ft. Romy Wave - Divine (Extended Mix)
+003. Methodub - Oscillate (Original Mix)
+004. Titan - Still I Rise(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 13:40:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16F08359418F6351CC777400CEFFD4EB75D43062
+magnet:?xt=urn:btih:650F33CD549D4B1517F700450BDB507CB6BD3FA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -711,25 +485,254 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203120   (788655) от 01.02.2018
+###  Публикация: 1511193   (789432) от 20.11.2021
 
-Газета | Народный совет №4 (январь 2018) [PDF]
+Заги бок - Сложносочинённый (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 
->>Журналы
->>Другие журналы
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788655.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789432.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйФормат: PDF
+01. Хроническое [02:35]
+02. Как перестать думать [02:57]
+03. В осаде [03:11]
+04. Стыдно [03:40](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C09EEEF6B5BBB13D00493AEE26758F753D18A3C
+magnet:?xt=urn:btih:F35FE089A3D522B42EFDD637342B4EEE73267993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511230   (789431) от 20.11.2021
+
+Aephanemer - A Dream Of Wilderness (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land Of Hope
+02. Antigone
+03. Of Volition
+04. Le Radeau de La Meduse(   Читать дальше...   )Жанр: Symphonic Melodic Death MetalПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B86E7954C5CB278AE8828D191CA4BAC11068E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511353   (789430) от 20.11.2021
+
+Swingrowers - Hybrid (2021) [AAC|~327 Kbps] <Electro, Swing, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Blink of an Eye (intro) (1:49)
+02. Hybrid (3:02)
+03. Follow the Stars (3:20)
+04. Seven Million Faces (3:39)(   Читать дальше...   )Жанр: Electro, Swing, JazzПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73E2C0175614BA0D09CC99FC8446D137348F9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511293   (789429) от 20.11.2021
+
+Marina & the Kats - Different (2021) [AAC|~307 Kbps] <Swing, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pressure (2:48)
+02. Ponder (3:45)
+03. Different (3:56)
+04. No Means No (0:41)(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A73B70F49EC715316B94D8490B1237CEF70855A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511373   (789428) от 20.11.2021
+
+Station - Perspective (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Find My Way
+02. See The Light
+03. Do You Really Want To Fall In Love Again
+04. Don't Keep Me Waiting(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB2CB60595DE1779498F25A8A86873759857DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511289   (789427) от 20.11.2021
+
+Marina & the Kats - Swingsalabim (2019) [AAC|~332 Kbps] <Swing, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way You're Kissing Me (2:22)
+02. Stick to What You Got (3:11)
+03. Say What? (3:17)
+04. I Should Have Known Better (4:40)(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C5E881CE95FD964A1A0DEEF0D435D0B94FC185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511310   (789426) от 20.11.2021
+
+Пятеро на одного (20.11.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звездных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EE1EF231D75A9DCF234688CDE5914AEF94BB64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511159   (789425) от 20.11.2021
+
+Энн Кливз | Вера Стенхоуп (Книга 3). Скрытые глубины (2021) [MP3, Варвара Шалагина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное жаркое лето на побережье Нортумберленда. Джули Армстронг возвращается домой после вечерней прогулки и обнаруживает, что ее сын убит. Люка задушили, положили в наполненную ванну и украсили дикими цветами. Эта стилизованная сцена убийства заинтриговала инспектора Веру Стэнхоуп и ее команду. Но они должны действовать быстро, чтобы найти таинственного маньяка. (   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективыПродолжительность: 10:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB053E38C884F6BC6377654607861D582DA1D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511093   (789424) от 20.11.2021
+
+VA - Beatport Hardstyle: Sound Pack #369 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789424.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Subraver - Can Feel It
+002. Rikoj & Dh - Carry You Home
+003. DJ Pulse & Nova Scotia - The Ultimate Buzz
+004. Retrospect - Never Break(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 09:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428F48C6B37795EDCD642BD6342BD20ED2AC99B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,293 @@
+###  Публикация: 1340452   (263982) от 23.11.2019
+
+Ole - Super Disco Tube (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Flamenco (Version Larga) (8:36)
+02. Mi Corazon (2:58)
+03. Regresso (5:25)
+04. From Space To Spain (Desde El Espacio A Espana) (6:52)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215CAC899D7EDE7B36961C2CAF2D844B7676F1B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191651   (263859) от 15.12.2017
+
+Bottle Of Moonshine - Everybody Watches No One Knows (2014) [MP3|320 Kbps] <60's-70's Retro Pop, Female Vocal Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horst
+02. Two Faced
+03. Frankly
+04. Medusa(   Читать дальше...   )Жанр: 60's-70's Retro Pop (Ska, Rocksteady, Reggae, Mambo), Female Vocal JazzПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416AB227D0A3DA644D68E3F630FCB66A19F9CAC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191623   (263855) от 15.12.2017
+
+Alexandra Savior - Belladonna Of Sadness (2017) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Art Pop, Baroque Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirage (03:25)
+02. Bones (02:48)
+03. Shades (03:50)
+04. Girlie (03:22)(   Читать дальше...   )Жанр: Alternative Pop, Art Pop, Baroque Pop, Indie Pop, Dream Pop, Desert RockПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D539D9E06A43766469F999AEFBE5D7069F1C10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191675   (263843) от 15.12.2017
+
+Pablo Alboran - Prometo (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263843.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Saturno (4:14)
+ 2. Prometo (5:07)
+ 3. No vaya a ser (3:18)
+ 4. Cuerda al corazon (3:39)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6EF60A7AC524C6A7545297CAADBF9A99518D916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191641   (263804) от 15.12.2017
+
+VA - Absolute Music 82 (2017) [FLAC|Lossless|tracks] <Pop, Pop-Rock, Dancepop, House, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wiktoria - As I Lay Me Down (3:11)
+02. Kygo with Selena Gomez - It Ain't Me (3:39)
+03. Julia Michaels - Issues (2:56)
+04. Calvin Harris - My Way (3:39)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Soul, Rock, R&B, Dancepop, House, Electropop, Pop-Rock, Country, FolkПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39EAD16B3D9CAA4D9DA08FE99B125FAD5201464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191652   (263775) от 15.12.2017
+
+VA - Absolute Music 83 (2017) [FLAC|Lossless|tracks] <Pop, Dancepop, Pop-Rock, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii feat. Sandro Cavazza - Without You (3:02)
+02. Justin Bieber + BloodPop® - Friends (3:10)
+03. DJ Khaled feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I'm The One (4:49)
+04. Portugal. The Man - Feel It Still (2:43)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, Soul, R&B, Dancepop, House, Electropop, Synthpop, Pop-Rock, FolkПродолжительность: 01:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0991553557C301A71239AC92AC5F19A983366B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191873   (263767) от 15.12.2017
+
+VA - Italo Golden Classics (2 CD) (1996) [FLAC|Lossless|image + .cue] <Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263767.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Sandy Marton - People From Ibiza
+02. Fun Fun - Happy Station
+03. Radiorama - Chance To Desire(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 02:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1782F326BCB73110B6BCE8200AA5B64BEBFBDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191613   (263735) от 15.12.2017
+
+Митя Фомин - Завтра будет всё по-другому (2016) [APE|Lossless|WEB-DL|tracks] <Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звёзды вселенной
+02. Чужие сны
+03. Нить из угля
+04. Завтра будет всё по-другому(   Читать дальше...   )Жанр: РорПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB66F12AAF96B2D9E269D575015A1C49B537DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191797   (263728) от 15.12.2017
+
+Сергей Лазарев - В эпицентре (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Так красиво
+ 02. Тактильно
+ 03. Шёпотом
+ 04. В Эпицентре(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398586AA9854E257DDD473239E443D2E7B9D5342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191784   (263715) от 15.12.2017
+
+Inna - Nirvana (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Dancepop, Elektro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruleta (feat. Erick) (3:18)
+02. Gimme Gimme (2:57)
+03. My Dreams (3:11)
+04. Tropical (3:14)(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, ElektroПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F661C4C2B7BBB6E638BD2EFCB46099928CD5F82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340667   (263613) от 24.11.2019
 
 Francesca Michielin - di20are (2016) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
@@ -455,296 +745,6 @@ VA - ZYX Italo Disco Spacesynth Collection 2 (2015) 2CD, Compilation [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:834F9E7CC05CC4BC4759A97F1DBA76FBDF3DED03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341160   (262594) от 27.11.2019
-
-VA - 100 Greatest Karaoke Songs (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262594.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kylie Minogue - Can't Get You Out Of My Head 3:51
-002. Prince - Kiss 3:46
-003. A-Ha - Take On Me 3:45
-004. Aretha Franklin - Respect 2:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870C9F117595CA9E409BBCB977DDF55A24EA2136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341196   (262588) от 27.11.2019
-
-VA - 100 Greatest Best Songs Ever (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262588.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Prince & The Revolution - Purple Rain 8:41
-002. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye 4:10
-003. Mark Morrison - Return Of The Mack 3:31
-004. Coldplay - Yellow 4:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5F84E29502D37B03F3D100E4D871A654F13669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341155   (262582) от 27.11.2019
-
-Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks] <Synthpop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Heavy I Fell Through the Earth (Art Mix) (06:08)
-02. Darkseid (ft. 潘PAN) (3:44)
-03. Delete Forever (03:57)
-04. Violence (ft. i_o) (03:40)(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476B759E690C53AED5E2372F8E3EA15ECE179B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193109   (262438) от 19.12.2017
-
-Алиса Фрейндлих - Избранное (2005) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Моей душе покоя нет
-02.Обрываются речи влюблённых
-03.У природы нет плохой погоды
-04.Что-то очень непонятное(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4580250CEC645FE4750A06E0939FAE241F80BC3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341526   (262344) от 28.11.2019
-
-Harlem Voices - Singing (1996) [FLAC|Lossless|image + .cue] <Funk / Soul, Gospel, Cover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All for love (4:44)
-02. Back for good (4:00)
-03. You've got a friend (4:29)
-04. '74-75 (3:48)(   Читать дальше...   )Жанр: Funk/Soul, Gospel, CoverПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08311AB0751228D4377C62A21AE4FD3431FF1353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341559   (262314) от 28.11.2019
-
-VA - ZYX Italo Disco Spacesynth Collection 3 (2017) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserdance - Endless Space (5:22)
-02. Albiero - Electronic Scout (6:05)
-03. Steve Burbon - Night In Motion (Space-Mix) (6:51)
-04. Aphelion - Virtual Life (6:20)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB92848B3B4DC3F9AC305ACAB6018AB760CD550F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341445   (262301) от 28.11.2019
-
-Camila Cabello - Romance (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shameless
-02. Living Proof
-03. Should've Said it
-04. Senorita (Feat. Shawn Mendes)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD211283596BA79C83642EB45CA0DB2C66FD6B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193227   (262209) от 20.12.2017
-
-Братья Грим - 6 альбомов, 3 макси-сингла (2005-2015) [FLAC|Lossless|image + .cue] <Pop-Rock, Grimrock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262209.jpg" />
-</div>
-
-
-###  Подробнее
-
-2005 - Братья Грим
-2005 - Хай, Пипл!
-2006 - Весенние сказки Братьев Грим
-2006 - Иллюзия(   Читать дальше...   )Жанр: Pop-Rock, GrimrockПродолжительность: 06:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C697C72B096EAB337CB4B66A47263EE1013FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193254   (262194) от 20.12.2017
-
-VA - Новогодний подарок. Оригинальные записи прошлых лет (2005) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Л. Утёсов "Всюду вас ожидают друзья" 2.27
-02. Л. Гурченко "Пять минут" 2.30
-03. М.Кристалинская "Новогодняя песня" 2.05
-04. Н. Бродская "Русская зима" 3.01(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F027B5DF182CF02EDC0738FF2E1F28F4717678D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193425   (262136) от 21.12.2017
-
-Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make You Believe In Love (03:33)
-02. Please Don't Go (03:23)
-03. Next To Me (03:00)
-04. One Flight Away (03:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8CA82D49E75404ADD82A2D0A0554EA3279648E
 ```
 
 https://mybot314.ru/tekegram_catalog/

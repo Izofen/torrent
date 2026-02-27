@@ -1,3 +1,57 @@
+###  Публикация: 1432282   (163622) от 17.12.2020
+
+Microsoft Windows 10.0.18362.1256 Version 1903 (Updated December 2020) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.1256.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B949CDEB16C00C5F70989B3BF9B5740C6F9656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432285   (163585) от 17.12.2020
+
+Microsoft Windows 10.0.18363.1256 Version 1909 (Updated December 2020) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.1256.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7042744970D4FD0D84ADBF2A2D513D7389805656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346377   (163558) от 19.12.2019
 
 Microsoft Windows 10.0.17763.914 Version 1809 (December 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
@@ -641,64 +695,6 @@ Windows 11 - это серия операционных систем, разра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB0B54A203DA1242B9DFFA04101BAA3E63EA0429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598864   (159467) от 24.12.2022
-
-Microsoft Windows 10.0.19045.2364, Version 22H2 (Updated December 2022) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 2022 Update (под кодовым названием "22H2") это тринадцатое и текущее крупное обновление для Windows 10. Он имеет номер сборки 10.0.19045.
-
-Оригинальные образы MSDN - Windows 10 Version 22H2 Build 19045.2364.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66C5EC6659888D1815F9FCC7C11F44D0E69FADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085497   (157560) от 21.12.2016
-
-HP 6470b-6570b recovery 2 DVD win 7 sp1 pro x64 (rus), drivers and applications
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157560.jpg" />
-</div>
-
-
-###  Подробнее
-
-В составе раздачи комплект дисков восстановления для ноутбуков серий HP 6470b, 6570b, 8470p,8570p, 8470w
-Первый диск содержит образ восстановления операционной системы Windows 7 Pro Rus X64
-Второй диск содержит комплект драйверов и приложений, присутствующих при заводской загрузке.
-Если ноутбук изначально шел с ОС Windows 7, активация будет произведена автоматически.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F004F766178085C9B5A3B54A4BFFCCE3C1627F
 ```
 
 https://mybot314.ru/tekegram_catalog/

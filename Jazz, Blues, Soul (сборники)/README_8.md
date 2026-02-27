@@ -1,3 +1,32 @@
+###  Публикация: 1274237   (793985) от 06.01.2019
+
+VA - Anthology Of Blues (Vol. 02) (2019) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793985.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Albert Cummings - Workin' Man Blues
+002. Bonnie Raitt - Time Of Our Lives
+003. Dr. Feelgood - Down By The Jetty Blues
+004. Albert Lee & Hogan's Heroes - Jitterbug Boogie(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 11:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6644F08AF928D0A660A487ABC6EDF08D714B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509649   (793856) от 13.11.2021
 
 VA - The Blues For Yesterday (Vol.04, 2CD) (2021) [MP3|320 Kbps] <Blues, Rock Blues>
@@ -716,35 +745,6 @@ VA - Espresso Bar: Jazz Caffe Italia Music Playlist Selection (2016) [MP3|320 к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A981786F9A4A3ACDEB40CB6D77DB7F6B14D495C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015431   (774920) от 10.05.2016
-
-VA - Song For My Woman Rock Blues Academy (2016) [MP3|320 кб/с] <Rock Blues, Country>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774920.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Beat Daddys - Livin' This Love
-002. The Rocky Athas Group - Slow Driver
-003. David Gogo - Why Don't You Show Me
-004. Hughes Taylor - You'll Never Be Alone(   Читать дальше...   )Жанр: Rock Blues, CountryПродолжительность: 09:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31A7DA343EFAE50C823FE3A005646F8DE5688C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1834451   (250422) от 03.11.2025
+
+Enlly Blue - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sweet Control
+ 02 - Through My Soul
+ 03 - Fire in My Veins
+ 04 - City’s Too Big(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA71E3D169CCC00BAB56E7DFD79E034F5906584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834449   (250421) от 03.11.2025
 
 Sons of Ashes - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -728,35 +757,6 @@ VA - Jazz Sax and Piano (2016) [MP3|320 Kbps] <Instrumental Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C44AD00602B8BF29BF2F71B3CCA0E9A1EB51CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514104   (219063) от 02.12.2021
-
-VA - Blues Velour (2021) [MP3|320 Kbps] <Blues, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219063.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Monkeyjunk - All About You
-002. Roger Hammer - Walkin' Round Blues
-003. Bob Margolin - Good Driving Song
-004. Steve Baker - Now Youre Here(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 08:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0422F27799389D81A1AEC570DF0B05DE3250BF2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

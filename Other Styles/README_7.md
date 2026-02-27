@@ -1,3 +1,58 @@
+###  Публикация: 1349314   (1004225) от 02.01.2020
+
+Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etheric Worlds III (4:57)
+02. Warriors of Light (5:31)
+03. Mirages (feat. Angelux Ruddy) (5:28)
+04. Enigma from Man (feat. Angelux Ruddy) (8:13)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2DD8F2B531D81D51F8898845B5FF9C612D243A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647055   (1004040) от 03.08.2021
+
+Dragoslav Pavle Aksentijevic - Древнее Сербское Псалмопение XIII-XIV вв. (2007) [MP3|320 кб/с]<Православные песнопения>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Православные песнопенияПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CAD397C45BEAB5A3148894B584B13515F02A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486968   (1003860) от 04.08.2021
 
 Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, Pop Rock, Soft Rock>
@@ -693,76 +748,6 @@ Kenneth Hooper - Directions (2020) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9766A27218E70EB97ACB7B62050D1CB1CC65DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597622   (999681) от 05.01.2013
-
-VA - Narada Guitar 2  The Best of Two Decades (2000) [MP3|320 кб/с]<Instrumental, Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Don Ross - Michael Michael Michael Don Ross (4:11)
- 2. Artie Traum - Safety In Numbers Artie Traum (6:31)
- 3. Randy Roos - Ray's Passage Randy Roos (5:48)
- 4. Billy McLaughlin - Candleman Billy McLaughlin (6:19)
- 5. Willie and Lobo - Havana Vieja Willie and Lobo (5:04)
- 6. Alex de Grassi - It Ain't Necessarily So Alex de Grassi (4:30)
- 7. Jesse Cook - Rattle And Burn Jesse Cook (3:48)
- 8. Eric Tingstad - The Craftsman Eric Tingstad (3:38)
- 9. Oscar Lopez - The Flavor Oscar Lopez (4:00)
- 10. Laurence Juber - New Jersey Left Laurence juber (4:09)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 02:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E9402853263ED9D61592F3A518258B1E76D9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598975   (999148) от 07.01.2013
-
-Андрей Сигунов - Bessame Mucho (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999148.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Тико-Тико
-2.Ноктюрн
-3.Besame Mucho
-4.Мой ласковый и нежный зверь
-5.Карусель
-6.Baila con migo
-7.Yesterday
-8.Бегут года
-9.Piccola samba
-10.Cumbia gitana(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B51B4E6567E481E7218CF1E9174166511477A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

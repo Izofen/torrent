@@ -1,3 +1,61 @@
+###  Публикация: 1055033   (490338) от 21.09.2016
+
+Greg Joy - Light of Day (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Journey to Camelot [00:04:06]
+02. Doreen's Tune [00:04:10]
+03. Lost Time [00:04:03]
+04. Hummingbird [00:04:14](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26DA5569D51F18591DEA3DEBF4A269114725EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937411   (490180) от 14.09.2015
+
+Neil Harvey - Beautiful Day (2010) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antigua
+02. Darkness Falls
+03. Dreamscape
+04. Renaissance(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56A55A26789CF15936A12849D23CB4877DEF318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937359   (490071) от 14.09.2015
 
 Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ultra (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
@@ -687,66 +745,6 @@ VA - A Love Song For Bobby Long (2004) Original Motion Picture Soundtrack [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAA1078488DC9208194BF3AD68C08BDD6ADF04DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545424   (483803) от 16.09.2014
-
-Devakant - 4 альбома (1993-2014) [MP3|320 кб/с]<New age, World, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-1993 - Mystery Dances
-2004 - Mystic
-2005 - Inside is Forever
-2014 - Doors Of ParadiseЖанр: New age, World, Relax, MeditativeПродолжительность: 03:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BC24663E34CBE60D086DBCDDB0480AD371FF2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937606   (483741) от 17.09.2015
-
-Shantel - Viva Diaspora (2015) [FLAC|Lossless|WEB-DL]<Ethnopop, Balkan Pop, Electronic, World, Gypsy>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Uncertain Future (0:38)
-02. EastWest - Dysi Ki Anatoli (Shantel & Areti Ketime) (4:00)
-03. Hey Girl (3:05)
-04. Promised Land (5:17)(   Читать дальше...   )Жанр: Pop, World, Electronic, Ethnopop, Balkan Pop, Gypsy, ReggaeПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C4B03866225D2BA8897F275CEC05C06C6F7429
 ```
 
 https://mybot314.ru/tekegram_catalog/

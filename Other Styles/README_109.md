@@ -1,3 +1,61 @@
+###  Публикация: 1236473   (554444) от 17.07.2018
+
+Piano Peace - Piano Sleep Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep with Piano 03:38
+02. Twilight Piano 03:00
+03. Tranquility 03:10
+04. Peaceful Memories 03:21(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A94EC4494BE18D70AAC77BF03AC541055FEF65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307552   (554182) от 13.06.2019
+
+Olivier Deriviere - A Plague Tale: Innocence (Original Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plague Tale
+02. Father
+03. Grieving
+04. In Shock(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9270C373140AE7D62C6F1F8BCAD9F215B3A6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308112   (554176) от 13.06.2019
 
 Marissa Nadler & Stephen Brodsky - Droneflower (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Alternative>
@@ -687,64 +745,6 @@ Marchese - Joyful Peace (2018) [MP3|320 Kbps] <New age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35BD1A0B7824976D4704EF857E8F6AB4E4C3DC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605467   (549197) от 21.06.2019
-
-Виктор Цой - Минусовки (2010) [MP3|96-256 kbps] <Rock>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549197.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Невесёлая песня 04:20
-2. Следи за собой  04:35
-3. Спокойная ночь  06:17
-4. В наших глазах  03:37(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22F4960AB074D82FA2AF69189866A601771F797F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238061   (548779) от 27.07.2018
-
-VA - Summer: The Donna Summer Musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soundtrack, Musicals>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LaChanze & Original Broadway Cast of Summer - The Queen Is Back (2:29)
-02. LaChanze & Original Broadway Cast of Summer - I Feel Love (2:51)
-03. Ariana DeBose & Original Broadway Cast of Summer - Love To Love You Baby (2:40)
-04. Storm Lever, Kimberly Dodson, Wonu Ogunfowora & Original Broadway Cast of Summer - I Remember Yesterday (2:39)(   Читать дальше...   )Жанр: Pop, Soundtrack, MusicalsПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA42EE4097535A9313EACCBA6C9E0968E20176E
 ```
 
 https://mybot314.ru/tekegram_catalog/

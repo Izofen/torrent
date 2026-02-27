@@ -1,3 +1,73 @@
+###  Публикация: 752351   (941108) от 02.02.2014
+
+VA - The World of Akkordeon (2 CD) (1997) /ZYX Music/ [FLAC|Lossless]<Instrumental, Easy Listening, Accordeon>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Frieda und Carmen Wilhelm - Vogelgezwitscher 	(02:01)
+02. Nando Monika - Carnevale di Venezia 		(02:57)
+03. Frieda und Carmen Wilhelm - Lustig und fidel 	(02:15)
+04. Georg Schwenk - Rosamunde 				(03:35)
+05. Harry Mooten - Deine Träume 			(01:48)
+06. Georg Schwenk - Hummelflug 				(01:31)
+07. Harry Mooten - Coup de Foudre 			(02:31)
+08. Georg Schwenk - Guantanamera 			(02:42)
+09. Drei Generationen Raymond - Maria Linda 		(02:28)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, AccordeonПродолжительность: 01:37:52 (00:47:55 + 00:49:52)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C532230F900C80117055F61129F09168AB26DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858201   (941088) от 16.01.2015
+
+Cliff Martinez - Far Cry 4 (Original Game Soundtrack) (2014) 2CD Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Cooling Night (02:53)
+02. Like a Tiger's Shadow (03:52)
+03. Retreat Is a Victory (02:11)
+04. Every Life, a New Warrior (03:07)
+05. No One Left Behind (01:31)
+06. No End to Them (01:52)
+07. Amita's Suite (04:25)
+08. Onto the Mountain that Walks (04:01)
+09. The Great One (04:23)
+10. To Face a Demon (01:23)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598894B205E5EA8421853E99C5BC0048E52F43A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 858531   (940887) от 16.01.2015
 
 Hans Zimmer - Интерстеллар / Interstellar (Original Motion Picture Soundtrack) (2015) Deluxe Edition - Illuminated Star Projection [MP3|320 кб/с]<Soundtrack>
@@ -779,67 +849,6 @@ Mark McGuire - Along the Way (2014) [FLAC|Lossless]<New Age, Ambient >
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E950D4648B2A72A25BC43B2A57CC540A93BF78A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219384   (938284) от 18.01.2011
-
-Giovanni Marradi - 4CD (1996, 1998, 2010) [APE|Lossless]<Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:44:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753050   (938239) от 04.02.2014
-
-Oliver Scheffner - 9 Альбомов (2012-2013) [MP3|192-320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Early Morning Aura (8:04)
-02. Sunlight Reflections (6:06)
-03. Follow The River (6:54)
-04. Find The Tree Of Life (8:02)
-05. My Day Of Rest (6:47)
-06. Total Lunar Eclipse (6:45)
-07. Wildlife Refugee (7:42)
-08. Cloud Pictures Passing By (6:45)
-09. Celestial Peace (6:45)
-10. Hall Of Supreme Harmony (8:02Жанр: New AgeПродолжительность: 09:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F95B0543A10C66B2A032EFF70850FE6862905FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

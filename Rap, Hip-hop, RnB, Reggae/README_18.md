@@ -1,3 +1,32 @@
+###  Публикация: 1146801   (612463) от 30.06.2017
+
+Miyagi & Эндшпиль - Умшакалака (feat. Amigo) (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Умшакалака (feat. Amigo)
+02. Райзап (feat. Amigo)
+03. Be My Sky (feat. Amigo)
+04. Отцу отсыпь (feat. Amigo)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E717B6D68D5A9E204D65DCF1E6BEEB331ACBB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297065   (606807) от 20.04.2019
 
 Kool Keith - Controller of Trap (2018) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip-Hop, Underground Hip-Hop>
@@ -713,35 +742,6 @@ Laid Back - Healing Feeling (2019) [MP3|320 Kbps] <Electronic, Synth-pop, Reggae
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:457C7E1579C47DAED000E6FA5CEC6FCD5AE63207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044470   (562713) от 21.08.2016
-
-Баста - Баста 5 (Часть 1,2) (2016) [FLAC|Lossless|tracks + .cue] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моё время в пути (интро)
-02. Удивительный мир
-03. Фонари ft. Тати
-04. Голос ft. Полина Гагарина(   Читать дальше...   )Жанр: RapПродолжительность: 01:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2E19EA7634B383E5DC21706FD25BB2688E51A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

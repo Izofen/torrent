@@ -1,3 +1,61 @@
+###  Публикация: 1083415   (273472) от 16.12.2016
+
+Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёздные войны. Истории (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He's Here For Us (03:20)
+02. A Long Ride Ahead (03:56)
+03. Wobani Imperial Labor Camp (00:54)
+04. Trust Goes Both Ways (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1087B4F94CF0A71134112FA3A4AA7FB521830C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431150   (273462) от 11.11.2019
+
+Kevin Kern - Enchanted Piano (2011) [APE|Lossless]<New Age ,Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kevin Kern - Enchanted Piano (2011)
+Год: 2011
+Жанр: New Age , Piano
+Продолжительность: 00:43:00(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44CC487DEC53CFF8EF2C0622E28DFF963D56E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 656570   (273449) от 11.11.2019
 
 Cris Velasco, Sascha Dikiciyan, Jesper Kyd, Raison Varner - Borderlands 2 Original Soundtrack (2012)[FLAC|Lossless]<Score>
@@ -682,64 +740,6 @@ Mike Lazarev - Unhinged (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Sol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0523F7D3FFFA10D8147CA3B1D0C2158722A3DD41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188947   (270345) от 06.12.2017
-
-Johannes Linstead - Azul (2017) [FLAC|Lossless|tracks + .cue] <Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azul
-02. Cha Cha Chu
-03. Be My Girl
-04. Lazy Sunday(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B79584F19C0547920189B4F02DFBE0DAB7BD60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338175   (270223) от 14.11.2019
-
-Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Complete Score) (2019) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harald Kloser, Thomas Wander, Thomas Schobel - Prologue for Logos (00:48)
-02. Harald Kloser & Thomas Wander - Ridiculous Traditions (01:25)
-03. Harald Kloser, Thomas Wander, Thomas Schobel - Nobody Wants A War (02:30)
-04. Harald Kloser, Thomas Wander, Thomas Schobel - Arizona Attack (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835FE0E6F469072FA8ACA70F6290415F66AF8B51
 ```
 
 https://mybot314.ru/tekegram_catalog/

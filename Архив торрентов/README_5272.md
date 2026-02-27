@@ -1,342 +1,3 @@
-###  Публикация: 594005   (134982) от 24.12.2012
-
-Sexy Girls Pack Wallpapers (24.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1E53B64BB980F0EF8E70BF16BECF448BBD5099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593660   (134979) от 24.12.2012
-
-Sexy Girls Wallpapers (23.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE5A4B86708B8CE36D06DDE6859687BA4BA31C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592381   (134978) от 24.12.2012
-
-Attica Rage - 88mph (2012) [MP3|320 kbps]<Heavy Metal, Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. From Dusk Til Dawn [02:11]
-02. Beyond Forever [04:43]
-03. Flight 180 [04:45]
-04. Close Shave (feat. Emma Nailen) [03:25]
-05. Long Ride Home [05:23]
-06. Killer Carousel [05:12]
-07. 88MPH [04:05]
-08. Aftershow [03:23]
-09. In Concert With the Mirror [04:53]
-10. End of an Era [03:38](   Читать дальше...   )Жанр: Хэви метал, Пауэр-металПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18434AEF3DFAE1D887B5D176FE5B86FA2151DD8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593651   (134977) от 24.12.2012
-
-HQ Wallpapers Perfect Women (22.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F192D5154D4684D64316D875B4FB9359F841F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680014   (134976) от 27.11.2023
-
-Amadeus Pro 2.8.13 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2022 HairerSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF143022B82F09FC8ED4454B38B6E2B60AA2286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680090   (134974) от 27.11.2023
-
-Bookends 14.2.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bookends - мощное приложение, которое представляет собой полнофункциональную библиографическую, справочно-информационную систему для студентов и профессионалов. Доступ к данным приложения можно получить из программ: Mellel, Nisus Writer Pro, MS Word (включая MS Word 2011), а так же Apple Pages и OpenOffice.
-Bookends позволяет сканировать существующие файлы и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.11.223Разработчик: © 2022 Sonny SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4BF2A3678CBED79B42D71D17EF704790014B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594009   (134973) от 24.12.2012
-
-Gilrs Wallpaper (24.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC49F216BB63196B4F34DFD9ADE862F7C90B0BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593631   (134964) от 24.12.2012
-
-Best HD Wallpapers Pack (22.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F45FD3A89A5DE67B5AC3E2518D8A23A22907E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593659   (134962) от 24.12.2012
-
-Sexy Girls Pack Wallpapers (23.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B40B3D9C727894C7845DEF9F744BEF7B08120F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593233   (134958) от 24.12.2012
-
-VA - Супер Драйв от Снегурочки. Зарубежный (2012) [MP3|256 кб/с]<Dance, Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-001. Katy Perry - That's More Like It
-002. Elena Gheorghe - Hypnotic (Radio Edit)
-003. Picco - La Maquina (Original Radio Edit)
-004. The Script Feat. Will.I.Am - Hall Of Fame
-005. Scotty Feat. Tesz Millan & AK - Nothing's Gonna Change My Love For You (Clubmix Edit)
-006. Na Palm - Two Days Straight
-007. Ola - I'm In Love (Bodybangers Remix Edit)
-008. Tom Pulse & E-Wok - Go Back 2 The Oldschool (Rico Bernasconi S Asskick Mix Edit)
-009. DJ Dean vs DJ Analyzer - Its A Dream (Vistexx Project Rmx)
-010. Fergie - L.O.V.E. (Let One Voice Emerge)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 06:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0796A389869C0819E99AC359A0B17E16A75FABBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594007   (134954) от 24.12.2012
-
-Sexy Girls Wallpapers (24.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B037258F468710AFC188C5D1057A658C9CBD47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592386   (134952) от 24.12.2012
-
-Hellbringer - Dominion Of Darkness (2012) [MP3|256 kbps]<Speed Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Dominion Of Darkness [06:21]
-02. Sermon Of Death [03:35]
-03. Deceiver's Chamber [04:41]
-04. Necromancer's Return [04:44]
-05. Bell Of The Antichrist [03:06]
-06. Satanic Destructor [04:57]
-07. Hellbringer [04:11]
-08. The Rites Of Evil [03:38]
-09. Demon's Blood [05:23]Жанр: Спид-металПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8F0CFD4368DDDE2121817C9655A530694A2250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592421   (134950) от 24.12.2012
 
 Владимир Цветаев - Станция "Заречная" (2012) [MP3|320 кб/с]<Pop>
@@ -721,6 +382,327 @@ Computer Desktop Wallpapers Collection (22.12.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F5DC00FD9E0ACFD30E8790C61A7CE35D8AADE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593662   (134922) от 24.12.2012
+
+Wallpapers Sexy Girls (23.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4720х3500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4530BB8852938FF1BE3D58ADDD8AA37438D559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593640   (134920) от 24.12.2012
+
+Animal Wallpapers (22.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B6A4759971751842A1635CB5DCE7B34F5407D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593644   (134918) от 24.12.2012
+
+Rodents wallpaper (22.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF92542D465BEF08B0264797F7D0A4704FFA467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594003   (134914) от 24.12.2012
+
+France Wallpapers (24.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFCA4093339ED66A96EEC325F67F8E8C6C9896C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593590   (134913) от 24.12.2012
+
+Sumatra PDF 2.2.7108 Pre-release + Portable [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Sumatra PDF - легкий просмотрщик  PDF, DjVu, CHM, ePub, MOBI, XPS, CBZ и CBR -файлов, быстро работает, имеет очень простой дизайн, не загружает систему, может запускаться с внешних USB-карт. Минималистский дизайн программы с лихвой искупается ее очень шустрой работой, что выгодно отличает Sumatra PDF от того же Adobe Reader. В этой версии улучшена обработка документов, добавлен диалог настроек, улучшена обработка юникода, добавлена возможность не вести историю просмотренных файлов, улучшена поддержка SyncTeX, введена новая иконка для PDF-файлов и исправлены ошибки. Основным приоритетом и достоинством программы является простота и высокая скорость работы. Остается добавить, что помимо прочих достоинств Sumatra PDF еще и полностью бесплатен и распространяется, в том числе, и на основе открытых исходных кодов.Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593656   (134908) от 24.12.2012
+
+Nature Wallpapers (23.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE45F49C9F8F9C97EE6D4B9D4856106630AC5FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593645   (134906) от 24.12.2012
+
+Birds Wallpapers (22.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168A17E1819BE79C6DAA41D1E1BB09E13AF3799E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679942   (134903) от 27.11.2023
+
+Fort Firewall 3.10.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5847EA0FD1D5CCB367133F6D42C7681D5BB10C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593946   (134902) от 24.12.2012
+
+Arty - Together We Are 027 (22.12.2012) [MP3|320 кб/с]<Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planet Perfecto - Bullet In The Gun (Refracture Remix)
+02. Denzal Park - Scorpio (Original Mix)
+03. KhoMha - Genesis (Original Mix)
+04. Those Usual Suspects & Nordean - Burn Forever (Original Mix)
+05. Discolure - Latch
+06. Martin Volt & Quentin State - Collision (Original Mix)
+07. Madeon - The City (The M Machine Remix)
+08. Pink Is Punk & Benny Benassi - Perfect Storm (Gigi Barocco Remix)
+09. Alesso - Clash (Original Mix)
+10. Alex M.O.R.P.H. - Prime Mover (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D412A1C2E42A373F7FAA8341F13FB9FCA0CA16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594000   (134900) от 24.12.2012
+
+Desktop Wallpapers (24.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293F3BE068BE9DE6F5C4C0F3D31DE14C16BE5881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593995   (134891) от 24.12.2012
+
+Best HD Wallpapers Pack (24.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6273F6EBF1A75DB9707D1309CAE17C350DC3100A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679943   (134888) от 27.11.2023
+
+Easy Data Transform for Mac 1.45.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преобразование файлов Excel и CSV без программирования с помощью Easy Data Transform.Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2022 Oryx Digital LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE7304C4EF4DF6F24F1E0888928B6DB98155499
 ```
 
 https://mybot314.ru/tekegram_catalog/

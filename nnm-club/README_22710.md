@@ -1,22 +1,22 @@
-###  Публикация: 593632   (134948) от 24.12.2012
+###  Публикация: 592187   (135443) от 23.12.2012
 
-Nature Wallpapers (22.12.12) [Wallpapers]
+New year wallpapers 2013 (18.12.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134948.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF8B4C7C6E97CBCE8D619BD62C2F3FB71F49A045
+magnet:?xt=urn:btih:7600ED8DA28BF8FD37D899FD92E743E05387B842
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,82 +24,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679930   (134946) от 27.11.2023
+###  Публикация: 593351   (135441) от 23.12.2012
 
-Архимандрит Наум (Байбородин) | Сокровенное делание умно-сердечной молитвы (2022) [PDF, FB2, EPUB, MOBI, TXT]
+Draugr - De Ferro Italico (2011) [WavPack|Lossless]<Folk Metal>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134946.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поучению святых отцов, в достижении высоких степеней совершенствования молитвенного состояния нужно совершенное самоопределение богоподобной души в сторону добра и непрестанное призывание в молитве Иисуса Христа. Известный в России и далеко за ее пределами духовник и старец, архимандрит Троице-Сергиевой Лавры отец Наум (Байбородин; 1927-2017) всегда советовал своим (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30011E15AC8DD1E639FD347F2212D21D8CB94B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679921   (134945) от 27.11.2023
-
-PhotoDirector - Редактор фото 18.7.5 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134945.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 17.11.2023Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5FAE0284FB976605195B7D8BB64B25F0A814B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593460   (134944) от 24.12.2012
-
-Inherit Disease - Visceral Transcendence (2010) [FLAC|Lossless]<Technical Brutal Death Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_134944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vessel Of Inhumanity 02:45
-02. Sentient Horror 03:03
-03. Beyond The Tyranny Of Entropy 02:39
-04. Hivemind 02:25
-05. Birth Of The Artilect 02:33
-06. Digital Rapture 03:38
-07. Dark Facets Of Self Indulgence 02:44
-08. Prolific Dominance 03:26
-09. Nanoscourge 03:20
-10. Maelstrom of Vindictive Torment 03:53(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:30:26
+01. Dove Italia Nacque [02:10]
+02. The Vitulean Empire [05:15]
+03. Laugure E Il Lupo [05:52]
+04. Ver Sacrum [09:25]
+05. Suovetaurilia [04:36]
+06. Legio Linteata [06:01]
+07. Ballata Dautunno [01:42]
+08. Inverno [07:32]
+09. Roma Ferro Ignique [06:26]
+10. De Ferro Italico [10:34]Жанр: Folk MetalПродолжительность: 00:59:37
 
 ## Скачать торент
 ```bash
@@ -111,54 +59,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680060   (134943) от 27.11.2023
+###  Публикация: 591627   (135440) от 23.12.2012
 
-Fuel - Studio Albums (6 releases) (1998-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Post-Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская рок-группа, образованная гитаристом и автором песен Карлом Беллом и басистом Джеффом Аберкромби в 1994 году.1998 - Sunburn
-2000 - Something Like Human
-2003 - Natural Selection
-2007 - Angels & DevilsЖанр: Hard Rock, Post-GrungeПродолжительность: 04:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC20FB2D7A206ED1F7F303F5EE0549799AE4DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593650   (134942) от 24.12.2012
-
-Wallpapers Sexy Girls (22.12.12) [Wallpapers 16+]
+deeB - Daydream (EP) (2012) [MP3|320 кб/с]<trip-hop, acid jazz, insrumental hip-hop>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134942.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4720х3500
+1. Eleven11
+2. Leiden Lowlife
+3. Blik
+4. Inside The Outside
+5. Chillwings
+6. E-Type
+7. Daydream
+8. Dan Natural
+9. The Grand Illusion
+10. Coffee & TreesЖанр: trip-hop, acid jazz, insrumental hip-hopПродолжительность: 00:33:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F20C6DD21AF3BA042A7F0D7AE08799E4F4D7ECEA
+magnet:?xt=urn:btih:5AEDF7B34BA62FEA008A50253C8591C2AD188888
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,25 +94,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593634   (134941) от 24.12.2012
+###  Публикация: 593327   (135439) от 23.12.2012
 
-Macro Wallpapers (22.12.12) [Wallpapers]
+Чрезвычайное происшествие. Обзор за неделю (23/12/2012) SATRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134941.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Жанр передачи можно назвать "журналистикой инцидента". Его особенности в том, что программа, по сути, представляет собой не просто криминальную сводку или уголовную хронику, а показывает реальную жизнь без прикрас. Когда на НТВ возникла идея итоговой программы о происшествиях, работать пришлось в авральном режиме. Окончательное решение созрело за две недели до первого выпуска, когда в газеты уже была отдана программа телепередач с новой строкой - "ЧП. Обзор за неделю". Команда собрана из профессионалов жанра, людей, которые знают, что нужно зрителю, могут добыть это и умеют эффектно подать материал. Эта команда и смогла создать качественный продукт, основой которого стали репортажи с реальным, не постановочным видео. Неподдельные эмоции, наэлектризованная атмосфера критических ситуаций, невероятные, но абсолютно достоверные факты, - все это каждое воскресенье ждет вас на канале НТВ!Жанр: ТелепередачаПродолжительность: 00:25:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E57AC7813713A2A79F4E80CEDB03723A2D12E82
+magnet:?xt=urn:btih:B6B80D66A49128F0FC11184F917BEC4929E0378B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,25 +120,102 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593635   (134939) от 24.12.2012
+###  Публикация: 593302   (135438) от 23.12.2012
 
-Interior Wallpapers (22.12.12) [Wallpapers]
+Demetrius Nabors - A Journey Within Part 1 (2011) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Croydon Road
+02. What A Day
+03. Journeying Through Time
+04. A Flowing Interchange
+05. Into The Night
+06. Ridin' & Groovin'
+07. Is There A Chance
+08. Just When I Thought
+09. So Into You
+10. Strollin' Down Blaine(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593315   (135437) от 23.12.2012
+
+Dado Moroni Trio - Shapes (2011) [FLAC|Lossless]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballade Pour Gianni
+02. Brother Alfred
+03. Desafinado
+04. The Duck And The Duchess
+05. Love Dance
+06. F.B.S.
+07. For The Time Being
+08. Shark Attack
+09. Here's To LifeЖанр: Post-BopПродолжительность: 01:04:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592771   (135436) от 23.12.2012
+
+Alpha Tiger - Man Or Machine (2011) [WavPack|Lossless]<Power / Heavy Metal>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134939.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135436.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Starrider [06:35]
+02. Crimson Desert [04:41]
+03. Men Or Machines [06:23]
+04. When Autumn Leaves Fall [05:15]
+05. Against The Time [06:30]
+06. Martyr's Paradise [07:34]
+07. Karma [04:31]
+08. Exit Night [06:07]
+09. Black Star Pariah [07:12]Жанр: Power / Heavy MetalПродолжительность: 00:54:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72D58EE517657D1805C916640A72BC257E2222F7
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -218,25 +223,357 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593638   (134938) от 24.12.2012
+###  Публикация: 592651   (135433) от 23.12.2012
 
-Журнал | Мобильные телекоммуникации №9-10 [ноябрь-декабрь 2012] [PDF]
+Просто жизнь / Life Just Is (2012) DVDRip [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская драма "Просто жизнь" сфокусирована на одной неделе жизни четверых выпускников колледжа Пита, Tома, Клэр и Джей во время их нелёгкого перехода во взрослую жизнь. Несмотря на повседневные тяготы и рутину, Пит пытается найти духовный ответ на смысл жизни, Джей пытается наладить новую связь, а Том и Клэр испытывают все увеличивающееся взаимное притяжение...Жанр: ДрамаРежиссер: Алекс БарретАктеры: Уилл Де Мео, Джек Гордон, Натаниэль Мартелло-Уайт, Пол Николлс, Фиона Райан, Джэйн Вайзенер, Рэйчел Брайт, Джейсон Крут,  Эндрю ХоулиПеревод: ОтсутствуетПродолжительность: 01:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5285F423CFC90E0A924F22C85C8234A435CB5156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593308   (135428) от 23.12.2012
+
+Shirley Johnson - 2 альбома (2002, 2009) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+
+2002 - Killer Diller
+
+2009 - Blues Attack
+
+(   Читать дальше...   )Жанр: BluesПродолжительность: 02:07:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593264   (135427) от 23.12.2012
+
+Dan Beaver And His Dam Blues Band - Last Call (2005) [FLAC|Lossless]<Blues>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Tuff
+02. The Rain
+03. Going Down Slow
+04. Howlin' Wolf
+05. Shake That Boogie
+06. For What It's Worth
+07. Bo Diddley
+08. Gimmie One Reason
+09. Think
+10. If I Can Hold You(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593287   (135425) от 23.12.2012
+
+Годы несбывшихся надежд (1988) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм с участием О. Лациса, С. Дзарасова, Н. Шмелева, Ф. Бурлацкого, С. Залыгина, Л. Разгона.Жанр: ДокументальныйПродолжительность: 01:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40E244D70E151ED235D1C51961AD65D5A32FC30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593001   (135424) от 23.12.2012
+
+SUMo 3.4.14.189 [Multi/Rus]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135424.jpg" />
+</div>
+
+
+###  Подробнее
+
+SUMo - программа, позволяющая отслеживать появление обновлений для различных установленных на компьютере программных продуктов. В случае, если после проверки находятся более новые версии ПО, выводится соответствующее сообщение и выдается ссылка на закачку новой версии. Есть конечно и большое количество альтернатив этой разработке, есть вроде даже в Windows встроенная система поиска, но по словам авторов она мало эффективна, так как допустим разработчик обновил версию своего ПО, но на сайте пока нет официальной информации, вы об этом не узнаете через стандартную утилиту, а SUMo выдаст вам новую версию моментально.
+
+Как только вы первый раз запустите программу, она предложит вам провести сканирование компьютера, соглашайтесь, после вам выдадут список программ, собственно на скриншоте это видно. Чтобы добавить свои программы в список, нжно просто перетащить ярлык или сам исполняемый файл в окно SUMo. Тогда жмем обновить и программа ищет обновления. Все просто.Название программы: SUMoЯзык интерфейса: Multi/Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593271   (135422) от 23.12.2012
+
+Scribus 1.4.1 [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scribus – бесплатная издательская программа с открытым кодом для создания текстовых и графических документов любой сложности. Цель Scribus – предложить достойную альтернативы коммерческим редакторам такого типа. Одновременно с легкостью в использовании и легким пониманием интерфейса, Scribus предоставляет профессиональные функции, такие как, система цветоделения CMYK, легкое создание документов PDF, и инкапсулированный язык описание страниз PostScript. Также поддерживается полное ICC управление цветом, и создание разделения цветов. Поддерживается импорт документов OpenOffice.org, ESP, HTML, SVG, PDF.Название программы: ScribusЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593374   (135421) от 23.12.2012
+
+VSO Downloader Ultimate 2.9.14.7 [Мульти/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135421.jpg" />
+</div>
+
+
+###  Подробнее
+
+VSO Downloader - менеджер для многопоточной загрузки файлов, с помощью которого можно легко загружать онлайн-видео с различных сервисов видеохостинга, как например YouTube. Для загрузки нет необходимости копировать и вставлять URL-адрес - программа автоматически обнаруживает и скачивает потоковое видео, отсекая при этом различные баннеры и рекламные объявления. Присутствует поддержка HTTP, HTTPS протоколов и прокси-серверов, возможность докачки и прочее.Название программы: VSO Downloader UltimateЯзык интерфейса: Мульти/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592787   (135419) от 23.12.2012
+
+Necronomicon - The Queen Of Death (2012) [FLAC|Lossless]<Doom Metal / Psychedelic Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holy Planet Yamoth (06:38)
+02. The Assassin's Song (05:20)
+03. The Black Priests Of Chaos (07:00)
+04. Dreaming Of The Old Ones (06:04)
+05. Hypnotic Overdrive Machine (07:04)
+06. The Queen Of Death (06:30)Жанр: Doom Metal / Psychedelic RockПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593418   (135418) от 23.12.2012
+
+Softany WinCHM Pro 4.31 RePack by loginvovchyk [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135418.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinCHM является удобной и мощной утилитой для создания справочных систем. Не обладая особыми знаниями, вы можете создавать профессиональные и хорошо выглядящие HTML-справки (CHM), веб-справки, PDF-инструкции и документы Word. Основные возможности программы: поддержка шаблонов; создание полноценных веб-справок (с содержанием,
+указателем, поиском и закладками); полноценный WYSIWYG-редактор HTML, не требующий
+установки стороннего ПО; редактирование готовых CHM-файлов; импорт HTML-файлов для
+быстрого добавления данных; поддержка содержания с иерархической структурой,
+смены иконок, мультивыбора; визуальный редактор CHM-файлов.
+
+(   Читать дальше...   )Название программы: Softany WinCHM ProЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593446   (135416) от 23.12.2012
+
+VA - Christmas in St. Moritz (Chilled Tunes For Relaxed X-Mas Days) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - My Dream (Original Mix)
+02. MoVoX - Nice Trip 09 (Original Mix)
+03. Minor Dreamer - D.O.N.T. (Original Mix)
+04. Lazy Hammock - One of Those Days (Original Mix)
+05. Pianochocolate - Zuzu (Original Mix)
+06. Paul Adam - Backwards (Original Mix)
+07. Bodean - Keep On Moving (Original Mix)
+08. Twentyeight - Sunday Morning (Original Version)
+09. Daniel Ray - Debonair (Original Mix)
+10. The Soulful Sun - Loose It (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:272E7BA9B6CB6B0F6E05154AC52A65FAE6A51D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593275   (135415) от 23.12.2012
+
+Dan Patlansky - Move my Soul (2009) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jump on
+02. Why?
+03. Big things going down
+04. Insufficient man
+05. Peace of Eden II
+06. Move my soul
+07. You upset me
+08. Come & play
+09. Luka
+10. Lord you are beautiful(   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593332   (135411) от 23.12.2012
+
+Журнал | EN-Gamer №5 [2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134938.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Мобильные телекоммуникации" - профессиональное издание, предназначенное для руководителей и специалистов предприятий индустрии подвижной связи. На своих страницах журнал освещает весь спектр состояния и перспектив развития технологий, а также вопросы бизнеса в области мобильных коммуникаций за рубежом и, прежде всего, в России. Журнал издается с 1999 года и выходит в свет 10 раз в год тиражом 5000 экземпляров.Формат: PDF
+«EN-Gamer» — новый журнал о компьютерных играх. Пятый номер журнала расскажет о фан-сайтах игры "Аssassins Creed" и многое другое.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DA826E0E49BF1662DF2E9B310F1EFBA7DF7B40B
+magnet:?xt=urn:btih:455C4C84180141A063A66AE5E5C8596C4EF6877F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,25 +581,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679935   (134935) от 27.11.2023
+###  Публикация: 592072   (135410) от 23.12.2012
 
-Преподобный Ефрем Сирин | Псалтирь или Богомысленные размышления (2014) [PDF, FB2, EPUB, MOBI, TXT]
+VA - Creative Music Box 6 (2012) [MP3|320 кб/с]<Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal Step>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134935.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вниманию читателя предлагается книга изречений знаменитого учителя покаяния преподобного Ефрема Сирина, составление которой принадлежит святителю Феофану Затворнику.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+1. Asking Alexandria - A Lesson Never Learned
+2. Bassex - Tinnitus
+3. Butch Clancy - Xlam
+4. Butch Clancy- The Devil's Quid Pro Quo
+5. Cenob1te - Hyperion
+6. Deltron 3030 - Upgrade (Figure Remix)
+7. Demented Dimensions - I Swear to God
+8. Document One feat. Maksim - Kick Snares And Brehs
+9. Dubwoofer - Carol Of The Bass
+10. Eliminate - Devil Theory(   Читать дальше...   )Жанр: Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal StepПродолжительность: 02:18:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6340E55D8062A70AD44AA208EDCBD25956BB20CC
+magnet:?xt=urn:btih:34D9A6E0E12F409DF5BC70019504C1BF1BF2A7C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,28 +616,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679409   (134933) от 27.11.2023
+###  Публикация: 593559   (135408) от 23.12.2012
 
-VA - Keep It Trance Vol. 17 (2023) [MP3|320 Kbps] <Trance>
+Chamras Saewataporn - Green the World (2011) [MP3|320 кб/с]<New age, Instrumental, Relax>
 
->>Electronic
->>Trance
+>>East Asian Music
+>>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134933.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135408.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rodrigo Deem & Leonard A - At Night (Original Mix) [4:27]
-02. Ciro Visone & Semper T. - Intercession (Extended Mix) [6:52]
-03. Tranceview - Walk Amongst The Stars (Extended Mix) [5:43]
-04. STNX - Euphorix (Extended Mix) [6:31](   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:18
+(3:24) 01. Green The World
+(3:50) 02. A place in the heart
+(3:04) 03. The tree of Life new
+(3:35) 04. In the year 2012
+(3:53) 05. The Voice in the Jungle
+(3:15) 06. Secret of Paradise
+(3:08) 07. Forest Home and Sleepy Momo
+(3:48) 08. Thai Rice
+(3:48) 09. The Time Traveler
+(3:21) 10. First time I ever Saw this World(   Читать дальше...   )Жанр: New age, Instrumental, RelaxПродолжительность: 00:46:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A377E7A03CAC408A232FC70988BCF5B37FA6C515
+magnet:?xt=urn:btih:5AE879427D2F93FD188A0724CFD462938FEA51F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,25 +651,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593996   (134932) от 24.12.2012
+###  Публикация: 592495   (135407) от 23.12.2012
 
-Nature Wallpapers (24.12.12) [Wallpapers]
+Поле чудес (21/12/2012) SATRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134932.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+В эфире с 25 октября 1990 года. Первоначально ведущим был Владислав Листьев, а с 1 ноября 1991 года Леонид Якубович. Каждую пятницу он приглашает игроков в студию... отгадывать слова. Правила игры весьма просты: в трех турах участвуют по три человека в каждом, победители туров соревнуются в финальной игре, и ее победитель, если выиграет суперигру, получает главный приз. Стать участником игры "Поле чудес" очень просто - для этого нужно прислать в редакцию программы какой-нибудь оригинальный кроссворд. В игру играют и взрослые, и дети, пожарные, доярки, милиционеры, учителя, ветераны войны, артисты - все, кто знает русские буквы и слова. В съемках принимают участие игроки со всей России и ближнего Зарубежья. Проект Владислава Листьева. Название "позаимствовано" из сказки о Буратино.Жанр: ТелепередачаПродолжительность: 00:51:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D951882DD24E20646E64F6A3DA492938C5C38339
+magnet:?xt=urn:btih:E05EE687D45A2CD068FA711013A6B465B9E7EA9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,27 +677,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679985   (134931) от 27.11.2023
+###  Публикация: 592830   (135406) от 23.12.2012
 
-Борис Лавренёв | Сорок первый (Радиоспектакль) (2018) [MP3, Инна Чурикова, Георгий Тараторкин и др.]
+Pulp - Different Class (1995) [MP3|320 кб/с]<BritPop>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134931.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия: Из архива «Гостелерадиофонда».
-Борис Андреевич Лавренёв (1891–1959), русский советский писатель, прозаик, публицист, драматург.
-Красноармейцу Марютке, имеющей на счету сорок убитых врагов, поручено конвоировать пленного белого офицера. Волей случая им было суждено оказаться вдвоем на затерянном в море островке. Трудности и лишения сблизили их. Между классовыми (   Читать дальше...   )Жанр: Русская литература, классика, драма, повестьИздательство: Запись эфира Радио «Культура», ГостелерадиофондПродолжительность: 01:25:57
+01 - Mis-Shapes
+02 - Pencil Skirt
+03 - Common People
+04 - I Spy
+05 - Disco 2000
+06 - Live Bed Show
+07 - Something Changed
+08 - Sorted for E's & Wizz
+09 - F.E.E.L.I.N.G.C.A.L.L.E.D.L.O.V.E
+10 - Underwear(   Читать дальше...   )Жанр: Brit PopПродолжительность: 00:52:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA3F3693127271D7B79565DA04579E3E92F682A5
+magnet:?xt=urn:btih:DFB7B331C4B9A3385BE8DF411ED59FB1A7EA1B1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -353,28 +712,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679465   (134930) от 27.11.2023
+###  Публикация: 592888   (135404) от 23.12.2012
 
-VA - Infrasonic: The Best Of 2023 (2023) [MP3|320 Kbps] <Trance>
+Planet X - Quantum (2007) [MP3|320 кб/с]<Progressive Fusion Rock>
 
->>Electronic
->>Trance
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134930.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ultimate - Stages (Extended Mix) [7:19]
-02. Epidemika - High (Extended Mix) [6:16]
-03. Incredia - Cropp (Extended Mix) [5:43]
-04. Kataploks - Sobaeksan (Extended Mix) [5:39](   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:58
+1. Alien Hip-Hop
+ 2. Desert Girl
+ 3. Matrix Gate
+ 4. The Thinking Stone
+ 5. Space Foam
+ 6. Poland
+ 7. Snuff
+ 8. Kingdom Of Dreams
+ 9. Quantum FactorЖанр: Progressive Fusion RockПродолжительность: 00:50:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42DC9E556369B319E4A779783DAF4DE37D2CA471
+magnet:?xt=urn:btih:43FF798163B7C3B3F4B16009854F22135D220A0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -382,25 +746,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679922   (134929) от 27.11.2023
+###  Публикация: 592232   (135403) от 23.12.2012
 
-PhotoDirector - Редактор фото 18.7.5 Mod by maxi123444 [Ru/Multi]
+Xenia - Understand (2012) [H.264/720p] WEBRip
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134929.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135403.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 17.11.2023Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+Жанр: Pop, DanceПродолжительность: 00:03:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6733BED70195404DCF22D80E1364FFF19C36DFEA
+magnet:?xt=urn:btih:36D9426D83129B4234424D10CD28090FAF6D54A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -408,294 +772,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679404   (134928) от 27.11.2023
+###  Публикация: 593311   (135401) от 23.12.2012
 
-VA - Keep It Trance Vol. 16 (2023) [MP3|320 Kbps] <Trance>
+Don Grusin & Bill Sharpe - Trans Atlantica (2012) [FLAC|Lossless]<Smooth Jazz>
 
->>Electronic
->>Trance
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134928.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_135401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Only One & Eric Vanegard - T.A.T(Original Mix) [5:26]
-02. Intra De Aeris - Voice Of The Dark Planet (Extended Mix) [6:28]
-03. Denis Airwave & T'eira - My Freedom (Yuri Yavorovskiy Remix) [3:50]
-04. Spy - Ori (Original Mix) [5:57](   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:15
+01. The London Tube
+02. Exotic Boulevard
+03. Down At St Catherine's
+04. War Zone
+05. Chance Encounters
+06. Night Train To Paris
+07. Un Vuelo
+08. Slow Breeze
+09. Mole Trap Cool
+10. After Hours(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:282137401D9A835FECC19D56A54F2A76131A287B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680065   (134927) от 27.11.2023
-
-Lyn 2.3.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lyn - легкий, быстрый и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров. Lyn - это чрезвычайно универсальный и эстетически приятный интерфейс, Geotagging технология, простой и комплексное решение для совместного использования.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2023Разработчик: © 2023 Mirko VivianiПоддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C6CE433F48EAA6FE7D4DE572AFB9E6712E956C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680013   (134926) от 27.11.2023
-
-PhotoRoom 4.7.5 (1174) Mod by Mixroot [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134926.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 20.11.2023Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23B21701E0636ADF2D8C01094C307E1D7C85983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679853   (134925) от 27.11.2023
-
-Trapeze - Lost Tapes, Vol. 1 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cool Water [00:03:49]
-02. Lover [00:03:58]
-03. Breakdown [00:03:35]
-04. Don't Let Them Push You [00:04:57](   Читать дальше...   )Жанр: Classic Hard RockПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5883FCDEC9EC654BA6E6F89AB5BD53F94DF04BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593630   (134924) от 24.12.2012
-
-Computer Desktop Wallpapers Collection (22.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5DC00FD9E0ACFD30E8790C61A7CE35D8AADE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679861   (134923) от 27.11.2023
-
-Swish 1.10.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swish  добавит отсутствующий набор жестов для macOS. Управляйте окнами и приложениями прямо с трекпада с помощью интуитивно понятных жестов двумя пальцами, используя их нажатие, нажатие и удержание. Swish предлагает 28 простых в использовании жестов заголовка, дока и меню, которые ускорят ваш рабочий процесс и сделают вас опытным пользователем трекпада.Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2023 Christian RenningerПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A9F383206FF183AB9D4489A0C90730E5A8D4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593662   (134922) от 24.12.2012
-
-Wallpapers Sexy Girls (23.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4720х3500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4530BB8852938FF1BE3D58ADDD8AA37438D559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679953   (134921) от 27.11.2023
-
-Tears For Fears - Hammersmith Odeon London 1983 (live) (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth-Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mothers Talk (live) [00:04:23]
-02 - Broken Head Over Heels (live) [00:07:45]
-03 - Memories Fade (live) [00:05:23]
-04 - Mad World (live) [00:04:04](   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-PopПродолжительность: 01:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D27BA7CCF9EDADE3D73037A37241DF999888958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593640   (134920) от 24.12.2012
-
-Animal Wallpapers (22.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B6A4759971751842A1635CB5DCE7B34F5407D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680028   (134919) от 27.11.2023
-
-Мужчина получше / The Better Man (1912) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пристрастие Джима Сондерса к азартным играм заставляет его пренебрегать женой и ребенком. Однажды ночью, когда он был в салуне, Мигель Гомес, мексиканский преступник, за которого предложена награда в 1000 долларов, врывается в дом Джима....Производство: США, Vitagraph Company of AmericaЖанр: короткометражный, драма, немое киноРежиссер: Роллин С. СтарджонАктеры: Роберт Торнби, Джордж Стэнли, Энн Шефер, Чарльз БеннеттПеревод: Немой с интертитрами (В. Сачков)Язык озвучки: немойСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1235536DC76A9AB65221640604008D90CBDB632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593644   (134918) от 24.12.2012
-
-Rodents wallpaper (22.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF92542D465BEF08B0264797F7D0A4704FFA467
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

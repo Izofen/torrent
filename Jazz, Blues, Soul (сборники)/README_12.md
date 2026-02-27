@@ -1,3 +1,32 @@
+###  Публикация: 1292022   (646669) от 29.03.2019
+
+VA - Coming Back To You (2019) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZZ Top - Blue Jean Blues
+02. T. Rex - Lean Woman Blues
+03. Jimi Hendrix - Electric Church Red House
+04. Fleetwood Mac - Just The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 02:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:231AA0023F046136B2EE9ED414A06812D2A16FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906433   (645240) от 08.06.2015
 
 VA - The Most Essential Smooth Jazz (2015) [MP3|320 кб/с]<Jazz, Smooth Jazz>
@@ -716,35 +745,6 @@ VA - Soft Soul & Jazz (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ABAD5C4B044589FC71F125ED0957FEBED601AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060753   (605479) от 24.04.2022
-
-VA - Blues Forever vol.61 - vol.64 (2016) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zed Mitchell - Lonely Man
-02. Buddy Guy - Lyin' Like A Dog
-03. Cathy Jean - Ripe Garden Little Sick Twist
-04. Joe Cocker - I Put A Spell On You(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5084A4FB673DBAB61DA07CC49EB4451C1A5E5616
 ```
 
 https://mybot314.ru/tekegram_catalog/

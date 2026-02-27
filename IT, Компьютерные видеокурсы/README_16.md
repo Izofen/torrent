@@ -1,3 +1,32 @@
+###  Публикация: 1460695   (1022354) от 06.04.2021
+
+Udemy, Алексей Решетов |  Web разработка в деталях: JavaScript (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022354.jpg" />
+</div>
+
+
+###  Подробнее
+
+JavaScript – один из самых популярных языков программирования в мире с более чем двадцатилетней историей. Это также один из трёх главных языков программирования для веб-разработчиков:
+HTML: позволяет добавить контент на вашу веб-страницу.
+CSS: задаёт стили и внешний вид веб-страницы.
+JavaScript: улучшает поведение веб-страницы.(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 02:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE42A81836117BB315C9D1310393D28AB8B27719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460839   (1022198) от 07.04.2021
 
 Jeff Minakata | OSINT: Open-Source Intelligence (level 2) (2021) PCRec [En / En, Ru Sub]
@@ -688,34 +717,6 @@ Udemy, ZTM Academy, Andrei Neagoie | Master the Coding Interview: Data Structure
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2180B5AF1DFA1B2489A5A3B7A523B58B83CCA241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420705   (1021489) от 11.04.2021
-
-Udemy, ZTM Academy, Andrei Neagoie | Подготовка к собеседованию: Big Tech (FAANG) / Master the Coding Interview: Big Tech (FAANG) Interviews (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите работу в Google, Amazon, Facebook, Microsoft, Apple, Netflix, пройдя собеседование по программированию. Пошаговое руководство для решения самых сложных вопросов!
-Пройдите собеседование в ведущих технологических компаниях (Google, Amazon, Facebook, Apple, Microsoft, Netflix и другие)
-Пошаговое руководство по решению распространенных вопросов и способам их (   Читать дальше...   )Производство: Udemy, ZTM AcademyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 36:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA4F1AE45FC4664BF46EA066CC819F98AC8E8BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

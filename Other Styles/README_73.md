@@ -1,3 +1,61 @@
+###  Публикация: 1021948   (731047) от 31.05.2016
+
+VA - Absolute Country (1995) [APE|Lossless|image + .cue] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carleene Carter - Every Little Thing
+02. Billy Ray Cyrus - Achy Breaky Heart
+03. Johnny Cash & Martin Delray - Get Rhythm
+04. Tom Kell - The Girl With The Single Rose(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CDFDF806C49E7AD3155324AAD6974575676B9C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284049   (731000) от 19.02.2019
+
+John Carpenter, Cody Carpenter and Daniel Davies - Halloween (Original 2018 Motion Picture Soundtrack) (2018) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Halloween Theme
+3. Laurie’s Theme
+4. Prison Montage(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4453334C33B5677D38C90E5A7A29B68293B2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127618   (730981) от 22.04.2017
 
 VA - Los clasicos argentinos - Tango - Vol.14 - Eladia Blazquez: La cuidad y su gente (1996) [MP3|192 Kbps] <Tango>
@@ -684,64 +742,6 @@ VA - Enigmatic (2006) [MP3|320 Kbps] <New Age, Enigmatic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C15F473D83042382FF9D720EC34E80FB2776332D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284488   (728655) от 21.02.2019
-
-VA - The Most beautiful musical hits the songs of Andrew Lloyd Webber (Unknown) Box Set, 3CD [MP3|320 Kbps] <Instrumental, Stage & Screen>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728655.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Amigos Papa Siempre - Barcelona Olympics
-02. Don’t cry for me Argentina -Evita
-03. Another suitcase in another hall - Evita(   Читать дальше...   )Жанр: Instrumental, Stage & ScreenПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB681101B5EFC53B7DFC1FCA7AA8264BFF50438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022626   (728585) от 02.06.2016
-
-Antoinette Ventura & The London Starlight Orchestra - Unforgettable (1992) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Needed Me (R. Goodrun) [00:03:58]
-02. Unforgettable (N.Cole/N.K. Cole/T. Gordon) [00:04:05]
-03. I Do It For You (B. Adams/R.G. Lange/M. Kamen) [00:04:08]
-04. La Colegiala (Leon) [00:03:31](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5D09B3176D9BA736FCA3808260B85DA3F5A476
 ```
 
 https://mybot314.ru/tekegram_catalog/

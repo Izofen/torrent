@@ -1,3 +1,206 @@
+###  Публикация: 1836401   (252509) от 10.11.2025
+
+Godark - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_252509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Godark - метал-группа из Португалии, основана в 2010 году.2015 - Reborn from Chaos (EP)
+2020 - Forward We March
+2025 - OmniscienceЖанр: Melodic Death MetalПродолжительность: 02:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BC01D822F5224C78231D80539A1E6A62E6D4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514465   (252145) от 20.05.2023
+
+Metallica - Дискография (20 releases) (1983-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Thrash Metal>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_252145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metallica — американская метал-группа, образованная в 1981 году, в Лос-Анджелесе.
+Вместе с такими группами как Slayer, Megadeth и Anthrax входит в «большую четвёрку трэш-метала».1983 - Kill 'Em All
+1984 - Ride the Lightning
+1986 - Master of Puppets
+1988 - ...And Justice for AllЖанр: Heavy/Thrash MetalПродолжительность: 39:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0864958871EF26E3FB7C6FD9ADC485A3A91DA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494949   (251202) от 11.05.2012
+
+Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Hung, Drawn And Quartered[04:35]
+ 02. - Stalingrad[05:59]
+ 03. - Hellfire[06:08]
+ 04. - Flash To Bang Time[04:07](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED416EC19D27D3AD0626D6BE3018BF611B0041C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834720   (250468) от 04.11.2025
+
+Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250468.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	The Boyd Brothers–	Keep It Coming	(7:19)
+A2	Charlene Davis–	Aggression	(4:29)
+A3	Nancy Dean–	Too Many Promises	(5:56)
+A4	Hippies With Haircuts–	Eye On You	(4:45)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4148D74064A3D81B0B8B068AF25B6AC3626040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617214   (250260) от 07.03.2023
+
+Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Insomnium — финская англоязычная группа из города Йоэнсуу, играющая музыку в стиле мелодик-дэт-метал. Основными темами песен являются скорбь, мистицизм, природа. Их стиль содержит в себе некоторые элементы doom metal. В творчестве группы также присутствуют элементы нордического фолка и симфонической музыки.2002 - In the Halls of Awaiting
+2004 - Since the Day it All Came Down
+2006 - Above the Weeping World
+2009 - Across The DarkЖанр: Melodic Death MetalПродолжительность: 09:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13F03859AF8AF05B4966658D8C66F58A9A09AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617966   (250117) от 09.03.2023
+
+Имант Ванзович, Мирдза Зивере и Группа «Опус'' - Високосный Год. Песни Зигмара Лиепиньша (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250117.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Пробуй
+A2 Високосный Год
+A3 Мы Почти Позабыли
+A4 Испорченный Телефон(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED446D73CD4F41073A14074723A479F208122761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586632   (250027) от 11.03.2023
+
+Группа Las Vegas - Imported From... (1998) Unofficial Release [FLAC 2.0|64/24|image+.cue|MC-Rip] <Glam Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexual Might
+02. Hard Golden Chains
+03. Crying In The Silence
+04. Bestseller Gun(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37238C52EC26C6504B49AAC973A5080490D774E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618707   (249886) от 13.03.2023
 
 Masterplan - Studio Albums (6 releases) (2003-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
@@ -538,207 +741,6 @@ A4 Streetfight(   Читать дальше...   )Жанр: Pop RockПродол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDDB6FEEFB2105AEBD52597198BD5C62A11236A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271662   (243948) от 03.08.2022
-
-The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music (Schubert, Tchaickovsky, Strauss, Verdi, Delibes, Rubenstein) (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1:
-01. Adolphe Adam - ''Giselle''
-02. Franz Schubert - ''Rosamunde''
-(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B27C7CCF2A0341908D3E180F3CA3D1F325508A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626412   (243825) от 14.04.2023
-
-Bucks Fizz - Writing On The Wall (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243825.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 New Beginning
-A2 You And Your Heart So Blue
-A3 Soul Motion
-A4 Magical(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E89FC969B8A8DF38CA19B97AD69536A4939BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626634   (243704) от 15.04.2023
-
-Barclay James Harvest - Gone To Earth (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243704.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Hymn - 5:05
-A2 - Love Is Like A Violin - 4:00
-A3 - Friend Of Mine - 3:33
-A4 - Poor Man's Moody Blues - 6:57(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E539E3075190C0CD52FB0717FAA74B039D6333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632846   (243695) от 12.05.2023
-
-Симф. Орк. Лен. Гос. Филармонии, дир. Е. Мравинский - Beethoven - Symphony No. 5 in C minor, Op. 67/Бетховен – 5-я Симфония До Минор, Соч. 67 (1961) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Class ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Л. Бетховен
-A1 1 Ч. – Allegro Con Brio
-A2 2 Ч. – Andante Con Moto
-B1 3 Ч. – Scherzo. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE52C4596224ADEFDA85FDA277877F012F97E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623202   (243651) от 01.04.2023
-
-Samantha Fox - Touch Me (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243651.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Touch Me (I Want Your Body) 3:44
-A2 I'm All You Need 4:25
-A3 Suzie, Don't Leave Me With Your Boyfriend 3:54
-A4 Wild Kinda Love 3:33(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542187   (243620) от 06.04.2022
-
-Lindemann (Rammstein, Pain) - Studio Albums (2015-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lindemann — метал-проект, образованный 4 января 2015 года Тиллем Линдеманном и Петером Тэгтгреном.2015 - Skills in Pills
-2019 - F & MЖанр: Industrial MetalПродолжительность: 01:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7060F8A74B2559AFB208A06482390AC0A41CCF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626764   (243585) от 15.04.2023
-
-Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243585.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Love You 3:14
-A2 Lost Again 4:18
-A3 No More Words 3:57
-A4 Crash Dance 2:09(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FCFBC7F78482EE24A0C54C7D666AD00A0A3D06
 ```
 
 https://mybot314.ru/tekegram_catalog/

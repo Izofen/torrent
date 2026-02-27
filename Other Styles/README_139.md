@@ -1,3 +1,61 @@
+###  Публикация: 1329023   (356306) от 03.10.2019
+
+Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoyt's Office (01:25)
+02. Defeated Clown (02:39)
+03. Following Sophie (01:33)
+04. Penny in the Hospital (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C64A48B5AF3B33E5D40C8881EA3D90F1E07DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178514   (356119) от 28.10.2017
+
+Davide Brullo - Life (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clary (3:43)
+ 02. Fallen Leaves (3:30)
+ 03. Sound of the Soul (3:34)
+ 04. The Four of Us (3:31)(   Читать дальше...   )Жанр: New Age, Piano Solo, Modern ClassicalПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEA5F61B7C90D11A26D107BBC2DCEBE28CEE5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329025   (355959) от 03.10.2019
 
 Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -697,64 +755,6 @@ Mehdi - Christmas Treasures (2001) [FLAC|Lossless|tracks + .cue] <New age, Instr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CECD8987D4D4C8B34BA0310D539E7E0CE74DD5BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952194   (352767) от 02.11.2015
-
-Thomas Newman - Spectre (Original Motion Picture Soundtrack) (2015) [FLAC|tracks+.cue]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Muertos Vivos Estan - featuring Tambuco Percussion Ensemble [02:48]
-02. Vauxhall Bridge [02:19]
-03. The Eternal City [04:34]
-04. Donna Lucia [02:02](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961526667E66C90180AAA44D7DEA4BB225EF70B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072134   (352482) от 13.11.2016
-
-Curtis Macdonald - Breeze (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expedition [00:04:12]
-02. Breeze [00:04:09]
-03. The Sun and Your Smile [00:04:02]
-04. Shadows on the Shore [00:05:30](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFFC65AA537B7E83B1472D5C8D04AAB166DFF8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1699740   (117711) от 14.02.2024
+
+Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) [FLAC|Lossless|WEB-DL|tracks] <Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up, Stand Up (3:18)
+02. Roots, Rock, Reggae (3:37)
+03. I Shot The Sheriff (4:42)
+04. No More Trouble (3:58)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF015636699C691C9258C717D5B7AF4321180F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823116   (117637) от 10.10.2025
 
 Заточка - Опять за старое (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Country>
@@ -716,35 +745,6 @@ VA - Девчонки R'n'B (2007) [WavPack|Lossless|image + .cue] <Pop Rap, RnB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A63034CD6CE54CDC7761860F9CC33763C6C39B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761232   (103096) от 18.11.2024
-
-Denzel Curry - KING OF THE MISCHIEVOUS SOUTH (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Rap, Underground Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KOTMS II INTRO (0:32)
-02. ULTRA SHXT (3:17)
-03. SET IT (2:40)
-04. HOT ONE (2:45)(   Читать дальше...   )Жанр: Hip-Hop, Rap, Underground Hip-HopПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21E99675CE49ED6548707B2BDA26FF43E860EA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

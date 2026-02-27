@@ -1,3 +1,67 @@
+###  Публикация: 367016   (536909) от 23.07.2011
+
+VA - The World Of The Spanish Guitar Vol. 1 /2CD/ (2011) [MP3|320 kbps]<Instrumental, Flamenco, Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 201101. Ottmar Liebert . . . . . . . .  The Night . . . . . . . . . .  4:21
+02. Govi . . . . . . . . . . . . .  Mosaico . . . . . . . . . . .  5:26
+03. Oscar Lopez. . . . . . . . . .  Bailando Rumba. . . . . . . .  4:13
+04. Vicente Amigo. . . . . . . . .  Pan Caliente. . . . . . . . .  5:42
+05. Tomatito . . . . . . . . . . .  Paseo los Castanos. . . . . .  4:53
+06. Jesse Cook . . . . . . . . . .  Breeze from Saintes Maries. .  5:23
+07. Armik. . . . . . . . . . . . .  Moonlight Cafe. . . . . . . .  4:46
+08. Robert Michaels. . . . . . . .  Cupid's Dance . . . . . . . .  4:57
+09. NovaMenco. . . . . . . . . . .  Lorca . . . . . . . . . . . .  3:13
+10. Pavlo. . . . . . . . . . . . .  Midnight Dance. . . . . . . .  3:24(   Читать дальше...   )Жанр: Instrumental, Flamenco, GuitarПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0DBE3B81CA95A93A18EC23923D86BC70EEA1C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239400   (536844) от 06.08.2018
+
+Mythos - Eros (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kawakari (4:29)
+2. Eros (4:48)
+3. Catana (4:16)
+4. Allure (4:34)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:21:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108088BCEA081F282B1C486AFD788446A3E47F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311625   (536387) от 02.07.2019
 
 Atom Music Audio - Transcendence (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -704,64 +768,6 @@ Paul Leonard-Morgan - Last Breath (Original Motion Picture Soundtrack) (2019) [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C618AFFE580D137F6FD3ED83C53E55283DE9B5E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312180   (530825) от 05.07.2019
-
-Bear McCreary - Child's Play / Детские игры (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Track 1 (02:15)
-02. Theme from Child's Play (04:25)
-03. Birth of Chucky (02:41)
-04. Karen and Andy (02:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66442FE165D161662163CBFA8FFCB3FD8DBE7E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312331   (530821) от 05.07.2019
-
-Joseph Bishara - Annabelle Comes Home / Проклятие Аннабель 3 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doll Opening (00:49)
-02. cemetery pulls (01:16)
-03. it's the Doll (02:23)
-04. Doll container (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A478A203E43DC9F5DB3D0FA3F1D5D6D0863DD09
 ```
 
 https://mybot314.ru/tekegram_catalog/

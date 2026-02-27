@@ -1,366 +1,3 @@
-###  Публикация: 497595   (253644) от 17.05.2012
-
-Unusual Cosmic Process - Mental Atmosphere (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Mental Atmosphere (10:31)
-2. Paranoic Minds (9:53)
-3. Unexplaned Process (10:54)
-4. Mystical Forms Of Life (10:35)
-5. The Message (10:53)
-6. So Far From Earth (12:14)
-7. Pulsating Galaxies (10:17)
-8. Sleepwalker (10:46)
-9. Immersion (9:05)Жанр: Psychedelic / ProgressiveПродолжительность: 01:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFCC7085431AD5B8580621A905C31F35CD20A3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497525   (253643) от 17.05.2012
-
-Газета / The Paper (1994) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Двадцать четыре часа из жизни сотрудников нью - йоркской газеты `Нью-Йорк Сан`. Редактор Хенри Хэкет должен за несколько часов собрать точные сведения об убийстве и остановить главного редактора Элисию Кларк, собирающуюся напечатать на первой полосе сенсационную статью, которая обвинила бы в этом злодеянии двух невиновных молодых ребят.Жанр: Комедия, ДрамаРежиссер: Рон ХовардАктеры: Майкл Китон /Michael Keaton/, Гленн Клоуз /Glenn Close/, Мариса Томей /Marisa Tomei/, Рэнди Куэйд /Randy Quaid/, Роберт Дюволл /Robert Duvall/, Джейсон Робардс-Младший /Jason Robards, Jr./...Перевод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D3CA3914175FF7D0665EE32F8D1DA8DD94003D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497177   (253640) от 17.05.2012
-
-VA - Club Express Jungle '99 (1999) [MP3|~257 кб/с (V1)]<Jungle, D'n'B>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-VA - Club Express Jungle '99 (1999)Год: 1999  |  Лейбл: Storm Records  |  Страна:   |  Жанр: Jungle, D'n'B |  Формат: CD, Compilation
-Продолжительность: 01:11:52  |  Кодек: MP3  |  Битрейт: ~257 кб/с (V1)  |  Тип битрейта: VBR
-Описание:
-Джангл компиляция от неофицального российского лейбла Storm Records.Треклист:
-01. The Pressure Crew - Ready On The Left /5:44/
-02. Swoosh - Ya Rockin /7:06/
-03. Dope Skillz - 6 Million Ways /7:19/(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEB3BCCB8C7E02CA8B757A9A1A30C2EA17C05D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497444   (253639) от 17.05.2012
-
-Maduk, Perky & Ashman - Take You There / Good Lovin (Liquicity Records LIQ005, 2012) [MP3|320 кб/с]<Drum'n'Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Maduk - Take You There
-02. Perky & Ashman - Good Lovin (feat Anita Kelsey - Maduk remix)Жанр: Drum'n'BassПродолжительность: 00:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132A8501B8A673A161C27EE31E89836AA4F38397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497823   (253633) от 17.05.2012
-
-Журнал | Твое здоровье №6 [июнь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-«Твое здоровье» - это актуальные советы и рекомендации специалистов по здоровому образу жизни, воспитанию детей, косметологии, правильному питанию, а также реальные истории исцеления людей, диеты, кулинарные рецепты, упражнения для поддержания идеальной формы, конкурсы и подарки. С незапамятных времен мечтают люди о возможности сохранения молодости. Что остается человеку, когда проходит молодость? Стареть и умирать? Нет, продление жизни занимает ныне умы ученых, а продолжительность жизни человека в современных условиях становится важнейшей заботой общества. Удели себе внимание!июнь 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA8E0E0EBF1236CF3F04AB697EADEF5C6F5247D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497657   (253632) от 17.05.2012
-
-[Wallpapers] Desktop wallpapers (16.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091A845FDBAE96489C8A44BFEB489BC8DE491151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497914   (253631) от 17.05.2012
-
-VA - TMP: Trance Harmony 065 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, Dream Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Extended Mix)
-02. Sied van Riel - Audio 52 (Original Mix)
-03. Sean Tyas feat. David Berkeley - Believe (Original Mix)
-04. Soulforge - Ferris Wheel (Original Mix)
-05. Three Drives - Letting You Go (Greece 2000) (Dabruck & Klein Vocal Remix)
-06. Simon O'Shine - Miss You (Jaden Merrick Remix)
-07. Snoww & Dj T.H. feat. Di - On & On (Original Mix)
-08. Sophie Sugar - Skyline (DNS Project Remix)
-09. Paul Oakenfold feat. Tamra - Sleep (Robert Vadney Perfecto Mix)
-10. Shooting Star - This One (Original Mix)2012Жанр: Trance, Uplifting Trance, Dream TranceПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0059AB015B5FEC6432439D24B8C71E05DB8CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497518   (253628) от 17.05.2012
-
-Paul Oakenfold - Planet Perfecto 080 (15.05.2012) [MP3|256 кб/с]<Trance, Progressive, Beat>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenneth Thomas feat. Coleen Riley - The Heart Speaks (Eximinds Remix)
-02. Christopher Damas - In Love Ibiza 2012 (Original Mix)
-03. Soul Assistant - Egregor (Indigo-s Remix)
- 04. Patrick Hagenaar – Undutchable
-05. Rinat Shabanov - Think Over What You Are (Original Mix)
-06. Richard Beynon - Keep Me Alive (Original_Mix)
-07. Moonbeam feat. Fisher - I Love Your Face (Sol Noir Remix)
-08. Michael S. - Rewind (Matt Samuels Vocal Rmx)
-09. Dave 202 - Force (Original Mix)
-10. Nicky Romero - Se7en (Original Mix)(   Читать дальше...   )14.05.2012Жанр: Trance, Progressive, BeatПродолжительность: 01:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC1DB0E7128D8232E2644B4B0B04D58A08BD78F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497911   (253627) от 17.05.2012
-
-[Wallpapers] Mixed Wallpapers (18.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B0756DC00C6281C7D101B9B940E5CE32908D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497549   (253626) от 17.05.2012
-
-VA - The Raindance (2012) [MP3|~254 кб/с (V0)]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Deeplomatic - Nine Pieces Of Eight 06:54
- 02. Solarix - Bass Drive 08:57
- 03. Vertex - Neverending Story 06:51
- 04. Lyctum & Nerso - Stealth 08:00
- 05. Sideform - Sunrise 09:15
- 06. Odd Sequence - Aural Sequence 07:45
- 07. Indian Alien - Take A Trip 09:56
- 08. A.P.S. Project - Un Real 08:01
- 09. Indian Alien - Psychedelic Drugs 08:57Жанр: Psychedelic / ProgressiveПродолжительность: 01:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6C342061A38F344B9CE744059413735E049AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497154   (253625) от 17.05.2012
-
-Mediks - Outbreak EP (Audioporn APORN021, 2012) [MP3|320 кб/с]<Drum'n'Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Outbreak
-02. Nightmare
-03. Blown Away
-04. DoomsdayЖанр: Drum'n'BassПродолжительность: 00:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F330E1C97B989290E2BF57864439AE1A050B09F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497777   (253624) от 17.05.2012
-
-VA - Vocal Trance Volume 31 (16.05.2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-VA - Vocal Trance Volume 31 (16.05.2012)
-
-Год: 16.05.2012
-Жанр: Vocal Trance
-Продолжительность: 03:03:11Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
- 01. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) [07:39](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC939685CF733F6C24A55C6D94DD8D226DA6BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497088   (253622) от 17.05.2012
 
 Четыре гряды Альп / The four Alps (2007) SATRip
@@ -749,6 +386,372 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B347116337C28D19B8EEFC036F546AA2E06B6541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497645   (253604) от 17.05.2012
+
+Рассказы о волосах / Hairtales (2008) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы и наши волосы - тема представленной документальной ленты австралийского ТВ.Жанр: ДокументальныйРежиссер: Скотт Отто Андерсон, Кэт МурПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D646C73EE3D0063961167E53013EE5BB1DA85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497614   (253603) от 17.05.2012
+
+[Wallpapers] Ferrari
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253603.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Ferrari
+Название: Ferrari
+Официальный сайт: www.netcarshow.com
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200
+Расширение (тип) файлов: jpgВремя раздачи: 19:00 до 07:00 (до первых скачавших, перебои со связью бывают,зависит от провайдера)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698442B3A9D3CCE104502C4615FFF4A52AD7119F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498058   (253602) от 17.05.2012
+
+VA - TMP: Trance Harmony 067  (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, Dream Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Pedro Del Mar & illitheas - Bahia Del Sol (Pedro Del Mar Mix)
+02. Andrew Rayel - Believe (Original Mix)
+03. Vada - Fire In The Sky (Stoneface & Terminal Remix)
+04. Rene Ablaze feat. Synthesia - Inner Touch (Verum Remix)
+05. Chakra - Love Shines Through (Original Mix)
+06. Polonski - Marathon (Original Mix)
+07. ReLocate vs. Robert Nickson - Resource
+08. Within Temptation - Sinead (Myon & Shane 54 Triplet Monster Mix)
+09. Signum - What Ya Got 4 Me (Lee Haslam Remix)
+10. Pulstate - Wicked (Original Mix)2012Жанр: Trance, Uplifting Trance, Dream TranceПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F1780150EA76EC02DEE716D5B9F89D4FF65A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497891   (253601) от 17.05.2012
+
+VA - Русские Новинки Vol.53 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Stoxx - Something To Remember (Bastian Van Shield Remix)
+02. Jakub Rene Kosik - Spica (Original Mix)
+03. Estiva & Tania Zygar - Death Of Me (Original Mix)
+04. Evave feat. Aelyn - Hand To Hand (Sensitive5 Remix)
+05. Jaytech - Overdrive (Jaytech's 2012 Remix)
+06. Andain - Much Too Much (Mike Shiver Remix)
+07. Matan Caspi - Surprise Me feat Mykle Anthony (Original Mix)
+08. Digitize feat. Laura - Breathe In (Progressive Remix)
+09. Daniel Wanrooy feat. Hannah Ray - Your Life
+10. Max Vertigo feat. SevenEver - Tech Love (Original Mix)2012Жанр: PopПродолжительность: 04:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB6E00577E195021A459FB388F4E6CF80185E73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498015   (253600) от 17.05.2012
+
+[Wallpapers] Creative Desktop Wallpapers Pack 7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253600.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Creative Desktop Wallpapers Pack 7
+Название: Creative Desktop Wallpapers Pack 7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B039DEEBB81212B14AC7CEF903F387BD7C04794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497200   (253599) от 17.05.2012
+
+Drapsnatt - Hymner Till Undergangen (2010) [MP3|320 кб/с]<Folk/Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253599.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. En Ensam Sol Gar Ner
+2. Arvssynd
+3. Drapsnatt
+4. Mannen I Min Spegel
+5. Somna In
+6. Ve Er
+7. Tonerna De Klinga
+8. En Besvuren Plats
+9. Gasten2010Жанр: Folk/Black MetalПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF69DE7EE040D8469817161F55CA9C70A3A0F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495987   (253597) от 17.05.2012
+
+Venetian power - The arid land (1971) [MP3|224 кб/с]<Progressive Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 – Quando Dio invento il mondo (4:11)
+02 – April (5:24)
+03 – Dying waters of life (3:55)
+04 – Arid land (2:10)
+05 – Cosi il mondo finisce (4:32)
+06 – I am burning (4:26)
+07 – Il sacrificio dell’acqua (3:35)
+08 – Invocazione, morte e resurrezione (7:30)
+
+"В это музыкальное образование входило целых 15 человек (преимущественно вокалистов, которых было аж 7 человек). Мрачноватая и спокойная музыка с преобладанием акустических инструментов. Трека с 3-го подключается соло гитара и орган. Очевидно, что это пример театрального рока из Италии. Скорее труппа, а не группа. Не сказал бы, что это прогрессив; более как-то смахивает на рок-оперу или саундтрек с общей темой и разворотом событий. Тем не менее, музыка довольно занимательна. Вокал - женский и мужской, на итальянском и английском. Фоно, струнные, флейта, колокольчики и перкуссия - музыкальный базис команды + достаточно обильные (часто и хоровые) песнопения. На CD пока не издавалась, а указанная пластинка у группы единственная." (с)1971Жанр: Progressive RockПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D623AFA2772A83C3A5378E9173E98A58E2DD8026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497236   (253596) от 17.05.2012
+
+VA - TMP: Clear Sky 071 (03.05.2012) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Dave Horne - 11 Hours (Original Mix)
+002. EDU - Domo (Original Mix)
+003. Dayzanst - Double Bind (Light On Remix)
+004. Dart Rayne - Everlasting (Original Mix)
+005. Devilect & John Dubs - Flaming Hearts (Original Mix)
+006. Dyor feat. Matthew Hall - On The Road (Original Mix)
+007. Daniel Rostron - Our Way Home (Tensile Force Remix)
+008. Erick Strong - Payback (Original Mix)
+009. Darkployers - Roll Your Own
+010. Dimension - Vulcano (Running Man Remix)03.05.2012Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264A47F5D0BC80160EEB1E0BFB7C51CABFBEB64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498001   (253595) от 17.05.2012
+
+Журнал | Твой доктор № 16 [апрель 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+«ТВОЙ ДОКТОР» - издание, которое просто, ярко и доступно пишет о самых сложных проблемах здорового образа жизни. Изюминка издания в удачном сочетании достаточно простых рецептов народных целителей и научно-популярных публикаций (рекомендаций известных врачей-практиков по каждому конкретному заболеванию) о новейших подходах к диагностике, профилактике и лечению. Журнал помогает читателям выбирать оптимальный и не дорогой способ избавления от недуга, учит азам профилактики различных заболеваний, навыкам самодиагностики, знакомит с лечебными свойствами множества растений, окружающих нас.
+Тема номера: Шафран: пряность и лекарство.апрель 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF4EC575726BB7E52B0F85EC5D1C37D19402E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497654   (253594) от 17.05.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (16.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BC2408BE8F4482DD76995F57296DCE809F23CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497116   (253593) от 17.05.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 32
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B1954574E0073B0F592DF1A5699FB0CFBC6414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497906   (253592) от 17.05.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (17.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_253592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4992x3328
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383B19CCBC561F74E0F5C567E0F7C710054D6C26
 ```
 
 https://mybot314.ru/tekegram_catalog/

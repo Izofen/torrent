@@ -1,3 +1,32 @@
+###  Публикация: 1372334   (885431) от 03.04.2020
+
+A$AP Twelvyy - Before Noon (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Poet [00:51]
+02. Catch Up [02:16]
+03. Daytona [03:13]
+04. Kratez [03:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D9361E1E54416D7D08878579362ECD27B3409A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372346   (885362) от 03.04.2020
 
 Dropout Kings - GlitchGang (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
@@ -732,35 +761,6 @@ Eminem - Things Get Worse (2011) [MP3|192 kbps]<Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D14BDA914F10D918FC61FE7C232500EEB25E461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374530   (872330) от 10.04.2020
-
-Jonny Craig - Find Your Home (2020) [MP3|320 Kbps] <R&B, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block out the Noise [03:20]
-02. D.R.E.A.M. [03:23]
-03. Forelsket (Euphoria) [03:04]
-04. Turning the Page [03:33](   Читать дальше...   )Жанр: R&B, Hip-HopПродолжительность: 00:16:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24EE8C5C10DF8637847FE95490B6012CABC08CC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

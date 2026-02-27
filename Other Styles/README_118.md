@@ -1,3 +1,64 @@
+###  Публикация: 541946   (499121) от 02.09.2012
+
+David Hicken - 3 albums (2007-2008) [MP3|192, 320 кб/с]<New age, Instrumental, Relax, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499121.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:07) 01. Faylinn
+(4:08) 02. Rhoslyn
+(4:31) 03. Titania
+(3:47) 04. Oberon
+(4:29) 05. Ellette
+(4:28) 06. Rusalka
+(3:49) 07. Donella
+(4:06) 08. Alberich
+(3:40) 09. Arethusa
+(3:43) 10. Lorelle(   Читать дальше...   )Жанр: New age, Instrumental, Relax, PianoПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629E9B7E0AC6830E04553DB96DEDAC9D0B265B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138501   (498763) от 04.09.2009
+
+Iasos - 9 albums (1975-2001) [MP3|256-320 кб/с]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New ageПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935765   (498441) от 09.09.2015
 
 Divine Matrix - Atmospheric Variations (2012) [MP3|320 кб/с]<Electronic, Ambient, New Age>
@@ -744,64 +805,6 @@ VA - Usher Audio Demonstation CD (2004-2010) 5CD[FLAC|Lossless]<High-End Audioph
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055033   (490338) от 21.09.2016
-
-Greg Joy - Light of Day (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey to Camelot [00:04:06]
-02. Doreen's Tune [00:04:10]
-03. Lost Time [00:04:03]
-04. Hummingbird [00:04:14](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D26DA5569D51F18591DEA3DEBF4A269114725EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937411   (490180) от 14.09.2015
-
-Neil Harvey - Beautiful Day (2010) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antigua
-02. Darkness Falls
-03. Dreamscape
-04. Renaissance(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56A55A26789CF15936A12849D23CB4877DEF318
 ```
 
 https://mybot314.ru/tekegram_catalog/

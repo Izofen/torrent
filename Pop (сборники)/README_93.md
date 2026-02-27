@@ -1,3 +1,148 @@
+###  Публикация: 1070809   (364564) от 08.11.2016
+
+Музыкальная Коллекция - Леха (Лена Савельева) (2016) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вечер последний (04:11)
+02. И будет падать снег (04:40)
+03. И снова снег (04:25)
+04. Пусть грусть (05:23)(   Читать дальше...   )Жанр: PopПродолжительность: 03:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B189B62412C02C6C7874425EBCA3B8D0DF9B63B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070777   (364557) от 08.11.2016
+
+VA - Осенний хит-отрыв. Русский выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364557.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.30.02 - Я Верю 3:11
+002.Aisha - Сильно Сильно 3:36
+003.Alas Lito Feat. Vingilevskiy - Белица 3:37
+004.Alena Pak - Пусть Сбываются Мечты 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC53A48087F84D3F1CB79F50D606267266705B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070773   (364480) от 08.11.2016
+
+VA - Музыкальные новинки mp3 50/50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364480.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Вирус - По Зимнему Снегу 3:21
+002.Direct & Mr Fijiwiji - Trust In Me 4:31
+003.Мария Стекина - Голос Шумных Улиц 4:46
+004.Слава Благов - Она Как Солнце 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DCEAAEFDA4FEFDFBDFDF1DDC9C9FBF835AAC437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070812   (364475) от 08.11.2016
+
+Музыкальная Коллекция - Группа Кристалл (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сказочный герой (03:58)
+02. Прости, прощай (Версия 2016) (04:15)
+03. Не прощай (05:01)
+04. Ты только мой (03:34)(   Читать дальше...   )Жанр: PopПродолжительность: 04:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3CE99B038AB2684E6CFE098FA7DCA591C61B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070815   (364415) от 08.11.2016
+
+Музыкальная Коллекция - Лада Дэнс (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Один лишь раз (03:43)
+02. Сотри кассету (04:34)
+03. Девочка-ночь (04:45)
+04. Вкус любви (03:58)(   Читать дальше...   )Жанр: PopПродолжительность: 04:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273A5821E4D669E445E478E35BDDA1EC559C037B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576309   (364340) от 17.11.2012
 
 VA - Осенняя Музыкальная сенсация (2012) [MP3|128 кб/с]<Pop>
@@ -675,169 +820,6 @@ VA - Союз Хитовый - 5 (2012) [MP3|128 кб/с]<Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A381CD61F05A61C1E652BDA5590471F7CC45F613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070831   (361316) от 09.11.2016
-
-VA - Хит-парады Топы Чарты FM-станций Октябрь (2016) [MP3|96-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Love Radio
-01.Burak Yeter feat. Danelle Sandoval - Tuesday  3:33
-02.Calvin Harris - My Way  3:39
-03.Carlas Dreams - Sub pielea mea   3:26(   Читать дальше...   )Жанр: PopПродолжительность: 10:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8354E58CCE20672101993D079C25370E475D8F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577116   (361174) от 18.11.2012
-
-VA - Новейшие Зарубежные Треки (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361174.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elena Gheorghe - Amar Tu Vida (Radio Edit)
-002. Brockmann & Basti M Feat. Aleksey - 20 Russian Models (The Disco Boys Radio Edit)
-003. Los Americanos - Red Light Angel (Video Edit)
-004. Roma Pafos feat. Sarkis Edwards - Say Goodbye (Radio Edit)
-005. Nadya Vozduh & Jambazi - Desire
-006. Justin Bieber feat. Ludacris - All Around The World
-007. Lavinia - Honey Boy (Radio Edit)
-008. Sebastian Ingrosso & Alesso - Calling
-009. Bananarama - Every Shade Of Blue
-010. Captain Hollywood Project - Impossible(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2ADC51BED7841FDE53E5E4F021E75B32B0E039C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574381   (360991) от 18.11.2012
-
-VA - 100% Русское радио: Все будет хорошо! 16 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Balan - Люби
-02. Афродита - Виновата
-03. Руслан Алехно - Не Забыть
-04. Блестящие - Зеленые Глаза01 Dan Balan - Люби
-02. Афродита - Виновата
-03. Руслан Алехно - Не Забыть
-04. Блестящие - Зеленые Глаза
-05. Балаган Лимитед - Свадьба
-06. АЖУР - Прости.
-07. Стас Шуринс - Небо-Кровь(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95ABAC59BA4FE56F71542C282D45DDC542772694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951838   (360153) от 30.10.2015
-
-VA - Новогодний Супер Сборник (2004) [MP3|256 кб/с]<Pop, Dance, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360153.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Scooter - One (always hardcore) (03:43)
-002 Ангина - Болела (03:03)
-003 The usual suspects - Share lovers (03:49)
-004 Руки вверх - Расстались (04:06)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 06:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449B17571848B8B3F68B94B93461CCBCCB012705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577098   (360080) от 18.11.2012
-
-VA - Disco 80х: Зарубежный Выпуск В Современной Обработке (2012) [MP3|224 кб/с]<Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Cavarra S Pizza Expres - Amada Mia Amore Mio
-02. Sabrina - Angel Boy (Extended Mix)
-03. F.R.David - Words (Remix)
-04. Killa Deejays - Freed From Desire
-05. Gazebo - Tears For Galileo (Dancefloor Radio)
-06. Disco Queen - Let's All Chant
-07. Mosaik - Believe (Cher)
-08. P. Ryan - You're Me Love
-09. People Of K. Feat. Crystal - Last Train To Trancentral (Klass 66 Radio Edit)
-10. E-Rotic - D.I.S.C.O. (Lust For Life)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 07:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84618B50CAC4922C7B528D24FF99D7DCF423899A
 ```
 
 https://mybot314.ru/tekegram_catalog/

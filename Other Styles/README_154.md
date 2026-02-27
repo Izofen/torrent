@@ -1,3 +1,61 @@
+###  Публикация: 1336302   (280668) от 06.11.2019
+
+Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music from the HBO Series) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HOW THE WEST WAS REALLY WON (03:45)
+02. ORPHANS OF KRYPTON (01:57)
+03. GARRYOWEN (01:18)
+04. NUN WITH A MOTHERF*&*ING GUN (03:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA9D19C1A49CB5523FCE180766BF186B944953E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187487   (280601) от 28.11.2017
+
+Maryada Ram - Eternal Tibet (2017) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Invocation (4:06)
+02.  Mindful Chant (3:51)
+03.  Healing Tibet Bowls (3:20)
+04.  Offering (3:21)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4636FF080523E5117B6BF11C01E2CED769CC59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187382   (280435) от 28.11.2017
 
 Gregorian - Holy Chants (2017) [MP3|320 Kbps] <New Age>
@@ -677,64 +735,6 @@ Gipsy Kings - 16 альбомов (1982-2006) [MP3|320 кб/с]<Rumba - Flamenco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E8E111045CA3ABB411E79F581A52CBDC5AF82A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336782   (277528) от 08.11.2019
-
-Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freaks (02:08)
-02. I'm Eleanor Reed (02:40)
-03. Time Bubble (01:34)
-04. She Looks Like an Angel (01:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0DEAE5A4E6F8E1BC723DB5F1C54BA93788BAEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336783   (277526) от 08.11.2019
-
-Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freaks (02:08)
-02. I'm Eleanor Reed (02:40)
-03. Time Bubble (01:34)
-04. She Looks Like an Angel (01:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45824C50A00A5DC1E9A30187576167C658BF026C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1617225   (1034538) от 09.03.2023
+
+VA - Enigma-Forest-Transit 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. eRa - Sempire d'Amor
+02. Delerium - Silence
+03. Beautiful World - Fearless
+04. Pandana - One Man Woman(   Читать дальше...   )Жанр: Electronic, New Age, DowntempoПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403B15D5D350F670374AC0CD136D50126E6B652F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616943   (1034536) от 09.03.2023
+
+VA - Enigma-Forest-Transit 3 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Physical Motion - Ave Maria
+02. Gregoria - The Rhythm
+03. Karunesh - Call of the Tribes
+04. Beautiful World - The Silk Road(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996CDC8270F2E41DB4B988B74ECA92C64E451783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618145   (1034352) от 10.03.2023
 
 Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Minstral Hall Music [MP3|320 Kbps] <Folk, Medieval>
@@ -685,64 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4ABBE4CD0A8CBE7AA946D345E2223AB9E9FE9F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199315   (1030581) от 18.02.2021
-
-VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image + .cue] <Neo Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quinteto Real - Canaro en Paris (2:51)
-02. Daniel Melingo - Noche Trasfigurada (1:32)
-03. Gallo Ramiro Quinteto - Al amigo Pablo Rago (4:22)
-04. Carlos Gardel - Anclao En Paris (2:08)(   Читать дальше...   )Жанр: Neo TangoПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7EED3996B8319A87BE11BB10C7D883FDEFE7C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375546   (1030579) от 18.02.2021
-
-VA - Erotica (1977) [FLAC|Lossless] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фонтан эмоций и чувств на фоне прекрасной музыки. Эта подборка выходила под разными названиями, встречаются как минимум три - Les Vibrations, Erotheque, или просто - Erotica. Кстати, в те далекие года, в нашем народе этот сборник называли никак иначе как ...секс музыка.01. Nathalie Et Serge - Je T' Aime...Moi Non Plus 	(05:30)
-02. Nathalie Et Christine Avec Les Vibrations - Kiss 	(05:12)
-03. Les Vibrations - Emmanuelle 			(03:41)
-04. Andrea E Nicole - Sa Prima Volta 			(03:57)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48589D2A95E0BE1E37403FDD19B7A034BFD5261
 ```
 
 https://mybot314.ru/tekegram_catalog/

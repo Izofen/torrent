@@ -1,25 +1,25 @@
-###  Публикация: 1526236   (738825) от 23.01.2022
+###  Публикация: 1533451   (699554) от 27.02.2022
 
-VA - Hamburg Orange (Urban Music for Urban People) (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Best of Electro Swing Elite Compilation (2017) [AAC|~318 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738825.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699554.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Philip Aniskin, Alexsandra Mell - Too Close to You (4:54)
-02. Velvet Dreamer, Tim Gelo - Eternal Beauty (5:08)
-03. LastEDEN - Hot City Walk (3:18)
-04. Miss Luna, Neshia - Smile (Florito Mix) (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:27:56
+01. Phos Toni - Dirty Skirt (5:44)
+02. Wolfgang Lohr, Alice Francis - Still Can Kiss... (5:33)
+03. Jamie Berry - The Performer (4:47)
+04. Sound Nomaden, MSP - Swing It (5:57)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 02:06:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20297BFD690959D26B73889599071B6009FE893C
+magnet:?xt=urn:btih:A41CEC464EE029BBD516CA59AF9F8704BA84CE80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526068   (738823) от 23.01.2022
+###  Публикация: 1533844   (699547) от 27.02.2022
 
-VA - Beautiful Vocal Trance, ch. 3 (2019) [AAC|~332 Kbps] <Trance>
+Лесоповал - Видео-салон (2021) [AAC|~369 Kbps] <Chanson, Folk>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738823.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aurosonic, Neev Kennedy, Bote - What Else Is There To Love (3:31)
-02. Costa, Cathy Burton - Always (3:38)
-03. Beat Service, Ana Criado - So Much Of Me Is You (Radio Edit) (3:33)
-04. 4 Strings, Susanne Teutenberg - A Brand New Day (2:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:42
+01. Видеосалон (2:41)
+02. Мишаня (3:33)
+03. Тупики (2:37)
+04. Письмо матери (4:40)(   Читать дальше...   )Жанр: Chanson, FolkПродолжительность: 00:57:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50DE6CD05DE0DCE0293E3059872D1B723D929755
+magnet:?xt=urn:btih:A3924DF36C02FEAA27DA350290618218C812B9C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526069   (738821) от 23.01.2022
+###  Публикация: 1533845   (699542) от 27.02.2022
 
-VA - Beautiful Vocal Trance, ch. 4 (2019) [AAC|~338 Kbps] <Trance>
+Лесоповал - Стoлыпинский вагон (2021) [AAC|~366 Kbps] <Chanson, Folk>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738821.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aurosonic, Cathy Burton, AxelPolo - Loving Overflow (Radio Edit) (3:37)
-02. Costa, Sarah Lynn - The Water's Edge (3:51)
-03. 4 Strings, Maria Nayler - Remember You As Mine (3:21)
-04. Tenishia, Ana Criado - Ever True (Radio Edit) (4:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:06
+01. Воруй, Россия! (3:14)
+02. Кликуха (4:12)
+03. Птичий рынок (5:12)
+04. Три татуировочки (2:46)(   Читать дальше...   )Жанр: Chanson, FolkПродолжительность: 00:47:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E4B361C950FC70A6C4D59DB859CEA6C824F0783
+magnet:?xt=urn:btih:A4DCD219108F130E09CB70651338CC67E24A0ECB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526083   (738820) от 23.01.2022
+###  Публикация: 1533849   (699541) от 27.02.2022
 
-VA - Summer in Electro & Swing Jazz (Light Music Selection) (2018) [AAC|~317 Kbps] <Jazz>
+Лесоповал - Дорога домой (2022) [AAC|~341 Kbps] <Chanson, Folk>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738820.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. JazzInCase - Bon bon (4:51)
-02. Ely Bruna - Dolce Vita (2:55)
-03. Bomba Titinka - Treno a bebop (2:52)
-04. Just Bubbles - Rising for the Moon (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:49
+01. Дорога домой (3:41)
+02. Если дома любимая ждет (2:49)
+03. Не хлопать дверью (4:22)
+04. Собака тузик (3:02)(   Читать дальше...   )Жанр: Chanson, FolkПродолжительность: 00:38:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E54DD9158EF5AECC57128ABBDC44797B42D81D8
+magnet:?xt=urn:btih:4942094B00F5C9DC1219C3FD459C5B25BD4E8E96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526076   (738818) от 23.01.2022
+###  Публикация: 1287943   (699378) от 09.03.2019
 
-VA - Beautiful Vocal Trance, Progressive (2020) [AAC|~336 Kbps] <Trance>
+Фаворитка / The Favourite (2018) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738818.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699378.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aurosonic, Kate Louise Smith - From Dust To Ground (3:28)
-02. Costa, Ana Criado - The Secret Garden (3:30)
-03. Frainbreeze, Claudiu Adam, Yentl - Trust The Water To Settle (3:33)
-04. Aurosonic, Ellie Lawson - Becoming (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:23
+Начало XVIII века. Идет война Англии с Францией. Тем не менее, жизнь в королевстве продолжается. Трон занимает болезненная королева Анна, и страной фактически руководит её близкая подруга леди Сара Мальборо. Когда во дворце появляется девушка Эбигейл, родственница леди Сары, та сначала определяет её работать на кухне. Но вскоре новенькая удачно находит лекарство (   Читать дальше...   )Производство: Ирландия, Великобритания, СШАЖанр: Драма, комедия, биография, историяРежиссер: Йоргос ЛантимосАктеры: Оливия Колман, Рэйчел Вайс, Эмма Стоун, Джо Элвин, Николас Холт, Эмма Делвс, Фэй Дейвней, Пол Суэйн, Дженнифер Уайт, Лилироуз СтивенсПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  Английские,  УкраинскиеПродолжительность: 01:59:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1C8DCB84376F83233FA5A2AC65202F42E2AAF2D
+magnet:?xt=urn:btih:34B8716446292362A081EBE6EC5CFBF1616D065C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +140,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526065   (738817) от 23.01.2022
+###  Публикация: 1287938   (699366) от 09.03.2019
 
-VA - Beautiful Vocal Trance, ch. 2 (2018) [AAC|~340 Kbps] <Trance>
+Фаворитка / The Favourite (2018) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738817.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beat Service, Ana Criado - An Autumn Tale (Radio Edit) (4:10)
-02. Nicholas Gunn, Alina Renae - Older (Costa Remix) (3:32)
-03. Witness45, Cynthia Hall, Fashion Police - I'm Still Here (Radio Edit) (2:48)
-04. Tenishia, Sue Mclaren - Strong (Radio Edit) (3:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:09
+Начало XVIII века. Идет война Англии с Францией. Тем не менее, жизнь в королевстве продолжается. Трон занимает болезненная королева Анна, и страной фактически руководит её близкая подруга леди Сара Мальборо. Когда во дворце появляется девушка Эбигейл, родственница леди Сары, та сначала определяет её работать на кухне. Но вскоре новенькая удачно находит лекарство (   Читать дальше...   )Производство: Ирландия, Великобритания, СШАЖанр: Драма, комедия, биография, историяРежиссер: Йоргос ЛантимосАктеры: Оливия Колман, Рэйчел Вайс, Эмма Стоун, Джо Элвин, Николас Холт, Эмма Делвс, Фэй Дейвней, Пол Суэйн, Дженнифер Уайт, Лилироуз СтивенсПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  Английские,  УкраинскиеПродолжительность: 01:59:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB12342767B81CAFA1A3665836FD206F366F1228
+magnet:?xt=urn:btih:CD2FDCA6A8EC24E6BBD9087C80CECDC3F955D14E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526074   (738816) от 23.01.2022
+###  Публикация: 1533991   (699322) от 27.02.2022
 
-VA - Beautiful Vocal Trance, ch. 5 (2020) [AAC|~337 Kbps] <Trance>
+Avril Lavigne - Love Sux (2022) [AAC|~333 Kbps] <Pop, Punk, Rock>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738816.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Costa, Ana Criado - The Secret Garden (3:30)
-02. Aurosonic, Stine Grove - In Euphoria We Rise (3:29)
-03. Dark Matters, Jess Morgan - I Don't Believe In Miracles (Shogun Remix) (4:16)
-04. Beat Service, Cathy Burton - Love Is Your Home (Radio Edit) (3:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:15:18
+01. Cannonball (2:19)
+02. Avril Lavigne, Machine Gun Kelly - Bois Lie (2:43)
+03. Bite Me (2:40)
+04. Avril Lavigne, blackbear - Love It When You Hate Me (2:25)(   Читать дальше...   )Жанр: Pop, Punk, RockПродолжительность: 00:33:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FB6141C542FADC2703237CF7CFE5E59D29C924B
+magnet:?xt=urn:btih:3B87227CE31C6301517C2E67F27E2D22DE7B2D9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +195,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526216   (738815) от 23.01.2022
+###  Публикация: 1533854   (699316) от 27.02.2022
 
-VA - London Orange (Urban Music for Urban People) (2016) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+Профессор Лебединский - 1995-2015: 20 лет (2016) [AAC|~339 Kbps] <Pop, Rock>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738815.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tribeca - First to Say Goodbye (Original Mix) (5:34)
-02. Roberto Bronco - Breath (Original Mix) (4:05)
-03. Houie D. - Silence (Be.Me.Ti.Lou) (5:11)
-04. Ingo Herrmann - Soulmate (Original Mix) (4:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:58
+01. Я Убью Тебя, Лодочник (5:32)
+02. Падает Снег (3:40)
+03. Зато Меня Любят Таксисты (3:10)
+04. Я Никому Не Скажу (Зима) (5:57)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:15:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81B648B5ED05FA0782AAA8410F1B1E158186830F
+magnet:?xt=urn:btih:71D539C36DBF5C960561209834CF6716AA5C773B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526240   (738812) от 23.01.2022
+###  Публикация: 1533459   (699314) от 27.02.2022
 
-VA - Barcelona Orange (Urban Music for Urban People) (2017) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Electro Blues, Vol. 2 (2014) [AAC|~273 Kbps] <Electro, Blues, Swing>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738812.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marga Sol - Amoralea (5:58)
-02. Paulsen & Stryczek - Havana Postcard (3:03)
-03. Leo de la Rosa - Desnudos Tú Y Yo (3:23)
-04. Marco Bianchi, Franky Harper - Oye Como VA (3:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:26
+1.01. Chill Bump - The Eponym (2:25)
+1.02. Son Of Dave - Ain't Going to Nike Town (Single Version) (3:11)
+1.03. Swing Republic, Blind Willie McTell - Searching the Desert for the Blues (3:20)
+1.04. K Theory - Good & Gone (4:14)(   Читать дальше...   )Жанр: Electro, Blues, SwingПродолжительность: 01:16:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E62CAA0F9102FA36E0CA94CC427481088443209F
+magnet:?xt=urn:btih:ED09A04EDB7AA664666BF50495F41E1317F2500C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +253,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526077   (738811) от 23.01.2022
+###  Публикация: 1287844   (699270) от 09.03.2019
 
-VA - Beautiful Vocal Trance, ch. 7 (2022) [AAC|~326 Kbps] <Trance>
+Нассим Николас Талеб | Рискуя собственной шкурой. Скрытая асимметрия повседневной жизни (2018) [m4b|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738811.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aurosonic, Katty Heath - Tale of Us (3:36)
-02. Aldous - Wait For Me (3:02)
-03. Bruce Cullen, Paula Alcasid - Upside Down (3:43)
-04. Costa, Jessie Lee Thetford - Distant World (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:24:59
+В своей новой, резко провокационной и одновременно предельно прагматичной книге неподражаемый Николас Нассим Талеб рассказывает, как важно идентифицировать и фильтровать чушь, отличать теорию от практики, поверхностную компетентность от настоящей. Вы узнаете, что такое рациональность в сложных системах и реальном мире, симметрия и асимметрия и в чем состоит логика (   Читать дальше...   )Жанр: Самосовершенствование, Достижение успехаФормат: M4BПродолжительность: 08:07:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC15772E977FF84B0D500B3768A5123AAA943B93
+magnet:?xt=urn:btih:1CC25412194BFEE07D011F5975C8B70EEE73F8D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +279,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526063   (738810) от 23.01.2022
+###  Публикация: 1287770   (699267) от 09.03.2019
 
-VA - Beautiful Vocal Trance, ch. 1 (2017) [AAC|~338 Kbps] <Trance>
+Джордан Питерсон | 12 правил жизни. Противоядие от хаоса (2018) [M4B|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738810.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ana Criado - Vulnerable (Denis Kenzo Edit) (4:17)
-02. Beat Service, Sarah Lynn - Dream Weaver (Radio Edit) (4:03)
-03. Radion6, Katty Heath - Beautiful Nothing (Radio Edit) (2:59)
-04. 4 Strings, Denise Rivera - In The Middle of a Dream (Radio Edit) (3:11)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:49
+Современный мир – это цитадель порядка или царство хаоса? Мы появляемся на свет, чтобы стать вольными художниками Бытия или следовать универсальным Правилам? Отвечая на сложнейшие вопросы мироустройства, доктор Питерсон мастерски сплетает постулаты древних учений, великие литературные произведения и откровения современной науки и философии.
+
+Лобстеры непреклонны (   Читать дальше...   )Жанр: ПсихологияФормат: .m4b
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52D131820A0E393189C6EF8DEA7E7CBF999BDE32
+magnet:?xt=urn:btih:26E87A26D74D74D3FBB5DA4C67DE381B284D7FF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +307,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526078   (738789) от 23.01.2022
+###  Публикация: 895447   (699101) от 06.05.2015
 
-VA - Beautiful Vocal Trance, ch. 6 (2022) [AAC|~332 Kbps] <Trance>
+Велкам хом (2013) WEB-DL [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738789.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aurosonic, Susana - Weather The Storm (4:25)
-02. Frainbreeze, Denise Rivera - Memory of You (3:23)
-03. Costa, Veronica K - You Are Loved (Behind The Horizon) (3:43)
-04. Christopher Corrigan - Far Away (4:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:02:48
+Это история о людях, потерявших чувство принадлежности к определённой географической точке, к тому месту, которое мы называем домом. Всех их объединяет жажда иллюзорного успеха, в гонке за которым многие проводят годы и десятилетия, жертвуя своими первоначальными ценностями.
+Герои фильма — не самые несчастные люди на свете, но у всех них непростая жизнь, которую каждый избрал добровольно, надеясь реализовать свои представления о благополучии. Нью-Йорк для них — поле боя, где они ежедневно борются за свою мечту.Производство: Россия / Baraban FilmsЖанр: драма, комедияРежиссер: Ангелина НиконоваАктеры: Карен Карагулян, Ольга Дыховичная, Остин Кеннеди, Ара Воланд, Кори Бордман, Гвен Косак, Эдвард Бейкер-ДьюлиПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: (iTunes)Продолжительность: 01:55:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40D924EC491C5C614F1BDF2410D6C292B2DFE65F
+magnet:?xt=urn:btih:B12651A678E7398468023CAB73ADFDCB67853B87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +334,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526053   (738743) от 23.01.2022
+###  Публикация: 895593   (698772) от 06.05.2015
 
-VA - Singing With The Stars, vol. 1 (2020) [AAC|~318 Kbps] <Nu Jazz, Smooth Jazz, Lounge, Nu Soul, Bossa Nova>
+Брестская крепость  (2010) BDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738743.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Walter Ricci, Sylvain Luc - Caruso (3:45)
-02. Matteo Brancaleoni - More (3:28)
-03. Melania - O Sole Mio (4:00)
-04. Papik, Nadia Straccia - Black Hole Sun (3:56)(   Читать дальше...   )Жанр: Nu Jazz, Smooth Jazz, Lounge, Nu Soul, Bossa NovaПродолжительность: 01:17:08
+Фильм рассказывает о героической обороне Брестской крепости, которая приняла на себя первый удар немецко-фашистских захватчиков 22 июня 1941 года. С документальной точностью описываются события, происходившие в первые дни обороны. Фильм рассказывает о главных трёх очагах сопротивления, возглавляемых командиром полка Петром Гавриловым, комиссаром Ефимом Фоминым и начальником 9-й погранзаставы Андреем Кижеватовым.Производство: Россия, БеларусьЖанр: Драма, военныйРежиссер: Александр КоттАктеры: Алексей Копашов, Андрей Мерзликин, Павел Деревянко, Александр Коршунов, Евгений Цыганов, Максим Костромыкин, Анатолий Кот, Яна Есипович, Сергей Цепов, Анна ЦукановаПеревод: Не требуетсяПродолжительность: 02:18:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9965284FE1DB148FB7DE4BFE52CC96402FE4255
+magnet:?xt=urn:btih:75E7AF0DA906F0F5E3274944F29F59D4F31BA49F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +360,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526056   (738733) от 23.01.2022
+###  Публикация: 1132454   (698590) от 10.05.2017
 
-VA - Singing With The Stars, vol. 2 (2021) [AAC|~324 Kbps] <Nu Jazz, Smooth Jazz, Lounge, Nu Soul, Bossa Nova>
+Последствия / Aftermath (2017) WEB-DL [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738733.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698590.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alan Scaffardi - Stand By Me (4:05)
-02. Papik, Ely Bruna - I'm Not In Love (3:57)
-03. Ohm Guru, Faraa - Wild World (4:43)
-04. Papik, Tom Gaebel - New Frontier (5:00)(   Читать дальше...   )Жанр: Nu Jazz, Smooth Jazz, Lounge, Nu Soul, Bossa NovaПродолжительность: 01:27:56
+Ожидающий прилета своей семьи Роман узнает, что случилось непоправимое. Произошла авиакатастрофа и его любимые — жена и беременная дочь — погибли. Потеряв тех, ради кого жил, он преследует единственную цель: посмотреть в глаза невольного убийцы и услышать слова сожаления. Более года поиска приводит Романа к авиадиспетчеру Джейку, управлявшему курсом самолета в момент (   Читать дальше...   )Производство: СШАЖанр: Триллер, драмаРежиссер: Эллиотт ЛестерАктеры: Арнольд Шварценеггер, Мэгги Грэйс, Скут МакНэри, Кевин Зегерс, Ханна Уэр, Мариана Клавено, Гленн Моршауэр, Мартин Донован, Логан Фрай, Ларри СалливанПеревод: Дублированный (iTunes)Субтитры: Английские (полные, отключаемые)Продолжительность: 01:33:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F740A8AC6518AE0B044AA05E9DD28F62C2737D4
+magnet:?xt=urn:btih:2A38F71929F44D5E6C46A0B2A4AB5A0A93873FAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,25 +386,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 785839   (738605) от 12.05.2014
+###  Публикация: 1220960   (698503) от 22.04.2018
 
-Джек Райан: Теория хаоса / Jack Ryan: Shadow Recruit (2014) BDRip [576p] iPad
+Бегущий в лабиринте: Лекарство от смерти / Maze Runner: The Death Cure (2018) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томас возглавляет отряд выживших глейдеров, чтобы выполнить последнюю и самую опасную миссию. Ради спасения своих друзей они должны проникнуть в легендарный Последний город, смертоносный лабиринт, контролируемый ПОРОКом. Каждый, кто выживет там, наконец-то получит ответы на все вопросы, которые мучили глейдеров с момента попадания в лабиринт.Производство: СШАЖанр: Фантастика, боевик, триллерРежиссер: Уэс БоллАктеры: Дилан О’Брайен, Ли Ги-хон, Кая Скоделарио, Томас Сэнгстер, Декстер Дарден, Уилл Поултер, Джейкоб Лофленд, Роза Салазар, Джанкарло Эспозито, Патришия КларксонПеревод: Дублированный (iTunes)Субтитры: Русские,  Английские,  УкраинскиеПродолжительность: 02:23:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C281832FB757AD5C7D05E4EB26D18F6D4C0EE8D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221071   (698502) от 22.04.2018
+
+Бегущий в лабиринте: Лекарство от смерти / Maze Runner: The Death Cure (2018) BDRip [576p] iPad
 
 >>Аудио и Видео
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738605.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рядовой аналитик ЦРУ Джек Райан приезжает в Москву, чтобы решить простую задачу: ему нужно проверить операции компании, принадлежащей миллиардеру Виктору Черевину. Но все усложняется, когда Райана пытаются убить. Теперь он вынужден защищаться с оружием в руках, вспоминая армейские навыки и неожиданно для себя оказываясь в роли настоящего спецагента. На помощь Джеку приходят маститый офицер спецслужб Харпер и внезапно оказавшаяся в Москве супруга Кэти. Но облегчит ли это миссию, которую теперь предстоит выполнить Райану, — предотвратить международный заговор, грозящий погрузить весь мир в хаос?Жанр: Боевик, триллер, детективПродюсер: Дэвид Баррон, Лоренцо Ди Бонавентура, Мэйс НойфельдВ ролях: Крис Пайн, Кира Найтли, Кеннет Брана, Кевин Костнер, Алек Утгофф, Джемма Чан, Петер Андерссон, Елена Великанова, Нонсо Анози, Колм ФиорПеревод: Дублированный (Line)Язык субтитров: АнглийскийПродолжительность: 01:45:48
+Томас возглавляет отряд выживших глейдеров, чтобы выполнить последнюю и самую опасную миссию. Ради спасения своих друзей они должны проникнуть в легендарный Последний город, смертоносный лабиринт, контролируемый ПОРОКом. Каждый, кто выживет там, наконец-то получит ответы на все вопросы, которые мучили глейдеров с момента попадания в лабиринт.Производство: СШАЖанр: Фантастика, боевик, триллерРежиссер: Уэс БоллАктеры: Дилан О’Брайен, Ли Ги-хон, Кая Скоделарио, Томас Сэнгстер, Декстер Дарден, Уилл Поултер, Джейкоб Лофленд, Роза Салазар, Джанкарло Эспозито, Патришия КларксонПеревод: Дублированный (iTunes)Субтитры: Русские,  Английские,  УкраинскиеПродолжительность: 02:23:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71B7696D51115A97BFEBFE0F65AA27814E41B787
+magnet:?xt=urn:btih:775877789FB1B5BC7FD71590B89A9FFFE74A62B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,28 +438,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526366   (738520) от 24.01.2022
+###  Публикация: 1132283   (698480) от 10.05.2017
 
-VA - Sidewalk Bistro, Vol. 2 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
+Последствия / Aftermath (2017) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738520.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steven Solveig - Sealife (3:19)
-02. Florito - 90 Degrees Fahrenheit (3:59)
-03. Beatgroove - La Piazza (5:07)
-04. Ingo Herrmann - Walking Away (4:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:35
+Ожидающий прилета своей семьи Роман узнает, что случилось непоправимое. Произошла авиакатастрофа и его любимые — жена и беременная дочь — погибли.
+Потеряв тех, ради кого жил, он преследует единственную цель: посмотреть в глаза невольного убийцы и услышать слова сожаления. Более года поиска приводит Романа к авиадиспетчеру Джейку, управлявшему курсом самолета в момент (   Читать дальше...   )Производство: СШАЖанр: Триллер, драмаРежиссер: Эллиотт ЛестерАктеры: Арнольд Шварценеггер, Мэгги Грэйс, Скут МакНэри, Кевин Зегерс, Ханна Уэр, Мариана Клавено, Гленн Моршауэр, Мартин Донован, Логан Фрай, Ларри СалливанПеревод: Дублированный (iTunes)Субтитры: Английские (полные, отключаемые)Продолжительность: 01:33:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:313D7CAD5F6211C16F0D8446BF4E25EDDB53BBED
+magnet:?xt=urn:btih:4BEB32CAD10FDFB02983CFA23CAF19C680EFFBAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,28 +465,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526369   (738519) от 24.01.2022
+###  Публикация: 1132588   (698395) от 10.05.2017
 
-VA - Sidewalk Bistro, Vol. 3 (2016) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+Три икса: Мировое господство / xXx: Return of Xander Cage (2016) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738519.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Florito - Nambuco (7:15)
-02. Emelie Christiansson - Sunday Song (3:25)
-03. Urban Phunk Society - Shadow Play (3:11)
-04. Peter Pearson - All Phased Out (5:02)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:12:14
+Ксандер Кейдж спустя годы возвращается из добровольного изгнания и попадает в безумный водоворот событий. Он собирает команду безбашенных экстремалов, вместе с которыми ему предстоит найти мощнейшее секретное оружие — «Ящик Пандоры». Действовать нужно быстро: за разработкой охотятся опасные головорезы. Ставки в смертельной игре повышаются, когда выясняется, что мировые (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, приключенияРежиссер: Ди Джей КарузоАктеры: Вин Дизель, Донни Йен, Дипика Падукон, Крис У, Руби Роуз, Тони Джа, Нина Добрев, Рори МакКанн, Тони Коллетт, Сэмюэл Л. ДжексонПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Украинские форсированные, Русские, Английские, УкраинскиеПродолжительность: 01:46:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1328FBB3663BCC0CCA48AF6C70E8BECE35CE729
+magnet:?xt=urn:btih:BFDD43E49FE40A290B933FCAFF54ED388DA586A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,28 +491,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526321   (738516) от 24.01.2022
+###  Публикация: 1132781   (698393) от 10.05.2017
 
-Bart&Baker - Electro Swing Stories (2016) [AAC|~325 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+Три икса: Мировое господство / xXx: Return of Xander Cage (2016) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738516.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bart&Baker, George Bangable, Sax By C. Sharp - Der Tag (Original Version) (6:09)
-02. Bart&Baker, Marcella Puppini - Stop Googling Me! (Bost & Bim Remix) (3:51)
-03. Bart&Baker, David Costa Coehlo - Just Click (Original Version) (3:15)
-04. Bart&Baker, Carole Gireaud - Danke Schoen (Remastered) (5:33)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:58:43
+Ксандер Кейдж спустя годы возвращается из добровольного изгнания и попадает в безумный водоворот событий. Он собирает команду безбашенных экстремалов, вместе с которыми ему предстоит найти мощнейшее секретное оружие — «Ящик Пандоры». Действовать нужно быстро: за разработкой охотятся опасные головорезы. Ставки в смертельной игре повышаются, когда выясняется, что мировые (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, приключенияРежиссер: Ди Джей КарузоАктеры: Вин Дизель, Донни Йен, Дипика Падукон, Крис У, Руби Роуз, Тони Джа, Нина Добрев, Рори МакКанн, Тони Коллетт, Сэмюэл Л. ДжексонПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Украинские форсированные, Русские, Английские, УкраинскиеПродолжительность: 01:46:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12822EFC275E3CAD0B045D8C13F978272470C7D0
+magnet:?xt=urn:btih:10DA920B54888902C7CF3656C2699ACB1C859014
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,28 +517,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526373   (738515) от 24.01.2022
+###  Публикация: 1220957   (698277) от 22.04.2018
 
-VA - Sidewalk Bistro, Vol. 4 (2022) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+Бегущий в лабиринте: Лекарство от смерти / Maze Runner: The Death Cure (2018) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738515.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Luc Forlorn - That Time Again (4:18)
-02. Taste of dream - En Camino (4:33)
-03. Luc Forlorn - Reckless in Manhattan (6:31)
-04. Peter Pearson - Slow Trip Back (7:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:39:23
+Томас возглавляет отряд выживших глейдеров, чтобы выполнить последнюю и самую опасную миссию. Ради спасения своих друзей они должны проникнуть в легендарный Последний город, смертоносный лабиринт, контролируемый ПОРОКом. Каждый, кто выживет там, наконец-то получит ответы на все вопросы, которые мучили глейдеров с момента попадания в лабиринт.Производство: СШАЖанр: Фантастика, боевик, триллерРежиссер: Уэс БоллАктеры: Дилан О’Брайен, Ли Ги-хон, Кая Скоделарио, Томас Сэнгстер, Декстер Дарден, Уилл Поултер, Джейкоб Лофленд, Роза Салазар, Джанкарло Эспозито, Патришия КларксонПеревод: Дублированный (iTunes)Субтитры: Русские,  Английские,  УкраинскиеПродолжительность: 02:23:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35D6CBFC7902E8AFF0A1892623C8AF9CBC0575A1
+magnet:?xt=urn:btih:CDDCC7C395FB44B93E877CA867F7243E4D2CBA39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,28 +543,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526322   (738514) от 24.01.2022
+###  Публикация: 1220893   (698153) от 22.04.2018
 
-Bart&Baker - More Electro Swing Stories (2016) [AAC|~316 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+Пассажир / The Commuter (2018) BDRip [480p] iPod
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738514.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bart&Baker, George Bangable, Sax By C. Sharp - Der Tag (Extra Medium Remix) (4:10)
-02. Bart&Baker, Marcella Puppini - Stop Googling Me! (Bost & Bim Dub Remix) (4:00)
-03. Bart&Baker, David Costa Coehlo - Just Click (Dr Cat Remix) (3:23)
-04. Bart&Baker, Carole Gireaud - Danke Schoen (La Comtesse Remix) (4:30)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 01:08:33
+Еще вчера его день начинался с поездки на работу в одном и том же поезде, в компании уже давно знакомых лиц, но сегодня таинственная незнакомка предлагает ему поучаствовать в эксперименте. Одна остановка, чтобы принять решение, и единственный шанс из тысячи победить. Осторожно, игра начинается…Производство: СШАЖанр: Боевик, триллер, драма, криминал, детективРежиссер: Жаума Кольет-СерраАктеры: Лиам Нисон, Вера Фармига, Патрик Уилсон, Джонатан Бэнкс, Сэм Нил, Элизабет МакГоверн, Киллиан Скотт, Шазад Латиф, Энди Найман, Клара ЛагоПеревод: Дублированный (iTunes)Субтитры: Русские,  АнглийскиеПродолжительность: 01:44:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B33107D0E4920CBE911164896975F6B672104C1
+magnet:?xt=urn:btih:1BCBCC3773FA0FB569CAF29BE6AEA5D654AC05A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,28 +569,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526331   (738511) от 24.01.2022
+###  Публикация: 1026742   (698131) от 18.06.2016
 
-Swing Republic - Electro Swing Republic (2011) [AAC|~309 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+Motorhead - Clean Your Clock (Live in Munich 2015) (2016) [AAC|WEB-DL|256 кб/с] <Metal>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738511.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. On the Downbeat (3:36)
-02. Peas and Rice (3:16)
-03. Scrub Me Mama with a Boogie Beat (3:24)
-04. Any Old Thing (4:33)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:43:19
+Легендарные Motörhead 27 мая выпустили концертный альбом «Clean Your Clock», который был записан во время концертов 20-21 ноября 2015 года в Мюнхене. Шоу проходили в рамках мирового гастрольного тура в поддержку двадцать второго студийного альбома «Bad Magic», презентованного в конце августа прошлого года. Профессионально снятый и записанный «Clean Your Clock» (   Читать дальше...   )01. Bomber (Live in Munich 2015) (3:36)
+02. Stay Clean (Live in Munich 2015) (3:20)
+03. Metropolis (Live in Munich 2015) (4:11)
+04. When the Sky Comes Looking for You (Live in Munich 2015) (3:46)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 01:14:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:475A9C98571E25E74D9FC3A83CF1FB6A3A4AFE8B
+magnet:?xt=urn:btih:6FE79114822BF038A0AC4B0284C84326E6BBFE41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,28 +598,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526327   (738509) от 24.01.2022
+###  Публикация: 1027028   (698035) от 18.06.2016
 
-Lamuzgueule - Iceberg Club (2021) [AAC|~326 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+Белоснежка и Охотник 2 / The Huntsman: Winter's War (2016) WEB-DLRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738509.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stracciatella (Intro) (0:32)
-02. Ice Cream (3:28)
-03. Triple Lutz (3:50)
-04. Marshmallow (3:51)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:44:24
+Когда любовь уходит, сердце прекрасной девы обращается в лед. И даже сотни королевств не смогут сдержать поступь ее несметного воинства. Лишь Охотник не ведает страха. Сквозь проклятый лес он идет навстречу своей судьбе.Производство: СШАЖанр: Фэнтези, боевик, драма, приключенияРежиссер: Седрик Николя-ТроянАктеры: Крис Хемсворт, Шарлиз Терон, Джессика Честейн, Эмили Блант, Ник Фрост, Роб Брайдон, Шеридан Смит, Александра Роуч, Сопе Дирису, Сэм ХэзелдайнПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:53:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDBE878C7013B12825D2753AE4155FEC38981A2A
+magnet:?xt=urn:btih:98250ED3D4F6BF60B53E85F7C9046B0F3CB5BCAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +624,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526362   (738508) от 24.01.2022
+###  Публикация: 1027173   (698006) от 18.06.2016
 
-VA - Electro Swing: The Best of - Freshly Squeezed, Vol. 2 (2015) [AAC|~332 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+Дивергент, глава 3: За стеной / Allegiant (2016) WEB-DLRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738508.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Swingrowers - That's Right! (Jamie Berry Remix) (3:40)
-02. Swing Republic - No No No (2:21)
-03. Jem Stone - Be-Bop 2 Hip-Hop (4:53)
-04. JFB, Beardyman - Swing Ya Beard (4:32)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:59:57
+Трис и Фор впервые покидают город и своих близких и оказываются в опасном мире за стеной, отделяющей Чикаго, где им открывается шокирующая правда.
+Они должны быстро разобраться, кому можно доверять, так как битва, разгорающаяся за стенами города, угрожает всему человечеству. Чтобы выжить, Трис придется сделать непростой выбор между мужеством, верностью, любовью и (   Читать дальше...   )Производство: СШАЖанр: Фантастика, боевик, триллер, детектив, приключенияРежиссер: Роберт ШвенткеАктеры: Шейлин Вудли, Тео Джеймс, Энсел Элгорт, Зои Кравиц, Майлз Теллер, Джефф Дэниелс, Наоми Уоттс, Мэгги Кью, Билл Скарсгард, Кейнан ЛонсдейлПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:00:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4168DE88A6F2A3D4B1D8AB3A12644C676AF6EAA8
+magnet:?xt=urn:btih:2432B332245CDC642992789F1FBA6FB7A904E7F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +651,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526334   (738506) от 24.01.2022
+###  Публикация: 1027403   (697799) от 18.06.2016
 
-Swing Republic - Mo' Electro Swing Republic - Let's Misbehave (Deluxe Version) (2015) [AAC|~332 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+Дивергент, глава 3: За стеной / Allegiant (2016) WEB-DL [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738506.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Swing Republic, Dolly Dawn & Her Dawn Patrol - How'd Ja Like to Love Me? (3:41)
-02. Swing Republic, Duke Ellington, Ivie Anderson - Truckin' (4:08)
-03. Swing Republic, Karina Kappel - Sing It Back (3:32)
-04. Swing Republic, Benny Goodman, Jimmy Rushing - He Ain't Got Rhythm (4:14)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:49:07
+Трис и Фор впервые покидают город и своих близких и оказываются в опасном мире за стеной, отделяющей Чикаго, где им открывается шокирующая правда. Они должны быстро разобраться, кому можно доверять, так как битва, разгорающаяся за стенами города, угрожает всему человечеству. Чтобы выжить, Трис придется сделать непростой выбор между мужеством, верностью, любовью и (   Читать дальше...   )Производство: СШАЖанр: Фантастика, боевик, триллер, детектив, приключенияРежиссер: Роберт ШвенткеАктеры: Шейлин Вудли, Тео Джеймс, Энсел Элгорт, Зои Кравиц, Майлз Теллер, Джефф Дэниелс, Наоми Уоттс, Мэгги Кью, Билл Скарсгард, Кейнан ЛонсдейлПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 02:00:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D7AFA72F7C2500B833C790C9F4A1559DCB42274
+magnet:?xt=urn:btih:1A63339DD39462F4A2B4984A16B0D390EFA68786
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,57 +677,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526360   (738504) от 24.01.2022
+###  Публикация: 794401   (697740) от 08.06.2014
 
-VA - Sidewalk Bistro, Vol. 1 (2015) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
+Отель «Гранд Будапешт» / The Grand Budapest Hotel (2014) BDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738504.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697740.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Naoki Kenji - Destination Earth (4:27)
-02. The Sushi Club - Hypnosia (7:13)
-03. Castlebed - Gravity (3:29)
-04. Gerrit van der Meer - Freudenberg (Springtime Edit) (5:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:03
+Фильм рассказывает об увлекательных приключениях легендарного консьержа Густава и его юного друга, портье Зеро Мустафы. Сотрудники гостиницы становятся свидетелями кражи и поисков бесценных картин эпохи Возрождения, борьбы за огромное состояние богатой семьи и… драматических изменений в Европе между двумя кровопролитными войнами XX века.Жанр: комедия, детектив, приключения, криминалПродюсер: Уэс Андерсон, Джереми Доусон, Стивен РейлсВ ролях: Рэйф Файнс, Тони Револори, Сирша Ронан, Эдриан Броуди, Уиллем Дефо, Ф. Мюррэй Абрахам, Джуд Лоу, Эдвард Нортон, Джефф Голдблюм, Харви КейтельПеревод: Профессиональный (дублированный)Язык субтитров: Русский, АнглийскийПродолжительность: 01:39:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B882254B777AD5E2191F03395DDFD76A44B2575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526364   (738502) от 24.01.2022
-
-VA - Electro Swing: The Best of - Freshly Squeezed, Vol. 1 (2015) [AAC|~313 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swing Republic - Crazy in Love (Radio Edit) (3:55)
-02. Nick Hollywood - Deep Henderson (3:41)
-03. The Correspondents - Washington Square (3:34)
-04. JFB - Wobble and Squeak (4:14)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4EE4C5908535B669175655B3CBD509960E9438
+magnet:?xt=urn:btih:B79E2BE7CCA6A90559932E6A65E9FAD402F62692
 ```
 
 https://mybot314.ru/tekegram_catalog/

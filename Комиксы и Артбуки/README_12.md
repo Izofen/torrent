@@ -1,22 +1,22 @@
-###  Публикация: 1626735   (240534) от 15.04.2023
+###  Публикация: 1625815   (199999) от 11.04.2023
 
-Black Hole Entertainment | Артбук по игре Might & Magic Heroes VI / Might & Magic Heroes VI - Art Book (2011) [PDF] [EN]
+PlayFlock | Артбук по игре Insanity Clicker / The Art of Insanity Clicker (2016) [PDF] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240534.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по игре "Might & Magic Heroes VI".Жанр: АртбукЯзык: АнглийскийФормат: PDF
+Артбук содержит эскизы и концепт-арты по игре "Insanity Clicker".Жанр: АртбукЯзык: АнглийскийФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9889447C602D7B3942B5E0481BDF453F09CAF652
+magnet:?xt=urn:btih:373705D4F6F4CC1D6C149981D90B14C66FF54824
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626950   (240411) от 16.04.2023
+###  Публикация: 1628385   (199509) от 22.04.2023
 
-Born Ready Games | Артбук по игре Strike Suit Zero / Strike Suit Zero - Artbook (2013) [PDF] [EN]
+Paul Richards | Артбук Substrata: Открытый мир тёмного фентези / Substrata: Open World Dark Fantasy (2014) [PDF] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240411.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по игре "Strike Suit Zero".Жанр: АртбукЯзык: АнглийскийФормат: PDF
+Этот 240-страничный артбук включает в себя концепт-арты, дизайны персонажей и иллюстрации от более чем 80 лучших игровых художников со всего мира.Жанр: АртбукЯзык: АнглийскийФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11282E560C1C2FE7934F6075F226CDE3A1C8B33C
+magnet:?xt=urn:btih:EC06EA9BE7CC39FFCCBE5CD6718A8391F719815D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626941   (240358) от 16.04.2023
+###  Публикация: 1630262   (199192) от 29.04.2023
 
-Little Green Men | Артбуки по играм Starpoint Gemini / The Art of Starpoint Gemini [3 книги] (2017-2020) [PDF] [EN]
+Capcom | Артбук по игре Dragon's Dogma / Dragon's Dogma: Official Design Works - Artbook (2012) [CBR] [JP]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240358.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбуки содержат эскизы и концепт-арты по играм Starpoint Gemini.Жанр: АртбукЯзык: АнглийскийФормат: PDF
+Артбук содержит эскизы и концепт-арты по игре "Dragon's Dogma".Жанр: АртбукЯзык: ЯпонскийФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:400D4F5E964D73FA3F2ED638550A4C305C66E066
+magnet:?xt=urn:btih:A0ADFF1939585B084B9ABB169F632868ADB43221
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626953   (239985) от 16.04.2023
+###  Публикация: 1630264   (199188) от 29.04.2023
 
-Colossal Order | Артбук по игре Cities: Skylines / Cities: Skylines - Artbook (2015) [PDF] [EN]
+Marvelous AQL | Артбук по игре Soul Sacrifice / Soul Sacrifice: The Art of Magic - Artbook (2014) [CBR] [JP]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239985.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199188.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по игре "Cities: Skylines".Жанр: АртбукЯзык: АнглийскийФормат: PDF
+Артбук содержит эскизы и концепт-арты по игре "Soul Sacrifice".Жанр: АртбукЯзык: ЯпонскийФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E62E1B51C1D9ADD4FB750D474101EAE6E05665DF
+magnet:?xt=urn:btih:9E527B938FD2820326439EB053C007A58FCB1D88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546440   (239789) от 23.04.2022
+###  Публикация: 1630378   (199147) от 30.04.2023
 
-Blizzard Entertainment | Артбук по игре Diablo III / The Art of Diablo III (2011) [PDF] [EN]
+Sega | Артбук по играм Shinobi / Shinobi THE WIDE Illustration Archive - Artbook (2002) [CBR] [JP]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239789.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Погрузитесь в потрясающее художественное развитие игры с помощью этой 208-страничной книги по искусству, в которой каталогизировано бесчисленное множество работ, от ранних концепций до финальных 3D-рендеров.Жанр: АртбукФормат: PDF
+Артбук содержит эскизы и концепт-арты по серии игр Shinobi.Жанр: АртбукЯзык: ЯпонскийФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E1D62DB33F60DB9C76701E1E11B22D0D82CE35A
+magnet:?xt=urn:btih:3CB014E597C1D3D3FCFBFFF342A8F9A23EA5A18A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546397   (239744) от 23.04.2022
+###  Публикация: 1631861   (198810) от 07.05.2023
 
-Lisa Fitzpatrick | Артбук по фильму Аватар / The Art of Avatar: James Cameron's Epic Adventure (2009) [PDF] [EN]
+Pat Harrigan, Brian Wood | Артбук Мифы о Ктулху Говарда Филлипса Лавкрафта / The Art of H.P. Lovecraft's Cthulhu Mythos (2006) [CBR] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239744.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по фильму Аватар.Жанр: АртбукФормат: PDF
+Этот артбук - это путешествие в темные и навязчивые образы, вдохновленные книгами и историями о мифах о Ктулху. На почти 200 страницах некоторые из самых талантливых современных художников дают вам представление о навязчивых и жутких образах, вдохновленных писателем Говардом Филлипсом Лавкрафтом и мифами о Ктулху. От разрушающих рассудок Великих Древних до безумных (   Читать дальше...   )Жанр: АртбукЯзык: АнглийскийФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CE6B80489A70C0380D9E8FB0E1D2AEDDBDA2DF2
+magnet:?xt=urn:btih:710BB9A5F411A89F9FC44E881318B69B266271B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +154,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628117   (239409) от 21.04.2023
+###  Публикация: 1631857   (198808) от 07.05.2023
 
-Flying Mollusk | Артбук по игре Nevermind / The Art of Nevermind - Volume 1 (2017) [PDF] [EN]
+Сэнди Петерсен и др. | Артбук Справочник С. Петерсена: Лавкрафтовские Ужасы / S. Petersen's Field Guide to Lovecraftian Horrors [3 книги] (1988-2015) [PDF, CBR] [RU, EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239409.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по игре "Nevermind".Жанр: АртбукЯзык: АнглийскийФормат: PDF
+Определитель сверхъестественных существ и обитателей мира за стеной сна.
+Странные тени в парке? Загадочное громыхание в подвале? Страх, таящийся на кухне? Ночные кошмары, полные удивительных приключений и невероятных созданий? Опознать монстров из Мифов Ктулху не так-то просто. Любому исследователю, желающему узнать, кто перед ним, пригодится определитель. Выходя (   Читать дальше...   )Жанр: АртбукЯзык: Русский, АнглийскийФормат: PDF, CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B007340BB05A9BDAA07335826017DBAFAEC14272
+magnet:?xt=urn:btih:257B9DE6D5F64208B65006364BA042D274380A59
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +181,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628382   (239164) от 22.04.2023
+###  Публикация: 1634649   (198190) от 21.05.2023
 
-Crytek | Артбук по игре Ryse: Son of Rome / Ryse: Son of Rome - Artbook (2013) [PDF] [EN]
+Camilla d'Errico | Артбук художника Camilla d'Errico / Dappled Daydreams: The Art of Camilla d'Errico (2022) [CBR] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239164.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по игре "Ryse: Son of Rome".Жанр: АртбукЯзык: АнглийскийФормат: PDF
+В этой коллекции представлены последние работы Камиллы д'Эррико, в том числе работы из ее сенсационных выставок в галерее "Погруженный", "Небо" и "Зодиак".
+Опытный живописец, иллюстратор и автор комиксов, а также дизайнер игрушек, одежды, аксессуаров и многого другого на заказ, д'Эррико демонстрирует свой неизменно потрясающий стиль (   Читать дальше...   )Жанр: АртбукЯзык: АнглийскийФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:401078943476E8513953EF0246DED491D875E455
+magnet:?xt=urn:btih:49EFD807F070249DD1F192E121BA6B1DF48D5DBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +208,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628323   (239086) от 22.04.2023
+###  Публикация: 1634650   (198182) от 21.05.2023
 
-United Front Games | Артбук по игре Sleeping Dogs / Sleeping Dogs: Definitive Edition - Artbook (2014) [PDF] [EN]
+Nickelodeon | Артбук по мультсериалу Легенда о Корре / The Legend of Korra - The Art of the Animated Series (2-ое издание) [3 книги] (2021-2022) [CBR] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239086.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198182.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по игре "Sleeping Dogs".Жанр: АртбукЯзык: АнглийскийФормат: PDF
+Артбук содержит эскизы и концепт-арты по мультсериалу "Легенда о Корре".Жанр: АртбукЯзык: АнглийскийФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E72AC869FB29B5E92ACBDCFC1E0EFB9A3470ED1
+magnet:?xt=urn:btih:1DB4290EA0E451A4598FC9802E278A3242C9C642
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,25 +234,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628320   (239058) от 22.04.2023
+###  Публикация: 1634664   (198178) от 21.05.2023
 
-Visceral Games | Артбук по игре Dante's Inferno / Dante's Inferno - Concept Art - Artbook (2010) [PDF] [EN]
+DC Comics | Артбук художника Lee Bermejo / DC Comics: The Art of Lee Bermejo (2020) [CBR] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239058.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_198178.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по игре "Dante's Inferno".Жанр: АртбукЯзык: АнглийскийФормат: PDF
+Артбук содержит рисунки художника Lee Bermejo из разных комиксов.Жанр: АртбукЯзык: АнглийскийФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBCBB70DA8D921C1F0F18BCE32E5AB73B6386D52
+magnet:?xt=urn:btih:8063DD13FBF075850EF129FBF06E6D7F0428EA67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,317 +260,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628113   (239003) от 21.04.2023
+###  Публикация: 1631214   (197207) от 10.06.2023
 
-Lionhead Studios | Артбук по игре Fable III / The Art of Fable III (2010) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Fable III".Жанр: АртбукЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E589B04B6BC2518ECC8430C90FCDABA784E2935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628324   (238732) от 22.04.2023
-
-FOW Interactive | Артбук по игре Subverse / Subverse: Prodigium's Most Wanted - Artbook (2020) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Subverse".Жанр: АртбукЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A74E346EF4BBCBF8470F8C35D319CD3710A8CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572969   (238559) от 29.08.2022
-
-Paul Davies | Артбук по игре Horizon Zero Dawn / The Art of Horizon Zero Dawn (2017) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Horizon Zero Dawn".Жанр: АртбукФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F962425B2FD330901D33A758FE1C258CB40DB45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573452   (238124) от 31.08.2022
-
-Sucker Punch Productions | Артбук по игре Ghost of Tsushima / The Art of Ghost of Tsushima (2020) [CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре "Ghost of Tsushima".Жанр: АртбукФормат: CBZ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47A89B56FAA72073310B5A5E000B30ABF37A1AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637306   (230855) от 03.06.2023
-
-Peter Bergting | Артбук художника Peter Bergting / The Art of Peter Bergting (2023) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отмеченный наградами художник комиксов и иллюстратор Питер Бергтинг демонстрирует работы, созданные почти за тридцать лет.
-Репертуар иллюстраций Бергтинга в жанрах фэнтези, ужасов и научной фантастики включает комиксы, журналы, романы и игры, и он работал в сотрудничестве с такими творческими гигантами, как Майк Миньола. Познакомьтесь с мрачными, мистическими и загадочными (   Читать дальше...   )Жанр: АртбукЯзык: АнглийскийФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2CA283DCD94AD1B989969187F55A6AED0CFD49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637305   (230852) от 03.06.2023
-
-Marvel | Артбук художника Marko Djurdjevic / The Marvel Art of Marko Djurdjevic (2009) [CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит рисунки художника Marko Djurdjevic из комиксов Marvel.Жанр: АртбукЯзык: АнглийскийФормат: CBZ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB6D3DF16104B3731F5E67D2BF6E20D8322C656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341735   (228530) от 29.11.2019
-
-Coffin Comics | Артбук по комиксу Lady Death / Lady Death: Lingerie № 1 (2019) [CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит рисунки из комикса "Lady Death"Жанр: АртбукФормат: CBZ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D510ABB97933405B846996C931CB1DBA23E324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341940   (225235) от 01.12.2019
-
-Simon Bisley | Артбук Библия / La Biblia (2005) [CBR] [ES]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит рисунки художника Simon Bisley на библейские темыЖанр: АртбукФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EB70B5E42B950C18795778F8B767967E108293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342944   (219197) от 05.12.2019
-
-Paolo Eleuteri Serpieri | Артбук Одержимость / Serpieri Obsession: In Search of Druuna (1996) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит рисунки итальянского художника Paolo Eleuteri Serpieri с персонажем комиксов DruunaЖанр: АртбукФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47060F9BF7507205230EF8594B933B5CB7ECC088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343760   (216108) от 07.12.2019
-
-John Workman | Артбук с обложками журнала Heavy Metal за 25 лет / Heavy Metal: 25 Years of Classic Covers (2002) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит обложки журнала Heavy Metal с 1977 по 2001 года.
-25-ти летняя коллекция обложек от более чем 100 художников.Жанр: АртбукФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF45126AD6D95954C2DFE735A5BE7C9BE4B38CBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343721   (215778) от 07.12.2019
-
-Paolo Eleuteri Serpieri | Артбук Одержимость / Serpieri Obsession: In Search of Druuna (1996) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит рисунки итальянского художника Paolo Eleuteri Serpieri с персонажем комиксов Druuna
-
-В формате PDF: Serpieri Obsession: In Search of Druuna (1996)Жанр: АртбукФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2442962E0162C871A2D3E3A5221D514D57D62F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426184   (215524) от 23.11.2020
-
-Джонатан Кричтон, Питер Костер | English Made Easy. Самоучитель английского языка в комиксах (2021) [PDF]
+Гарт Эннис | Пацаны / The Boys [98 из 98] (2006-2021) [CBR]
 
 >>Комиксы и Артбуки
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215524.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_197207.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Авторы используют очень эффективную комбинацию – изображение + текст. Изучающий язык смотрит на картинку и понимает изображенную на ней ситуацию, остается заучить слова и фразы.
-Самоучитель состоит из 20 уроков, каждый пятый из которых – контрольный тест.
-В конце книги помещены ключи к упражнениям и индекс – перечень всех слов и фраз с указанием урока, в котором (   Читать дальше...   )Жанр: Комиксы, иностранный языкФормат: PDF
+Американский комикс, созданный сценаристом Гартом Эннисом и художником Дэриком Робертсоном. Первоначально комикс издавался Wildstorm, но после первых шести выпусков издателем стал Dynamite Entertainment. Действия комикса происходит в мире, подобном нашему, но с одним маленьким исключением: в этом мире есть люди, обладающие суперспособностями. Главные действующие (   Читать дальше...   )Жанр: СупергероиПеревод: Russian Project Universe, Каморка Сканлейтера, ЭксмоФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96B96628EA88385EC2AC631E416A3742C45BF8C7
+magnet:?xt=urn:btih:DEF4BE418963CE7220AF82703EEAEE8F149F378D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,25 +286,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561231   (212894) от 03.07.2022
+###  Публикация: 1640410   (196977) от 17.06.2023
 
-Майк Дайвер | GAME isn’t OVER. Любимые приставки и игры, в которые рубились целые поколения (2022) [PDF]
+Mark Cotta Vaz, Shinji Hata | Артбук От Звёздных войн до Индианы Джонса: Лучшее из архивов Lucasfilm / From Star Wars to Indiana Jones: The Best of the Lucasfilm Archives (1994) [CBZ] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212894.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга отправит вас в путешествие по переулкам памяти в славные дни ваших любимых приставок, игр и персонажей. Она посвящена четырем десятилетиям развития консольных, компьютерных и портативных игр. Начиная с аркадной классики на консолях Atari и заканчивая вечными хитами на Nintendo, SEGA и SonyPlaystation – в этой книге рассматриваются важнейшие релизы, благодаря (   Читать дальше...   )Жанр: Артбуки. Игровые мирыФормат: PDF
+Джордж Лукас снял несколько самых популярных фильмов в истории, включая классические трилогии "Звездные войны" и "Индиана Джонс".
+Благодаря предусмотрительности Лукаса и самоотверженности архивистов Lucasfilm артефакты, использованные при создании его фильмов, были тщательно сохранены. В данной книге представлены одни из лучших творений Lucasfilm, (   Читать дальше...   )Жанр: АртбукЯзык: АнглийскийФормат: CBZ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F036D0E7B78BA2C92D7407DA6F2007C26FCADD17
+magnet:?xt=urn:btih:DA92BD9935F9558903CBF50769EF796EEF6E0848
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,26 +313,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640411   (211300) от 17.06.2023
+###  Публикация: 1640400   (196904) от 17.06.2023
 
-Capcom | Артбук по играм Marvel vs. Capcom / Marvel VS Capcom: Official Complete Works (2016) [CBZ] [EN]
+Andy McVittie | Артбук Создание игры Call of Duty: Modern Warfare / Making Call of Duty: Modern Warfare (2019) [CBZ] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211300.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Два мира сталкиваются в одной из самых любимых франшиз файтингов всех времен!
-Marvel VS Capcom: Official Complete Works - собирает впечатляющие иллюстрации, лежащие в основе этой легендарной франшизы файтингов. Внутри вы найдете дизайн персонажей, обложки игр, рекламные иллюстрации, редкие, никогда ранее не виданные эскизы и многое другое. Кроме того, все это дополняется (   Читать дальше...   )Жанр: АртбукЯзык: АнглийскийФормат: CBZ
+Эта захватывающая книга позволяет заглянуть за кулисы деятельности разработчиков игр Infinity Ward. Почти 200 полноцветных страниц, заполненных потрясающими изображениями, профилями персонажей, фотореалистичными локациями и комментариями команды, создавшей игру, - это книга, которую нельзя пропустить как поклонникам серии, так и любителям арта для видеоигр.Жанр: АртбукЯзык: АнглийскийФормат: CBZ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C13C71F66B1E7BA6A2D941296E3B2BF0F807C0F
+magnet:?xt=urn:btih:9B0FC75CA7980DAFE028DE4B09CE97C5D76ED24A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,26 +339,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640395   (211295) от 17.06.2023
+###  Публикация: 1588613   (191313) от 05.11.2022
 
-Kari Fry, Ryan Novak | Артбук по игре Hollow Knight / Hollow Knight - Wanderer's Journal (2019) [CBZ] [EN]
+Respawn Entertainment | Артбук по игре Titanfall / The Art of Titanfall (2014) [CBZ] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211295.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук по игре Hollow Knight. Присоединяйтесь к летописцу Эллине в путешествии в глубины Халлоунеста и исследуйте тайны этого разрушенного королевства.
-Этот любовно иллюстрированный 160-страничный журнал содержит всеобъемлющее руководство по всем разнообразным окружениям Халлоунеста, дружелюбным лицам и грозным врагам, флоре и фауне.Жанр: АртбукЯзык: АнглийскийФормат: CBZ
+Артбук содержит эскизы и концепт-арты по игре Titanfall.Жанр: АртбукЯзык: АнглийскийФормат: CBZ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A728B7A99E12C588F424E2B054B36E075114623
+magnet:?xt=urn:btih:887342E1318A1A5D6280188E488E4DCB53032A6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,25 +365,311 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572846   (209579) от 28.08.2022
+###  Публикация: 1588617   (191305) от 05.11.2022
 
-4A Games | Артбук по игре Метро: Исход / Metro Exodus - Artbook (2019) [PDF]
+Arkane Studios | Артбук по игре Deathloop / The Art of Deathloop (2022) [CBR] [EN]
 
 >>Комиксы и Артбуки
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209579.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит эскизы и концепт-арты по игре "Метро: Исход"Жанр: АртбукФормат: PDF
+Артбук содержит эскизы и концепт-арты по игре "Deathloop".Жанр: АртбукЯзык: АнглийскийФормат: CBR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FB02682C31CB1E099870A9EE2E4DD97E7F084BB
+magnet:?xt=urn:btih:817B25499C957137F400C38E67D526B92011547C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588616   (191291) от 05.11.2022
+
+Ubisoft Massive | Артбук по играм Tom Clancy's The Division / The World of Tom Clancy's The Division (2019) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по играм "Tom Clancy's The Division".Жанр: АртбукЯзык: АнглийскийФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30FC5FA59D3DE3250DEF3B886AA45BA59B4A18DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588864   (191056) от 06.11.2022
+
+Rare Ltd | Артбук по игре Battletoads / The Art of Battletoads (2022) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре "Battletoads".Жанр: АртбукЯзык: АнглийскийФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4495CC5D1F35B2D07C7FE011CCF68748BE616146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588866   (191013) от 06.11.2022
+
+Chris Warner | Артбук по комиксам Чужой и Хищник / Aliens - Predator Panel to Panel (2006) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки из комиксов Чужой и Хищник.Жанр: АртбукЯзык: АнглийскийФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3331E0DD1EBD3F4FDC4866B8D7FACDBF5686FE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589298   (190287) от 09.11.2022
+
+Richard Kadrey | Артбук по играм Myst и Riven / From Myst to Riven - The Creations & Inspirations (1997) [CBZ] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по играм "Myst" и "Riven".Жанр: АртбукЯзык: АнглийскийФормат: CBZ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261031CDA4B17ED0A4B0255F918A3D169AD6B6AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589299   (190204) от 09.11.2022
+
+Iain McCaig, Nick Sagan | Артбук художника Iain McCaig / Shadowline - The Art of Iain McCaig (2008) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190204.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Что такое Shadowline? Это место, где встречаются: свет и тени, надежда и отчаяние, добро и зло. По-моему, это самое интересное место для поиска историй" - Так начинается эта потрясающе реализованная и прекрасно отрисованная новая работа мастера-рассказчика и художника Иэна Маккейга. Маккейг наиболее известен своей работой в качестве главного дизайнера (   Читать дальше...   )Жанр: АртбукЯзык: АнглийскийФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455F0E99721C40C1760388702530C32FDA43DA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589415   (190169) от 09.11.2022
+
+343 Industries | Артбук Энциклопедия по играм Halo / Halo Encyclopedia (2022) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_190169.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках празднования 20-й годовщины Halo, Dark Horse и 343 Industries объединились, чтобы выпустить самое полное руководство по вселенной на сегодняшний день. Охватывающая более ста тысячелетий и охватывающая более ста тысяч световых лет энциклопедия Halo охватывает два десятилетия повествования с потрясающим, невиданным ранее артами и самым подробным исследованием (   Читать дальше...   )Жанр: АртбукЯзык: АнглийскийФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:912DFA8E305539C3CE2F4F0EA31FAE62019E9E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589416   (190162) от 09.11.2022
+
+343 Industries | Артбук по игре Halo Infinite / The Art of Halo Infinite (2021) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_190162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре "Halo Infinite".Жанр: АртбукЯзык: АнглийскийФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3508D8B800624DA19D6BB69C7C8AAFDA4F4D3D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590207   (189403) от 12.11.2022
+
+Nintendo | Артбук по игре Splatoon / The Art of Splatoon (2017) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре "Splatoon".Жанр: АртбукЯзык: АнглийскийФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCC57F07EA4D33B6627F76A68E7578BFC6CC990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590209   (189325) от 12.11.2022
+
+Jorge Gutierrez | Артбук по мультсериалу Майя и три воина / The Art of Maya and the Three (2021) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по мультсериалу "Майя и три воина".Жанр: АртбукЯзык: АнглийскийФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60224C56FB8580A43D62BB4D6FF4DB79DD212471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590208   (189288) от 12.11.2022
+
+Disney Television Animation | Артбук по мультсериалу Утиные истории / The Art of DuckTales (2022) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_189288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по мультсериалу "Утиные истории".Жанр: АртбукЯзык: АнглийскийФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB744E84FFD7FF530603E7D56AC694DF77D137CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592753   (182928) от 23.11.2022
+
+Arkane Studios | Артбук по игре Dishonored / Dishonored - The Dunwall Archives (2014) [CBR] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_182928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре "Dishonored".Жанр: АртбукЯзык: АнглийскийФормат: CBR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C1341ED43539BC69B5CBCAEA311CD2080F19B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1579458   (333361) от 29.09.2022
+
+Mythos - Mythos (1998) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brazil
+02. June
+03. Sunless Sea
+04. November(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C916AA29EA87687786CF8353161A0C190B00B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258841   (333022) от 01.11.2018
+
+Dog Music - Christmas Piano Music For Dogs, Sleeping Music For Pets, Dog Music & Instrumental Christmas Music (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy To The World
+02. Silent Night
+03. The First Noel
+04. Carol of the Bells(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC95372668ECC6E1C5C75B524C710EC94D72BA28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 58904   (332992) от 14.10.2019
 
 Pulp Fiction / Криминальное чтиво - Soundtrack (1994) [ape+cue+log+сканы]
@@ -694,64 +752,6 @@ Kory Caudill - Tree of Life (2015) [OGG|452-545 кб/с]<New Age, Neoclassical, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:683237595ADDAD846838D5BD20D4D2CB701BF236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958000   (325690) от 19.11.2015
-
-Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|tracks]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Humming.... (03:46)
-02. So I Could Find My Way (04:27)
-03. Even In The Shadows (04:15)
-04. The Forge Of The Angels (05:15)(   Читать дальше...   )Производство: Warner Bros.Жанр: New AgeПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B2AF0CBE7BA4B1C119FE3923E84CC8A98A38A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958049   (325632) от 19.11.2015
-
-Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|image + .cue] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Humming
-02. So I Could Find My Way
-03. Even In The Shadows
-04. The Forge Of The Angel(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C4874557D8317CE8EF8721961593D38C3F38B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

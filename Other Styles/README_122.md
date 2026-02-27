@@ -1,3 +1,61 @@
+###  Публикация: 939410   (473564) от 22.09.2015
+
+Jason James - Jason James (2015) [MP3|320 кб/с]<Texan Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes the Heartache (03:27)
+02. I've Been Drinkin' More (03:34)
+03. Hot Mouth Mama (02:32)
+04. Fancy Limousine (03:29)(   Читать дальше...   )Жанр: Texan CountryПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E1CD728A3D576164054C50FF6EBADE04390C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939416   (473558) от 22.09.2015
+
+Jesse Lafser - Raised On The Plains (2015) [MP3|320 кб/с]<Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Hat Blues (02:49)
+02. When It Comes To Loving You (02:41)
+03. Darlin Its A Waste Of Time (03:28)
+04. The Chores Song (03:06)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B785EC0BA5D2F1562051DE74912CA3073BB14A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 797289   (473540) от 05.09.2018
 
 Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (2014) [MP3|320 кб/с]<OST>
@@ -704,61 +762,6 @@ VA - Magic Is The Moonlight/ South Sea Island Favorites (2000) [MP3|320 Kbps] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88DEA1F3135F9463A66AD40AC6285574FED2ECD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548433   (466764) от 18.09.2012
-
-ALTERSON - Entrance (2010) [MP3|320 кб/с]<Психоактивная аудиопрограмма>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Психоактивная аудиопрограммаПродолжительность: 00:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC1BEC724F23CE3EF9E6F5239FE3D87D6B7B908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940731   (466746) от 25.09.2015
-
-The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC|Lossless]<Instrumental, Easy listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello
-02. Tonight I Celebrate My Love
-03. Body Talk
-04. All Time High(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417C6CCC4DE995D3C92BA9AAF04AB03361C860EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

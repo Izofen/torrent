@@ -1,3 +1,203 @@
+###  Публикация: 1397417   (740426) от 20.07.2020
+
+Sky - Masterpieces - The Very Best Of Sky (1984) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Prog Rock, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740426.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Toccata
+A2 Westway
+A3 Fool On The Hill
+A4 Gymnopodie No. 1(   Читать дальше...   )Жанр: Prog Rock, InstrumentalПродолжительность: 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566A2DD5A1B85B65F78EE5739A9AA3A81A0E131C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217800   (740002) от 07.04.2018
+
+Жанна Бичевская - Коллекция Винила (1974 - 1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Acoustic, Folk, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Acoustic, Folk, BalladПродолжительность: 04:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3DE9AF6A14160BE9E85CA2524BA4935871E3F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283387   (739660) от 17.02.2019
+
+B.B. King - Live At San Quentin (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739660.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Introduction By Warden Daniel Vasquez
+A2 B.B. King Intro
+A3 Let The Good Times Roll
+A4 Every Day I Have The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C83FEE1D77283C4544C18EAB51B708F7153E2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283365   (739595) от 17.02.2019
+
+Raffaella Carra - Collections (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A far l'amore comincia tu
+02. Felicita Ta Ta
+03. En El Amor Todo Es Empezar (A far l'amore comincia tu/Spanish version)
+04. Million Dollars(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC388BFC1759A326CB1C356478C811ED36EA035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842948   (738705) от 23.01.2022
+
+James Last - Trumpet A Go Go (1966) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 American Patrol
+A2 Wheels
+A3 Granada(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E31FDA0E4EBBEC3AD7FBBECE8CA26784DA9FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526539   (738126) от 25.01.2022
+
+The Chemical Brothers - Dig Your Own Hole (1997) 2016 [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Big Beat>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738126.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Block Rockin' Beats
+A2 Dig Your Own Hole
+B1 Elektrobank
+B2 Piku(   Читать дальше...   )Жанр: Big BeatПродолжительность: 01:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798232F5F6E616E33A9AB2792F6BEC003A32D96C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843813   (738047) от 25.01.2022
+
+VA - 20 Power Hits (1973) As advertised on T.V. [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side One:
+01. Crocodile Rock - Elton John (1972)
+02. Alright Alright Alright - Mungo Jerry (1973)
+03. Bad Bad Boy - Nazareth (1973)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A3EE8B4691FE5D4D1A056F82A0D78D7C47151B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397762   (737596) от 22.07.2020
 
 The Sugarcubes - Life's Too Good (1991) Recorded April 1988 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Indie Rock>
@@ -538,209 +738,6 @@ Secret Service - Collection (7 LP) (1979-1987) [FLAC 2.0 24/192|image(Vinyl-Rip)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:206AB242BB408334705B6533E3C25AE56E6033B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127804   (729859) от 23.04.2017
-
-Сергей Яковлевич Лемешев - Концерт: арии из опер и романсы П. И. Чайковского (1951) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Classical, Vocal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ария Ленского (П. Чайковский, из оперы ''Евгений Онегин'')
-02. Каватина Владимира Игоревича (А. Бородин, из оперы ''Князь Игорь'')
-03. Соловей (П. Чайковский)
-04. То было раннею весной (П. Чайковский)(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 00:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD0DFDE4CBFC97D00B7516CBB06E3D9FE8309A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530402   (728929) от 11.02.2022
-
-Jethro Tull – The Zealot Gene (2022) [DSD128 2.0|tracks|Vinyl-Rip] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mrs Tibbets (5:53)
- 02. Jacob's Tales (2:13)
- 03. Mine Is The Mountain (5:40)
- 04. The Zealot Gene (3:53)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B246F3D9053A5C3C39ACCB57FD00A839BC6131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284286   (728766) от 21.02.2019
-
-Lynyrd Skynyrd - Last of a Dyin' Breed (2012) [FLAC 2.0 24/192|image|Vinyl-Rip] <Southern Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last of a Dyin' Breed (3:52)
- 02. One Day at a Time (3:46)
- 03. Homegrown (3:41)
- 04. Ready to Fly (5:26)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF22B9BEB60AFD89E76E5C081B92F42347F835D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530226   (728683) от 11.02.2022
-
-ДДТ - Я Получил Эту Роль (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728683.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Поэт (1985)
-A2 Мальчики-мажоры (1985)
-A3 Конвейер (1987)
-A4 Не Стреляй! (1982)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A38E00B185EEA503AC903D3D22F951017B5460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128403   (728545) от 24.04.2017
-
-Jeff Lynne - Armchair Theatre (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728545.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Every Little Thing (3:45)
-A2. Don't Let Go (2:59)
-A3. Lift Me Up (3:38)
-A4. Nobody Home (3:54)(   Читать дальше...   )Производство: Reprise Records - 7599-26184-1Жанр: RockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66386E6A8D4786D67AF6FC32B3C01129F9B5963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955597   (727525) от 12.02.2022
-
-VA - Мельница: Песни И. Николаева (1988) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игорь Николаев	Незнакомка · A Stranger	4:15
-02. Александр Кальянов	Старый Друг · Old Friend	6:54
-03. Алла Пугачева	Любимчик Пашка · Pashka Pet	3:17
-04. Игорь Скляр	Понедельник · Monday	2:51(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06220FFA057ABCADE08BD23862E9BB4D72D0C3FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 883954   (726267) от 13.02.2022
-
-VA - Антология советского киношлягера - Любимые песни из кинофильмов (Человек с бульвара Капуцинов и др.) (1996) [FLAC 2.0|16/44,1 (image+.cue)]<Soundtrack/Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Синема - А. Миронов (из к/ф ''Человек с бульвара Капуцинов'')
-02. Волшебный луч - Л. Долина (из к/ф ''Человек с бульвара Капуцинов'')
-03. Всё прекрасно - Л. Долина (из к/ф ''Человек с бульвара Капуцинов'')
-04. Далека дорога твоя - М. Боярский (из к/ф ''Человек с бульвара Капуцинов'')(   Читать дальше...   )Жанр: Soundtrack/PopПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A80D841D90B62676494D323C24E9D01F0E180ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

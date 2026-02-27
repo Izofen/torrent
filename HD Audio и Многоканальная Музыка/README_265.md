@@ -1,3 +1,206 @@
+###  Публикация: 1820656   (273) от 28.09.2025
+
+Creed - The Best Of Creed (Remastered 2025) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Higher (Radio Edit / Remastered 2025) (4:45)
+02.  One Last Breath (Remastered 2025) (4:00)
+03.  My Own Prison (Radio Edit / Remastered 2025) (4:15)
+04.  Overcome (Remastered 2025) (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA102FFAC85AC50E0B13405322A4654F58FA5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820675   (236) от 28.09.2025
+
+Willow Suns - All out of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dear Light (4:20)
+02.  I Don't Know (3:34)
+03.  Roll with Me (4:00)
+04.  Running Around After You (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A966C987EC18B62C46D7375B5350851173E6B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820660   (235) от 28.09.2025
+
+Devil of a Woman - Last Call for Freedom (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Last Call for Freedom (4:06)
+02.  Change of Poison (4:18)
+03.  Midnight Dancer (4:10)
+04.  Hot Trap (4:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5DF404390CC259826470038DDEB86A884A4F617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820627   (234) от 28.09.2025
+
+Angelwreck - Pieces Of My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Misfit (4:52)
+02.  Super Sleuth (2:28)
+03.  Summertime Magic (3:25)
+04.  Puzzle Pieces (3:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF2F6C334DF722D9FA01B6EAFA9BCDC5276F5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820639   (231) от 28.09.2025
+
+Biffy Clyro - Futique (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  A Little Love (3:38)
+02.  Hunting Season (2:55)
+03.  Shot One (3:30)
+04.  True Believer (4:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD2FEE326B91CE9B33853287C87A4B405F0BD01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820662   (228) от 28.09.2025
+
+Dust and Echoes - Whispers on the Wire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Another Saturday Night (4:56)
+02.  Glass on the Pavement (5:50)
+03.  Golden Hour Embrace (5:36)
+04.  Gypsy’s Lullaby (4:54)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25CD4755CDD0917C777F1A93FF539D91E72885C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820670   (227) от 28.09.2025
+
+Nathan Mitchell - The Legacy Project (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Overture of Legacy (1:58)
+02.  After Hours (4:00)
+03.  Feel The Heat (4:15)
+04.  Breathe (4:50)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9288C5D60019DFC29EEF31DB1D0DFC091EB947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820629   (217) от 28.09.2025
 
 Armando Alonso - Problemas con el gas (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Jazz>

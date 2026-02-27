@@ -1,3 +1,288 @@
+###  Публикация: 1219978   (709860) от 16.04.2018
+
+Pan Demonium - Start The Fire (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приятное редкое германское диско со звуковыми элементами панфлейты.01. Start The Fire (4:13)
+02. Pandora's Box (4:11)
+03. Magic Music (4:26)
+04. Pantomime (3:49)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7741E0AD0235178E9B26E1139A36986B6E703828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219951   (709768) от 16.04.2018
+
+VA - Now That's What I Call Music! 99 (2018) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709768.jpg" />
+</div>
+
+
+###  Подробнее
+
+И так, 23 марта вышел очередной сборник новинок из топов Великобритании и Ирландии. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности.
+Юбилейный - 100-й выпуск планируется 20 июля 2018 года, так что ждать осталось совсем немного. А теперь наслаждайтесь хорошей музыкой...CD1:
+01. Rudimental featuring Jess Glynne, Macklemore and Dan Caplen - These Days  (3:32)
+02. Dua Lipa 	 - IDGAF   (3:36)
+03. Portugal. The Man - Feel It Still  (2:43)(   Читать дальше...   )Релиз состоялся: 23 марта 2018 г.Жанр: Pop, Rock, DanceПродолжительность: 02:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5073A8FA54CBFB3ADE4C1163CF9C97687F63487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401602   (709403) от 10.08.2020
+
+Dazzle - Dazzle (1979) LP [MP3|320 Kbps] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Before You Run (7:28)
+02. It's Not The Same (5:33)
+03. All (6:03)
+04. You Dazzle Me!!! (6:19)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89527B1F5E28EB26F6686AFFFD30FB90B409752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401494   (709394) от 10.08.2020
+
+VA - Happy Acoustic Covers Playlist (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Footloose (03:16)
+02. Nora & Will - Sweet Dreams (Are Made of This) (03:15)
+03. Logan York - I Believe in a Thing Called Love (03:00)
+04. Meg Birch - Shotgun (03:06)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4F2D1DE7775496D6CDE5AC0DE8F90935008747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209561   (709269) от 12.06.2010
+
+Дмитрий Маликов - Коллекция альбомов (1993-2009) [MP3|320 kbps]<POP>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_709269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 16:16:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209465   (709266) от 12.06.2010
+
+Наталья Ветлицкая - Дискография  (1993-2004) [MP3|320 kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_709266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 10:52:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286867   (709089) от 04.03.2019
+
+Angela Bofill - Teaser (1983) Reissue CD, Arista, 1999 [MP3|320 Kbps] <Electronic, Disco, R & B>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special Delivery (4:55)
+02. Call Of The Wild (5:01)
+03. Nothin' But A Teaser (4:45)
+04. I'm On Your Side (5:05)(   Читать дальше...   )Жанр: Electronic, Disco, R & BПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7794425EC377516DA547A7D7F80975B8D8B0A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532827   (708985) от 22.02.2022
+
+VA - Top Easy Listening Hits (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved
+02. Gracie Abrams - Stay
+03. Maroon 5 - Girls Like You
+04. Xavier Rudd - Follow The Sun(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592232322A02333447878573D330EA85EDD6D38B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286704   (708967) от 04.03.2019
+
+ABBA - Classic ABBA (2005) Compilation, Remastered [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterloo (2:47)
+02. Gimme! Gimme! Gimme! (A Man After Midnight) (4:49)
+03. One Man, One Woman (4:36)
+04. Love Isn't Easy (But It Sure Is Hard Enough) (2:54)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21274E10D8AD3CD02A885B87AD15C8EF6EB7D8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532884   (708877) от 22.02.2022
+
+Chris Rea - New Light Through Old Windows (1988) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708877.jpg" />
+</div>
+
+
+###  Подробнее
+
+New Light Through Old Windows - первый альбом-компиляция британского певца и автора песен Chris Rea, выпущенный в 1988 году. Альбом не случайно был назван New Light Through Old Windows - Новый свет сквозь старые окна - большинство песен были новыми, перезаписанными версиями старых релизов. Альбом был хорошо встречен во многих странах, и на волне успеха альбома последовал (   Читать дальше...   )01. Let’s Dance (4:16)
+02. Working on It (4:25)
+03. I Can Hear Your Heartbeat (3:24)
+04. Windy Town (4:06)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F888BB4530FBF0F222F63CF67FC14DFCE2A010C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220142   (708168) от 17.04.2018
 
 Joy Peters - Back To Joy (2012) [MP3|320 Kbps] <Euro-Disco, Pop, Europop>
@@ -452,296 +737,6 @@ Silent Circle - My Star (2020) [FLAC|Lossless|image + .cue] <Electronic, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7ADA778A148CAAAFF0B501445F2783F32DC7DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287205   (705358) от 06.03.2019
-
-VA - Disco Feeling (2019) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kc & The Sunshine Band - Keep It Comin' Love (4:30)
-02. Montana - I Love Music (4:35)
-03. The Braxtons - The Boss (5:57)
-04. Randy Crawford - Wishing On A Star (4:52)(   Читать дальше...   )Жанр: DiscoПродолжительность: 2:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B10CA53D45AF9ADCEEA4DE6C59F2D139A296308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131967   (705230) от 07.05.2017
-
-Daniel Grau - El Leon Bailarin (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Leon Bailarin (4:41)
-02. Con El Cielo En Tus Ojos (3:32)
-03. Apartate (6:40)
-04. Corre Caminos (4:32)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282A1C0F078C797753DD8999B861BC554FD27D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132016   (705228) от 07.05.2017
-
-The Raes - Dancing Up A Storm (1979) LP [MP3|320 Kbps] <Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Little Lovin' (Keeps The Doctor Away) (7:08)
-02. I Only Want To Get Up And Dance (7:25)
-03. Gonna Burn My Boogie Shoes (2:57)
-04. Honest I Do (3:28)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4FE1373EBB49DB8A10C8AB07A372EC385B3EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287180   (705207) от 06.03.2019
-
-VA - Love 101 - 101 Ways To Say I Love You (2009) Box Set, 6 CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Folk, World>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Belinda Carlisle - I Get Weak
-02.	Chaka Khan - Through The Fire
-03.	George Michael - Jesus To A Child
-04.	The Pretenders - I'll Stand By You(   Читать дальше...   )Жанр: Pop, Folk, WorldПродолжительность: 06:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A647B9A271E3F28E545CF403B5E04F8BC6D5241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131998   (704938) от 07.05.2017
-
-Estimado - Here I Am (2016) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here I Am (Album Version) (6:04)
-02. Feelings For You (Extended Version) (7:43)
-03. Diamond Of Rain (Rain Of Love-Part Two) (Extended Version) (8:14)
-04. Yes You One (Extended Version) (8:32)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:733B153F4913B7D987912F7FF6E6EBF9134E5DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533379   (704854) от 24.02.2022
-
-VA - Greatest Classic Hits (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Police - Message In A Bottle (Remastered 2003) (4:50)
-02. The Who - Baba O'Riley (4:59)
-03. Sting - Englishman In New York (4:27)
-04. The Troggs - Wild Thing (2:35)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FAE6FA0F7A5A81FDA5642070194DF81FD28CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220522   (704506) от 19.04.2018
-
-Pavel Panchenko - To the Stars (2017) [MP3|320 Kbps] <Disco, Hi-NRG, Nu Disco, Spacesynth>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Stars (3:31)
-02. Respite (3:40)
-03. The Sign (3:53)
-04. Project X (3:13)(   Читать дальше...   )Жанр: Disco, Hi-NRG, Nu Disco, SpacesynthПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F04757F56DA8A36AAE47903BAA2E1D9059920B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220454   (704413) от 19.04.2018
-
-Geoff Love And His Orchestra - Star Wars And Other Space Themes / Close Encounters Of The Third Kind And Other Disco Galactic Themes (1997) CD [MP3|320 Kbps] <Electronic, Instrumental, Disco, Th ...
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Wars And Other Space Themes (1977):
-01. Main Theme From 'Star Wars' (3:18)
-02. U.F.O. (2:38)
-03. Theme From 'Star Trek' (2:54)(   Читать дальше...   )Жанр: Electronic, Instrumental, Disco, ThemeПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9618D69AE05D38B3B22C2FB276F5CA13C49C507F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402293   (703932) от 13.08.2020
-
-The Difference - High Fly (1979) LP [MP3|320 Kbps] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Fly (Poporompompo) (4:14)
-02. Searchin' (4:20)
-03. Hey Lover (3:56)
-04. Tell Me (5:07)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:24:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175D451FCDD141AF05EEAD4926FAA7F6498A72D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287499   (703692) от 07.03.2019
-
-Electronic Butterflies - Skylab (1977) LP [MP3|320 Kbps] <Electronic, Disco, Experimental, Modern>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор и продюсер - Dan Lacksman. Проект выпускался еще в 1974 году под названием: "Electronic System - Tchip.Tchip (Vol. 3)"01. Tschip Tschip (2:08)
-02. Hey Hey (2:23)
-03. Stay With Me (4:33)
-04. In The Woods (1:56)(   Читать дальше...   )Жанр: Electronic, Disco, Experimental, ModernПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD3EC9705344DA0CE3652522909ACC595448132
 ```
 
 https://mybot314.ru/tekegram_catalog/

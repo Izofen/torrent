@@ -1,3 +1,32 @@
+###  Публикация: 1286061   (185809) от 20.10.2025
+
+VA - The Secret Garden (2012) [FLAC|Lossless|Web-DL|tracks] <Instrumental Hip-Hop, Abstract Hop, Trip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JIM - La Douche (Intro) (2:16)
+02. Tor - Heikki (5:21)
+03. Poldoore - Solstice (4:29)
+04. Travelling Day - Smoking Dog (2:31)(   Читать дальше...   )Производство: DLoaw & CoЖанр: Instrumental Hip-Hop, Abstract Hop, Breakbeat, Downtempo, Trip Hop, BeatsПродолжительность: 01:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3B75D66F66FB0E226D85BE74557508D6C2C9F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426953   (185099) от 26.11.2020
 
 25/17 - Байки из склепа. Часть 3 (2020) EP [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ Freddie Gibbs - $oul $old $eparately (2022) Bonus Edition [FLAC|Lossless|Web-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90C56B8C5A92D75086E74F601C887201921DCD1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344379   (170273) от 10.12.2019
-
-Anacondaz - Мои дети не будут скучать (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мои дети не будут скучать
-02. Пусть они умрут (feat. Noize MC)
-03. Все хорошо (feat. Inice)
-04. Гуд-трип(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BB9510B1199BFBC441FFD4D994813E02D41145
 ```
 
 https://mybot314.ru/tekegram_catalog/

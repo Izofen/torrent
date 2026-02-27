@@ -1,22 +1,23 @@
-###  Публикация: 1436037   (139325) от 30.12.2020
+###  Публикация: 1785448   (69263) от 16.03.2025
 
-Растровый клипарт - Merry christmas and happy new holidays concept set stock photo [JPG]
+Шрифты - Oleh Lishchuk - Behance - Vin Slab Pro - 65431501 [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139325.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый год и рождество, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3860x2573-7360x4912
+Шрифт c кириллицей 16 стилей.
+Разработчик: Oleh LishchukФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49807B24E2D597C52293C48FF9F0FE9246D1EF18
+magnet:?xt=urn:btih:DC0EDA60700241C9FF5B3E74BCA7763B09D62B4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +25,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436020   (139152) от 30.12.2020
+###  Публикация: 1785451   (69258) от 16.03.2025
 
-Растровый клипарт - Girls in black lace underwear stock photo [JPG]
+Шрифты - Oleh Lishchuk - Behance - Spaceland typeface - 87146835 [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139152.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Девушки в черном кружевном нижнем белье, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5333x8000-8000x5339
+Шрифт c кириллицей 22 стиля.
+Разработчик: Oleh LishchukФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2EF739AF0BB55BE74A554C0C88032EEDA3046B8
+magnet:?xt=urn:btih:4C1E307F6A29A04B57B26D5986A3314B6DBBCCE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +52,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436021   (139015) от 30.12.2020
+###  Публикация: 1785446   (69257) от 16.03.2025
 
-Растровый клипарт - Girls in black sexy lingerie stock photo [JPG]
+Шрифты - Oleh Lishchuk - Behance - Vin Mono Pro - 65431645 [TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139015.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Девушки в черном кружевном нижнем белье, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5333x8000-8000x5670
+Шрифт c кириллицей 16 стилей.
+Разработчик: Oleh LishchukФормат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71CC41CF9CFD811090720F73139B79D7286C182F
+magnet:?xt=urn:btih:822F83D02AA596331A52021666F74CF3FFE5E003
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,27 +79,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436034   (139007) от 30.12.2020
+###  Публикация: 1785453   (69256) от 16.03.2025
 
-Векторный клипарт - Happy Chinese New Year 2021 bright decorative design [EPS]
+Шрифты - Oleh Lishchuk - Behance - Mantonico typeface - 94624233 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139007.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Китайский Новый год 2021
-12 EPS + previewФормат: EPS
+Шрифт c кириллицей 16 стилей.
+Разработчик: Oleh LishchukФормат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92AE96FAC664AB18F6A3BDF48BACEFE02F7BF4BC
+magnet:?xt=urn:btih:C2D4456D81395FBB3B8C719B4353DBF740808104
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,27 +106,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436032   (138899) от 30.12.2020
+###  Публикация: 1785484   (69247) от 16.03.2025
 
-Векторный клипарт - Happy birthday holiday invitation realistic balloons 18 [EPS]
+Шрифты - Ditatype - Alderlite [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138899.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Реалистичные воздушные шары
-17 EPS + previewФормат: EPS
+Alderlite — элегантный шрифт-кисть. С классическим стилем он создает красивый и шикарный шрифт.
+
+Кириллица не поддерживается.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1AD931ADB476027E185DEE69F897682D31C255B
+magnet:?xt=urn:btih:3DF165243A349756516DACD05429C7E87DCF4119
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,25 +134,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436027   (138797) от 30.12.2020
+###  Публикация: 1785602   (69246) от 16.03.2025
 
-Шаблоны - GraphicRiver - Mockups Plastic Sunflower Oil Bottles - 29741146 [PSD]
+Шрифты - Creative Market - Rustlime Brush Font - 290846451 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138797.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шаблоны пластиковой бутылки подсолнечного масла.Формат: PSDРазрешение файлов: 16072×9519
+Rustlime Brush — смелый и энергичный шрифт-кисть, который добавит вашим дизайнам сырой, художественный вид.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91779302F4DD7A4769F8E6468E3E814C88EB0FD8
+magnet:?xt=urn:btih:B08A85EFA9BF944F9E841EBEFDF35F5C2DC32C15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,25 +162,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436014   (138748) от 30.12.2020
+###  Публикация: 1785476   (69229) от 16.03.2025
 
-Шаблоны - Sequins Fabric Mockup [PSD]
+Шрифты - Creative Market - Heritage Angles - 290913390 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138748.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Макет эффекта ткани с блестками.Формат: PSDРазрешение файлов: 3500x2250
+Heritage Angles — это округлые шрифты без засечек с очаровательной альтернативной аркой.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E84200D62C0D7DD55664B1D2A3B78B64930796E3
+magnet:?xt=urn:btih:047601BD7F04D76714CEA22D43F2AA8E9014DB45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,25 +190,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436229   (138654) от 30.12.2020
+###  Публикация: 1785598   (69226) от 16.03.2025
 
-Шаблоны - Creative Market - KIDS interior creator - 1344421 [PSD]
+Шрифты - Creative Market - Trapix - A Unique Pixel-Style Serif - 290890009 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138654.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это изделие выполнено в популярном скандинавском стиле. В таком стиле ваши сцены будут выглядеть потрясающе! Вы можете перемещать объекты в сцене, создавая свой непревзойденный дизайн. Реализм теней в этом изделии поразит вас! Простота использования продукта поможет создавать сцены за секунды!Формат: PSDРазрешение файлов: 2190x1963-5959x3407
+Trapix — это шрифт с засечками с уникальным пиксельным характером.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EE5EA621E38256E6F89FC20FF5DB57FCD083FA5
+magnet:?xt=urn:btih:C93E9F8D7C6D8E98546C7FF69A62B9BD268F6EE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,27 +218,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195904   (138599) от 31.12.2017
+###  Публикация: 1785550   (69225) от 16.03.2025
 
-Векторный клипарт - Cartoon Monsters Set 21 [AI]
+Шрифты - Creative Market - CS Violeta 3D - 290819910 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138599.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Набор мультяшных монстров
-4 AI +TIFF PreviewФормат: AI
+Классический шрифт без засечек с ретро-вдохновением 90-х CS Violeta 3D — смелый классический шрифт без засечек, который передает энергию и стиль 90-х, привнося ностальгическую, но современную нотку в ваши проекты.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD880632116D3DC61B5B0271D397B9C72AE86D1E
+magnet:?xt=urn:btih:81F82FF70F54391CA6093E8343EFFE97910C680A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,25 +246,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520897   (138515) от 30.12.2021
+###  Публикация: 1785545   (69215) от 16.03.2025
 
-Сборник - Envato Elements – Christmas Graphics Templates 2021 [AI, PSD, JPG, EPS, ASL, PNG]
+Шрифты - Creative Market - Coretan Komedi Fun Brush Comic Font - 290848899 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Сборники
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138515.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник шаблонов от Envato Elements на тему новый год.Формат: AI, PSD, JPG, EPS, ASL, PNG
+Coretan Komedi — игривый и смелый шрифт-кисть, который идеально подходит для добавления юмора и энергии в ваши проекты.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23C836B5A51587B93F247968519C0D9F146739D1
+magnet:?xt=urn:btih:A40C8E9FA563C6D40FBC9BCBB78BCDBE7FCE14D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,25 +274,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195897   (138450) от 31.12.2017
+###  Публикация: 1785760   (69205) от 17.03.2025
 
-Растровый клипарт - Fresh Fish Set 11 [JPG]
+Шрифты - Patrick Griffin - MyFonts - Marvin [TTF, WOFF, WOFF2, EOT]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138450.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор свежей рыбы, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 6000x4500-8000x5333
+Шрифт c кириллицей.
+Разработчик: Patrick GriffinФормат: TTF, WOFF, WOFF2, EOT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8958B7D1AD096BE304AAFEE2D51A2081F91A8EE2
+magnet:?xt=urn:btih:C84FF07DDDF2509D6370C7C09A21F131415F8E16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,25 +301,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436013   (138333) от 30.12.2020
+###  Публикация: 1785805   (69204) от 17.03.2025
 
-Стили - Realistic Casino Logo Style 3D Text Effects [PSD]
+Шрифты - Ivan Lisichkin - Behance - Шрифт Крыжовник - 115156561 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей для коммерции и персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF8FDB6830A1FBB19BA5F98001533648F921751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785808   (69203) от 17.03.2025
+
+Шрифты - Ivan Lisichkin - Behance - Шрифт Брусника - 98633367 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей для коммерции и персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFE00EE8939204A67DD1FC982A8F493ACF32C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785731   (69201) от 17.03.2025
+
+Пресеты - G-Presets - Photobug Presets [XMP]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138333.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Создайте свой собственный Логотип казино 3D Text Effect с 3 легкостью в Photoshop.\ Используя функции смарт-объектов, вам нужно только изменить пару смарт-объектов, чтобы настроить букву, изменить шрифт и даже использовать пользовательские фигуры.Формат: PSD
+Это сотрудничество с Photobug представляло собой уникальную задачу: как создать одинаково универсальные пресеты для сообщества художников, которые разделяют среду, но сильно различаются по стилю и методу. Непростая задача, скажу я вам. Поэтому мы собрали наши лучшие идеи и переработали их в великолепную коллекцию пресетов, которые закреплены в чистой и вневременной (   Читать дальше...   )Формат: XMP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F24D05BC6CC5B49743D6D80F0D58E8F73688BCBE
+magnet:?xt=urn:btih:5759646DCE0FF78E4ED5EFF72D38753F5599905C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,27 +385,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195901   (138282) от 31.12.2017
+###  Публикация: 1785806   (69200) от 17.03.2025
 
-Векторный клипарт - Fotolia - Christmas Collection 14 [AI, EPS, SVG]
+Шрифты - Ivan Lisichkin - Behance - Шрифт Клюква - 145290893 [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138282.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Рождественская коллекция транспорта
-13 EPS/SVG PREVIEWФормат: AI, EPS, SVG
+Бесплатный шрифт с кириллицей для коммерции и персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C455C2725B3639A16339A0C5BD70E8E1036DA08
+magnet:?xt=urn:btih:7585DA779071FAF480121BBF4B375059542BD914
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,26 +414,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 970621   (138254) от 31.12.2015
+###  Публикация: 1785809   (69197) от 17.03.2025
 
-Рамки - Маша и Медведь [PNG]
+Шрифты - Ivan Lisichkin - Behance - Font Stoneberry - 221080219 [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138254.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рамка для оформления фотографий Ваших ребятишек.
-Автор: FireFly-zzzz1988Формат: PNGРазрешение файлов: 2480х3508
+Бесплатный шрифт - Костяника с кириллицей для персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EDE074CF19C321CC1332D53BEEA3F7C6CF3431E
+magnet:?xt=urn:btih:C2026687E1A3032D1CCFB4218D491CDCC01183A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,25 +443,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436030   (138248) от 30.12.2020
+###  Публикация: 1785775   (69191) от 17.03.2025
 
-Плагины - GraphicRiver - Magic Box - FX Generator - 29449415 [JSX, ZXP]
+Шрифты - Creative Market - Belitha - Script Handwritten - 290852197 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138248.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Magic Box - это расширенный плагин для фотошопа, который сэкономит ваше время! как графический дизайнер или художник, вам нужно потратить часы и часы на создание единого дизайна, но с Magic Box просто забудьте об этом, потому что вы можете создать свой любимый дизайн за секунды и одним щелчком мыши, не тратя времени и без каких-либо усилий. Magic Box поставляется (   Читать дальше...   )Формат: JSX, ZXP
+Belitha — очаровательный рукописный шрифт, который излучает элегантность и теплоту своими плавными, естественными штрихами. Каждый символ тщательно разработан для создания плавного и связного стиля, что делает его идеальным для создания сложных и личных дизайнов.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F9D9C0CF8CB4012EEA6BE0CBCD3D82C891CAC01
+magnet:?xt=urn:btih:D1E9B85DB9C0203B07B5A1758457DB97DB50F05C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -397,25 +471,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195896   (137953) от 31.12.2017
+###  Публикация: 1785738   (69182) от 17.03.2025
 
-Растровый клипарт - Fotolia - Sun with blue sky background [JPG]
+Шрифты - Andriy Dykun - MyFonts - Asterlight [TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137953.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69182.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Солнце с голубым фоном неба с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5000x3333-6510x4340
+Шрифт c кириллицей.
+Разработчик: Andriy DykunФормат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:259C89FEFE0D490F322CE402355016E29053DA37
+magnet:?xt=urn:btih:A4CD701EF0AF01143EE47E585DB50154BAF0F68B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,25 +498,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088550   (137776) от 31.12.2016
+###  Публикация: 1785746   (69180) от 17.03.2025
 
-Экшены - CreativeMarket - Double Exposure PS Actions Vol.5 [ATN]
+Шрифты - Andriy Dykun - MyFonts - Voguer Sans [ TTF, WOFF, WOFF2, EOT]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137776.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69180.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Double Exposure Vol.5 - этот набор содержит 10 действий для Photoshop которые позволяют создать двойную экспозицию, используя различные методы для разных интенсивностей в один клик – огромная экономия времени.Формат: ATN
+Шрифт c кириллицей.
+Разработчик: Andriy DykunФормат: TTF, WOFF, WOFF2, EOT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BD4084365B2D8169D693468E85F7F6B657104E4
+magnet:?xt=urn:btih:95453046A9C800B07B4A05FF6E7978FAC96CB074
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,27 +525,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349263   (137768) от 31.12.2019
+###  Публикация: 1785754   (69179) от 17.03.2025
 
-Шаблоны - PSD исходник - Новый год нам дарит волшебство Part. 19-31, 33-37 [PSD]
+Шрифты - Andriy Dykun - MyFonts - Gunhill [TTF, WOFF, WOFF2, EOT]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137768.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69179.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новогодние многослойные PSD исходники в высоком разрешении для творчества в фотошопе. Многие оценят их по достоинству.
-В данную раздачу вошли выпуски 19-31 и 33-37.
-Автор исходниковФормат: PSDРазрешение файлов: 7677х7677 | 7677- 5757 | 300 dpi
+Шрифт c кириллицей.
+Разработчик: Andriy DykunФормат: TTF, WOFF, WOFF2, EOT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADF4F25B085BBD6DA16DABFEA339F9DAA2DE19D2
+magnet:?xt=urn:btih:C6F19F503ACC95F386F87A4E79343E38A8235221
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,26 +552,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 970681   (137762) от 31.12.2015
+###  Публикация: 1785696   (69170) от 17.03.2025
 
-Рамки - Сборник рамок Маша и медведь [PNG]
+Шрифты - Creative Market - Rodiks Collor - Display Font - 290887832 [OTF, TTF, WOFF]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137762.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69170.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 рамочек для детских фотографий.
-Автор: FireFly-zzzz1988Формат: PNGРазрешение файлов: 2480х3508
+Представляем Rodiks Collor, классный и элегантный дисплейный шрифт.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F0CEE3207A652515D4EAFD761DE8FF975593B6E
+magnet:?xt=urn:btih:D427535C0BA581C60740B124E31D75D65E4FF11C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,25 +580,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349237   (137667) от 31.12.2019
+###  Публикация: 1785705   (69163) от 17.03.2025
 
-Экшены - GraphicRiver - Artistic Sketch 3 Photoshop Action - 24778778 [ATN, ABR, PAT]
+Шрифты - Envato - Dandy Jokes - Fuente Sans Serif para comics de dibujos animados - 5HWRYYU [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137667.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Artistic Sketch - позволяет сделать ваши изображения похожими на профессиональные карандашные рисунки.  После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
+Шрифт Dandy Jokes был выпущен для тех из вас, кто ищет ретро-хипстерский шрифт.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B843C8DCEE4E3A29E20A1DF5F2B439CC1987C43D
+magnet:?xt=urn:btih:C391CB350BD886C34F8400E64ED7FFD884FB7D82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,25 +608,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436357   (137598) от 31.12.2020
+###  Публикация: 1785636   (69162) от 17.03.2025
 
-Растровый клипарт - Pasta pepper tomatoes and cheese stock photo [JPG]
+Шрифты - Creative Market - Cavero - Vintage Heavy Logo Font - 290893690 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137598.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Паста с перцем, помидорами и сыром, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5480x7000-7000x5821
+Cavero — смелый и яркий современный ретро-шрифт без засечек, который идеально балансирует контраст между толстыми и тонкими штрихами.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7F82B323846149D5BF5BCF033E49D20E3E48E62
+magnet:?xt=urn:btih:20A4EFC0F3291AEF051EF9840A7B016EABFFAE50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,26 +636,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088659   (137575) от 31.12.2016
+###  Публикация: 1785811   (69158) от 17.03.2025
 
-Рамки - Рамки-календари на 2017 [PSD]
+Шрифты - Creative Market - Dizzy Font - 282733182 [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137575.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рамки-календари на 2017, многослойные PSD для вашего творчества.
-Автор сборки: nikola120Формат: PSDРазрешение файлов: 4961х3508
+Веселый, беззаботный и причудливый дизайн. Общий эффект — дружелюбие и доступность, что делает его идеальным для проектов, ориентированных на детей, неформальных обстановок или всего, что призвано вызывать чувство радости и веселья.
+
+Кириллица не поддерживается.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B492B8F9D8D0CD256B51C70E3AF01EA2798D3F2
+magnet:?xt=urn:btih:81C64CBF984E03355F1238CAE633DC8D6B102364
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,25 +664,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195908   (137554) от 31.12.2017
+###  Публикация: 1785734   (69156) от 17.03.2025
 
-Клипарт - Creative Market - Snowflakes Collection. Vector - 2084969 [PSD, EPS, JPG]
+Шрифты - Creative Market - CS Wilona Drawn - 290798539 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Сборники
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137554.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник снежинок и красиво оформленным фоном из нихФормат: PSD, EPS, JPGРазрешение файлов: 3279x2488-7608x3825
+Это современный шрифт с засечками, который может похвастаться минималистскими буквенными формами с чистыми, острыми краями. Этот гладкий дизайн передает ощущение изысканности и эстетической привлекательности, что делает его идеальным выбором для высококлассных и профессиональных проектов.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DE6BD6DE060CF9433036898861C9EA83AA5D4EB
+magnet:?xt=urn:btih:C071C015D98D938B155D00E80BAA0C2D407213B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,77 +692,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436371   (137513) от 31.12.2020
+###  Публикация: 1785730   (69152) от 17.03.2025
 
-Растровый клипарт - Sushi sets on black table stock photo [JPG]
+Шрифты - Creative Market - CS Watson Drawn - 290798514 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137513.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наборы суши, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2592x3872-8000x5333
+CS Watson Drawn — это современный шрифт без засечек, который органично сочетает в себе вневременную элегантность дизайна ар-деко с уникальным рисованным штрихом. Этот шрифт с чистыми, симметричными геометрическими формами и смелыми декоративными линиями предлагает роскошную, высококачественную эстетику, вызывающую утонченность и изысканность.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:065AA36A3D05DF665818E7E144B8480ED1176452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970562   (137508) от 31.12.2015
-
-3D сцены - GreyscaleGorilla - HDRI Studio Pack v1.9 для Cinema 4D [lib4d]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137508.jpg" />
-</div>
-
-
-###  Подробнее
-
-HDRI Studio Pack - это коллекция более 70 студийных изображений, которые помогут сделать ваш продукт реалистичным. Все изображения были сняты профессионалами своего дела. Включает в себя видео инструкцию по установке.Формат: lib4d
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F837EF9FEE1F45A715BAFA76A46E530AB0FB2BC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436393   (137488) от 31.12.2020
-
-Растровый клипарт - Baked chicken with a side dish stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запеченная курица с гарниром, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3744x5616-5616x3744
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC775263764278BAD3D3ACFA19641A7D12C27D2
+magnet:?xt=urn:btih:C38CBF89E921E157253F45FCDD14B02FEB5988F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

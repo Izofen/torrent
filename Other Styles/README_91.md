@@ -1,3 +1,67 @@
+###  Публикация: 517511   (647614) от 01.07.2012
+
+VA - Radio Rebel / Бунтарка (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647614.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Whereabouts - Afterthought (2:50)
+ 2. Champion - Backing Off (2:53)
+ 3. Karl Kimmel - Brand New Day (2:37)
+ 4. The Barrymores - Can't Stop The Rock (2:34)
+ 5. Fat Sue - Like You Love Her (3:47)
+ 6. Above Envy - My Revolution (2:37)
+ 7. Two Hours Traffic - No Advances (3:18)
+ 8. The GGGG's - Now I Can Be The Real Me (3:18)
+ 9. Central Park Feat. Maylee Todd - Touch The Ground (1:58)
+ 10. Debby Ryan - True Every Day (3:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAA6F39D68EB128FF049675B9ADA20C6DED647D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906112   (647543) от 07.06.2015
+
+Phil Thornton - Tribale (2015) [MP3|320 кб/с]<New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duma Sa Duma
+02. Bay City Shimmy (Fusion Mix)
+03. Golden Gate Mist
+04. Raqs Shehani(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75244019D01523D631A87FDA816B10ABAA9501BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905944   (647540) от 07.06.2015
 
 Kerani - Equilibrium (2015) [MP3|320 кб/с]<New Age>
@@ -709,75 +773,6 @@ Jorgen Ingmann - Guitar Romantic Collection, vol. 3 (1990) [MP3|320 кб/с]<Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AB3FDF880E2580208917F13C039F5CF6E1982C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517021   (643320) от 03.07.2012
-
-VA - Адажио для арфы / Harp Adagios (2005) [FLAC|Lossless]<Classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Well-Tempered Clavier (24), collection of preludes & fugues, Book I, BWV 846-869 (BC L80-103): P  [03:21]
-   Composer   Johann Sebastian Bach (1685 - 1750)
-
- 02. Sonata for oboe & continuo in G minor, H. 549, Wq. 135: Adagio  [02:19]
-   Composer   Carl Philipp Emanuel Bach (1714 - 1788)
-   Performer   Rama Jucker (Cello), Ursula Holliger (Harp) & Heinz Holliger (Oboe)
-
- 03. Prelude for piano No. 15 in D flat major, Op. 28/15, CT. 180  [05:58]
-   Composer   Frйdйric Chopin (1810 - 1849)
-   Performer   Marisa Robles (Harp)(   Читать дальше...   )Жанр: ClassicalФормат: 2CDПродолжительность: 01:08:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518135   (643313) от 03.07.2012
-
-VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Classical Guitar>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeux Interdits ("Spanish Romance"), for guitar  [01:50]
-   Common Name   Spanish Romance, Jeux Interdits For Guitar
-   Composer   Anonymous
-   Performer   Pepe Romero (Guitar)
-
- 02. Suite española No. 1, for piano, Op. 47, B. 7: Sevilla (Sevillanas)  [04:37]
-   Common Name   Sevilla Sevillanas, Suite Espanola 1 For Piano
-   Composer   Isaac Albйniz (1860 - 1909)
-   Performer   Eduardo FernandezЖанр: Classical GuitarФормат: 2CDПродолжительность: 01:15:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1651911   (206882) от 08.08.2023
+
+Король и Шут - Король и Шут (Официальный саундтрек), Часть 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, Punk Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Алексей Горшенёв - Ели мясо мужики [00:02:10]
+02-Алексей Горшенёв - Лесник (Инструментал) [00:04:37]
+03-Горшок - Иван Факов [00:02:11]
+04-Александр Бузин - Девушка на время [00:04:02](   Читать дальше...   )Жанр: OST, Punk RockПродолжительность: 00:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C86856305A2C55BFEA516815A8F4872C45EF54B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651888   (206744) от 09.08.2023
+
+Chris Spheeris & Paul Voudouris - Enchantment (1991) [FLAC|Lossless|image + .cue] <Instrumental, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enchantment (4:31)
+02. Through the Wall (4:53)
+03. Pura Vida (3:50)
+04. Golden Days (3:44)(   Читать дальше...   )Жанр: Instrumental, New Age, AmbientПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A4C0BFC98481749CFA940C28ECAC21AB7A6C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652199   (206693) от 10.08.2023
 
 Sexy Lovers Music Collection - Barcelona Romantic Cafe: Spanish Guitar Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Guitar, Easy Listening>
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DB372F501036D2054F8615DBF622B2DD3160429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624518   (200287) от 06.04.2023
-
-Король и Шут - Король и Шут (Официальный саундтрек), Часть 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200287.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Прыгну со скалы (Из сериала «Король и Шут»)
-2. Лесник (Из сериала «Король и Шут»)
-3. Внезапная голова (Из сериала «Король и Шут»)
-4. Камнем по голове (Из сериала «Король и Шут»)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B1E3493BFDE0843EAA36BB474D5448DDEC15D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 156512   (199888) от 24.10.2025
-
-Enigma - The Platinum Collection (2009) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_199888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sadeness (Part 1) (4:20)
-02. Mea Culpa (Orthodox Version) (4:01)
-03. Priciples Of Lust (3:27)
-04. Rivers Of Belief (4:24)(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 03:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B2B2433555787882EF95C3CD2DF6E80CD511F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

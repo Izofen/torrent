@@ -1,49 +1,22 @@
-###  Публикация: 1377940   (845897) от 25.04.2020
+###  Публикация: 1275976   (788905) от 14.01.2019
 
-3D модели - KitBash3D - Veh: Spaceships [MAX, OBJ, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заполните галактики, планеты всех ваших фантастических миров с этим комплектом! Независимо от того, создаете ли вы космическую вселенную, киберпанк, высокотехнологичную научную фантастику или любые другие научно-фантастические поджанры, вы можете использовать 10 готовых космических кораблей этого комплекта или настроить свой собственный, чтобы создать совершенно (   Читать дальше...   )Формат: MAX, OBJ, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F6AA0978F50C99F4F6B15948E109403524E3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499743   (845828) от 03.10.2021
-
-3D модели - Daz 3D - Frontline Heroes Bundle - 69871 [DUF]
+3D модели - Daz 3D - Сборник 3D моделей #21 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845828.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Frontline Heroes для DAZ 3D из категории People
-Для Genesis 8 .Формат: DUF
+Набор 3d моделей для DAZ 3D - из 66шт, категории Clothing, People, Animation, Structures.Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19A95F7B2AC4F1D250B1FB6AF1E2A1ADF92301B9
+magnet:?xt=urn:btih:5449419A0E7D2DB18A2577D09E407052DF4E95EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,26 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499748   (845826) от 03.10.2021
+###  Публикация: 578107   (788870) от 14.01.2019
 
-3D модели - Daz 3D - Kota 8.1 Mech Warrior Bundle - 81850 [DUF]
+Фоны - С Новым годом! [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845826.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Kota 8.1 для DAZ 3D из категории People
-Для Genesis 8 .Формат: DUF
+Многослойные фоны можно настраивать применяя стили,градиенты, маски и все инструменты, и палитры в Photoshop изменяя слои, добавляя новые, в общем изменяйте на сколько хватит фантазии, если нет желания оставляйте как есть.Формат: PSDРазрешение файлов: 4700x3500 - 5000x6500
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F9013FC7EE6DFB4874E0BD88D4FB93556B9EACE
+magnet:?xt=urn:btih:D95AFE8F77B93E1D199AC6A4A6505DE86C72ED7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,189 +50,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499735   (845821) от 03.10.2021
+###  Публикация: 1511642   (788789) от 21.11.2021
 
-3D модели - Daz 3D - Cyberpunk MEC Droid and Weapons Bundle - 82421 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk MEC Droid and Weapons для DAZ 3D из категории Props
-Для Genesis 8 .Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687F1944C2013DCA4A3867B99EE61A8ADC6CE10A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499734   (845819) от 03.10.2021
-
-3D модели - Daz 3D - Cyberpunk Weapon Bundle - 80158 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk Weapon для DAZ 3D из категории Props
-Для Genesis 8 .Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4108CE998FCB34D8AE8CF6075EB153382DCF1EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747829   (844268) от 26.04.2020
-
-Растровый клипарт - Winter 2 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под голубыми небесами
-Великолепными коврами,
-Блестя на солнце, снег лежит;
-Прозрачный лес один чернеет,(   Читать дальше...   )Формат: JPGРазрешение файлов: 2122x1664 - 5000x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AA278E380D9F10F63EB926EB12BAE668DE6671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499934   (844160) от 04.10.2021
-
-3D модели - Daz 3D - Juan Carlos 8 Streets of Cyberpunk Bundle - 79595 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Juan Carlos 8 для DAZ 3D из категории People
-Для Genesis 8 .Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27CDCE33B00F853CE94798421FCA3F2524AFF9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499956   (844154) от 04.10.2021
-
-3D модели - Daz 3D - Jada 8.1 Undercover Roller Girl Bundle - 81580 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jada 8.1 для DAZ 3D из категории People
-Для Genesis 8 .Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B9900F5C3277C1021482DD1997940C86B405536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499962   (844153) от 04.10.2021
-
-3D модели - Daz 3D - Topsy 8 Merry and Bright Bundle - 79588 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topsy 8 для DAZ 3D из категории People
-Для Genesis 8 .Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E03AAC6AC7627AED1B1251C7ED1D11D0BB0753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 771599   (843351) от 29.03.2014
-
-Векторный клипарт - Животные / Animals [AI,EPS]
+Векторный клипарт - Merry christmas, cute tiger in santa hat holding 2022 sign [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843351.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Животные и зверушкиФормат: AI,EPS и превью в JPG
+Векторный клипарт для дизайна.
+Новый год
+17 EPS +PreviewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B85D26CB8EC989E0D4B11563FDD4B4D10FBBA2B
+magnet:?xt=urn:btih:EC0E43C2D7DDD456F136171D9EF019CBB3DEDCE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -268,26 +78,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379101   (842908) от 27.04.2020
+###  Публикация: 1511637   (788757) от 21.11.2021
 
-Растровый клипарт - Клипарт пиратский остров [PNG]
+Векторный клипарт - Merry christmas and happy new year, cheerful santa claus and russian snegurochka [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842908.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт на пиратскую тему.
-Автор serginionФормат: PNGРазрешение файлов: 1920x1280
+Векторный клипарт для дизайна.
+Новый год
+14 EPS +PreviewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:018CB816B2581D3E35E512352E57305B78A39520
+magnet:?xt=urn:btih:47E16F81BFF6DE430DC9948F3B78B15F696BE8BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,54 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379108   (842797) от 27.04.2020
+###  Публикация: 1276203   (788537) от 15.01.2019
 
-Шаблоны - NNM-Club - CD шаблоны от Snake1965 - 1379108 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842797.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD шаблоны от нашего одноклубника White1965.Формат: PSDРазрешение файлов: 600x600-850x600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02E3A8A06ABA1E71E2847FA9E60970EC2F547AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112285   (842694) от 08.03.2017
-
-Шрифты - Ice kingdom Bold [TTF, OTF]
+Шрифты - Creative Market - Lukid Typeface - 344517 [TTF, OTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842694.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт, как мультфильме "Холодное Сердце" (Frozen)
-Количество / Штук: 2
-Разработчик: KUSTREN
-(   Читать дальше...   )Формат: TTF, OTF
+Стильный и элегантный рукописный шрифт для любого Вашего творчества.Формат: TTF, OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32D0B105E3034165B6B4DDC0EE04C6B4C77EC393
+magnet:?xt=urn:btih:CFA67B4A954A0B1530C56A37AF0A755475DD4E8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -350,25 +132,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379116   (842656) от 27.04.2020
+###  Публикация: 1276204   (788510) от 15.01.2019
 
-Стили - Creative Market - 3D Text Effects Bundle Vol.4 - 4854498 [PSD]
+Шрифты - Creative Market - Mocka Typeface - 286997 [TTF, OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842656.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот комплект включает в себя 3 наших новейших продукта с трехмерными текстовыми эффектами, которые имеют новый размер 4000x3000 пикселей на 300 точек на дюйм по сравнению с нашими старыми эффектами с размером 2000x1500 пикселей.Формат: PSDРазрешение файлов: 4000×3000
+Семейство Mocka поставляется с 4 уникальными шрифтами. Этот рукописный шрифт имеет очень уникальный внешний вид. Если вам нужно создать что-то необычное, но игривое, Mocka - это тот шрифт, который вы искали.Формат: TTF, OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF8CCED30AB21288947404609E034776C5FF0A82
+magnet:?xt=urn:btih:5FE15BA7F23B3944605B948E19291836AB3D819A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,25 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379120   (842651) от 27.04.2020
+###  Публикация: 1276201   (788503) от 15.01.2019
 
-Фоны - Creative Fabrica - 240 Pastel Backgrounds Bundle [JPG, PNG]
+Шрифты - Creative Market - Southbank Display Font - 825943 [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842651.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор пастельных фонов поставляется с 240 прекрасными фонами (20 комплектов).Формат: JPG, PNGРазрешение файлов: 3600x3600
+Southbank Display Font - это новейший шрифт от Vintage Type Co, который поставляется с четырьмя уникальными стилями, каждый из которых выделен курсивом и чернильной копией. Что бы вы ни проектировали, один из этих стилей наверняка подойдет вашим потребностям! Помимо 4-х стилей, с курсивом и шероховатой проблемной версией, Southbank Display Font поставляется с многоязычной (   Читать дальше...   )Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDD9B97BC4C2C9B2B33265A635D72ED3DC36F555
+magnet:?xt=urn:btih:5D6502418BFE59EC9BF5F4658A47A79624B1B415
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,25 +184,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379114   (842380) от 27.04.2020
+###  Публикация: 1276202   (788502) от 15.01.2019
 
-Сборник - Creative Market - The Icon Bundle 4000 - 618315 [AI, PNG, PSD, EPS, SVG]
+Шрифты - Creative Market - Turismo CF Modern Font - 597977 [TTF, OTF, WOFF, EOT]
 
 >>Материалы для мультимедиа и дизайна
->>Сборники
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842380.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Всем привет. Это мой новый большой набор иконок. В этом наборе вы не увидите, 500 значков стрелок или 300 значков сетки. Только разные и сложные иконки, только хардкор.Формат: AI, PNG, PSD, EPS, SVGРазрешение файлов: 16x16-512x512
+Вдохновленный автоспортом середины столетия, технологиями и бизнесом, Turismo CF разработан для потрясающих логотипов и захватывающих заголовков. По примеру 1960-х и 1920-х годов, Turismo сочетает сильные прямоугольные формы с наклонными вытянутыми кривыми.Формат: TTF, OTF, WOFF, WOFF2, EOT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C8BF9C595104B439DD3A3031E7A08EEEB56377F
+magnet:?xt=urn:btih:27C3C00F23731A3AA8E622170095E2A72E6556B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,28 +210,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 771961   (841758) от 30.03.2014
+###  Публикация: 1511730   (788341) от 22.11.2021
 
-Растровый клипарт - Золотой Биткоин / Golden Bitcoin [JPEG]
+Векторный клипарт - Chinese new year 2022 year of the tiger in vector [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841758.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Золотой Биткоин
-
-Bitcoin, Биткоин (англ. bit — единица информации «бит», англ. coin — монета) — принципиально отличающаяся от других электронная валюта, созданная в 2009 году Сатоси Накамото.
-Название bitcoin применяется к программному обеспечению (кошельку), сети и монете, которая имеет ход в этой сети, часто название монеты сокращают до BTC(англ.) или БТК(рус.).Формат: JPEGРазрешение файлов: 4800x3600-9600x5400
+Векторный клипарт для дизайна.
+Новый год
+8 EPS +PreviewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:249089978B640987E8C4CA91B64A65BF982DF597
+magnet:?xt=urn:btih:ED97FD06DE186664E597C74DFC75AEEF6FEC7E90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,25 +238,332 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500365   (841073) от 06.10.2021
+###  Публикация: 1511717   (788339) от 22.11.2021
 
-Шаблоны - Creative Market - Olive Wood Mock-Up Scene Generator - 1396688 [PSD, JPG]
+Векторный клипарт - Happy chinese new year 2022 vector design [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+8 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF11C656D1D89848C0433C9037192E371D3DD930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511777   (788335) от 22.11.2021
+
+Векторный клипарт - Cute animals for the new year and christmas vector illustrations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+9 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83D0A80BE784A5723B42FF2D861E4FB415013BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511728   (788334) от 22.11.2021
+
+Векторный клипарт - New year 2022 year of the tiger red and gold flower in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+7 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175D08E930D4D5C8431B07268C3CD89ECAD30CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511781   (788330) от 22.11.2021
+
+Векторный клипарт - Set of cute animals for the new year and for christmas in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+14 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1151C628388FDC3697F07486C091B7B2AB2865A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511780   (788329) от 22.11.2021
+
+Векторный клипарт - Cute vector animals for the new year and christmas [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+8 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1C2063977A2A39D0D1332D4AEBFCCB550F2E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511731   (788318) от 22.11.2021
+
+Векторный клипарт - Cute cartoon tiger, christmas, new year card 2022 vector illustration [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+22 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9CFFAF7D460394A7AE8477455249AB837754AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511720   (788311) от 22.11.2021
+
+Векторный клипарт - Happy chinese new year 2022, vector tiger zodiac sign [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+8 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC01ACA9269FE27995F5B81D07138240349DD1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511782   (788309) от 22.11.2021
+
+Векторный клипарт - Set of cute animals for the new year and for christmas in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+8 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A777D8174EC5086015FF4AE8BC6FA4767B38EB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511779   (788308) от 22.11.2021
+
+Векторный клипарт - Cute doodle tiger with watercolor illustration set premium vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+13 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B021E8373AA7E998E935DB69CF9A74AE1FA92771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511784   (788305) от 22.11.2021
+
+Векторный клипарт - Vector chinese new year 2022 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+7 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A3F39388C9C97491B48F9994B1BBAA6ED04084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511922   (788288) от 22.11.2021
+
+Растровый клипарт - Creative Market - White Smoke Transparent PNG & PSD - 6190820 [PNG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте свой креативный дизайн с помощью белого дыма, прозрачного PNG и PSD, из этого набора 16 реальных дыма для Photoshop. Эти дымовые кисти естественной формы можно использовать отдельно или ставить друг на друга.Формат: PNG, PSDРазрешение файлов: 3000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE9AB42C96E7FDA8E04DBB3F335BDEA7F0228D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203471   (787924) от 02.02.2018
+
+Шаблоны - ImageToday - ASADAL Design / 5isucai from TRECA@MOXOMOR aka [PSD, TIF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841073.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот макет содержит французскую кухню из оливкового дерева и столовые приборы, которые помогут вам создать макет, полностью основанный на французских кухонных предметах из оливкового дерева.Формат: PSD, JPGРазрешение файлов: 5422x5000-7652x5664
+Огромный пакет с многослойными дизайнерскими листами известных в сети под брендами ImageToday и ASADAL Design а так же бонусом пакет от известных корейских пиратов 5isucai (ну куда-же без них... что-бы не говорили но они внесли свой вклад в развитие этого направления и этих брендов).
+В своё время эти многослойки были очень популярны и востребованы, .....а на данный (   Читать дальше...   )Формат: PSD, TIF - многослойный (с zip компрессией)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4FC682EB80A6A6EBCC1B71AFF46C09C0C356FE9
+magnet:?xt=urn:btih:D1C4E24348555986FA982601C23E290D5A7185A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -483,25 +571,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500362   (841065) от 06.10.2021
+###  Публикация: 1511949   (787792) от 23.11.2021
 
-Текстуры - Design Bundles - Colorful Patterns Digital Paper Bundle - Includes 480 papers - 88319 [JPG]
+3D модели - Hum3D - UAZ Patriot (3163) 2014 [3DS, C4D, FBX, LWO, MB, Mental Ray|Scanline|V-Ray|*.max, OBJ, STL]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841065.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот цифровой комплект бумаги включает 20 различных наборов бумаги, всего 480 листов! Каждый цифровой бумажный пакет содержит 24 различных изображения с различными базовыми рисунками, такими как шеврон, точки, аргайл, звезды, маррокан, солнечные лучи, квадраты, цветы, сердечки и многое другое! Этот цифровой бумажный набор просто необходим для любой коллекции мастеров (   Читать дальше...   )Формат: JPGРазрешение файлов: 3600x3600
+3d модель автомобиля марки UAZФормат: 3DS, C4D, FBX, LWO, MB, Mental Ray|Scanline|V-Ray|*.max, OBJ, STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27892A939A733B002CE7417B14D0B1B1852F9138
+magnet:?xt=urn:btih:23ED263780D8275AA6B856471077FF6257D91488
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,25 +597,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500360   (840961) от 06.10.2021
+###  Публикация: 1511927   (787791) от 23.11.2021
 
-Шаблоны - Creative Market - Dark Stationery Branding Mockup Set - 6475038 [PSD]
+3D модели - Hum3D - Volvo Electric Tractor Truck 2019 [3DS, C4D, FBX, LWO, MAX, MB, OBJ, STL, WRL]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840961.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уникальная коллекция фирменных шаблонов макетов PSD с различными темными брендами, фирменными бланками, ручкой, конвертом, визитной карточкой, блокнотом, папкой и множеством канцелярских предметов и элементов, идеально подходящих для роскошных и элегантных компаний или других проектов брендинга.Формат: PSDРазрешение файлов: 6000x4000
+3d модель автомобиля марки VolvoФормат: 3DS, C4D, FBX, LWO, MAX, MB, OBJ, STL, WRL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18516B5E5B5D5B076EAEA5E38125282D3B086265
+magnet:?xt=urn:btih:30DDFCD60BF5680E49D4E41B9A2AB5816EF89A8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,25 +623,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500347   (840955) от 06.10.2021
+###  Публикация: 1511931   (787788) от 23.11.2021
 
-Шаблоны - Creative Market - Greeting Cards Mockup Set - 6346131 [PSD]
+3D print - CGTrader - Scooby Doo 3D print [OBJ, STL]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840955.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шаблон поздравительных открыток - многослойный редактируемый файлы .psd, подготовленный для демонстрации вашего индивидуального дизайна путем редактирования смарт-объектов и цветовых слоев.Формат: PSDРазрешение файлов: 4500x3000-6000x4000
+3d модель Скуби-Ду - из американского мультсериала, включающий множество мультсериалов, снятых с 1969 года до наших дней.Формат: OBJ, STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:945C03FD043E6E53AFCE0BBE91D74359AC102176
+magnet:?xt=urn:btih:AD305FE3FD25906E95BE7ACE861F67E1916B1FDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,25 +649,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500349   (840953) от 06.10.2021
+###  Публикация: 1511928   (787761) от 23.11.2021
 
-Шаблоны - Creative Market - Wall & Frames Mockup - Bundle Vol 4 - 1702197 [PSD]
+3D модели - Cults3D - GENSHIN IMPACT - YAE MIKO [STL]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840953.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Идеально подходит для брендинга вашего творения или бизнеса. Мокапы внутренних стен хороши для владельцев магазинов, художников, творческих людей, блогеров, которые хотят рекламировать или показать свой дизайн!.Формат: PSDРазрешение файлов: 2190x1963-5959x3407
+Корпус - цельный, основание - отдельное. Я напечатал ее в масштабе 1/20, так что она была примерно 9 см в высоту, включая основание.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F21243DA5F16F83E2737EA52AAF150C0A48256B0
+magnet:?xt=urn:btih:DC029E6C5BE53D3932D0E0E147759D38917DE3A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,103 +675,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500732   (840832) от 06.10.2021
+###  Публикация: 1203690   (787682) от 03.02.2018
 
-Сборник - GraphicRiver, Envato Elements - Сборник шаблонов от Envato Elements [PSD, IDML, INDD, INX, AI, EPS, INDT]
+Векторный клипарт - Fotolia - Flyer gift card Valentine's Day [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Сборники
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840832.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Большой сборник шаблонов от Envato Elements и GraphicRiver.Формат: PSD, IDML, INDD, INX, AI, EPS, INDT
+Векторный клипарт для дизайна.
+День Святого Валентина
+25 EPS + Jpeg PreviewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86E1D07A5D6DCAC546A62A74D4464F1C2CCBD6FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500350   (840828) от 06.10.2021
-
-Кисти - ArtStation - 2100 + Custom shapes + 1000+ Cheat brushes Mega pack for Concept art [ABR, CSH]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840828.jpg" />
-</div>
-
-
-###  Подробнее
-
-хочу представить вам мой новый продукт 1500+ нестандартных форм Kitbash, над которым я работал некоторое время. особенно полезен для концепт-арта, набросков, иллюстраций. Это один из самых больших пакетов (наборов) профессиональных нестандартных форм на рынке.Формат: ABR, CSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2282C88FF7C1F951C5D2CDCF80542DF10E629C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379419   (840751) от 28.04.2020
-
-Звуковые библиотеки - Fluffy Audio - Scoring Piano - RePack Андрей650071 [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scoring Piano - это пианино Steinway Model B, созданное в великолепной студии недалеко от Флоренции, ТосканаФормат: Kontakt: NICNT, NKI, NKC, NKR, NCW
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E72DE7F77B76F8C8C444930D15EDC8EDC3521AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379283   (840682) от 28.04.2020
-
-Фоны - Creative Fabrica - Big Bundle Graphics [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Графический дизайн Big Bundle 55 с фонами, акварельными мазками, цветами и листьями.Формат: JPG, PNGРазрешение файлов: 639x796-4378x4257
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DAD10B3B601D0AF56368853B7230D5FEB77E6E
+magnet:?xt=urn:btih:46B1D393266D337F3790DBA472FB6831E783AA0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

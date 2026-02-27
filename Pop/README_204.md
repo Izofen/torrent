@@ -1,3 +1,293 @@
+###  Публикация: 1570974   (436123) от 20.08.2022
+
+Linda Jo Rizzo - Greatest Hits & Remixes (2019) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My First, You're My Last (7" Version) 3:40
+02. Fly Me High (Radio Version) 4:07
+03. Heartflash (Tonight) (7" Version) 3:58
+04. Perfect Love (7" Version) 3:35(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CB3F2A2B1B68DB0E89FCDB9986DF7086476AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570396   (436121) от 20.08.2022
+
+London Boys - The Twelve Commandments Of Dance (1988) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Requiem	4:21
+02. Kimbaley (My Ma-Mama Say)	4:14
+03. Harlem Desire	3:46
+04. Chinese Radio	3:48(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C1A881C50AADF5F9379F5B2542B6A85AC0A2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570347   (436051) от 20.08.2022
+
+2 Unlimited - No Limits! (1993) [OGG|485 Kbps] <Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Limit	3:44
+02. Tribal Dance	4:31
+03. Mysterious	4:23
+04. Faces	3:48(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1584B008E813C70CCCFAAC48E539AEFC2AFCF578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570546   (436045) от 20.08.2022
+
+DJ BoBo - 25 Years Greatest Hits (2017) [OGG|485 Kbps] <Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom
+02. Everybody
+03. Somebody Dance With Me
+04. Pray(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27609DD45E7095E02FEC0CFD14C3645115B8786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249421   (436008) от 23.09.2018
+
+Greyson Chance - Hold on 'til the Night (2011) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting Outside the Lines (3:52)
+ 02. Unfriend You (3:22)
+ 03. Home Is in Your Eyes (3:31)
+ 04. Hold on 'til the Night (3:43)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D97AB62FCAD59D0F17A48E1A2A7AA9096233690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249297   (435994) от 23.09.2018
+
+Steps - Step One (1998) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steptro (0:57)
+02. Last Thing On My Mind (3:05)
+03. 5, 6, 7, 8 (3:24)
+04. One For Sorrow (4:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81A3F5ED04CC12BF8F3DCB9B036E51D209C2E73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249244   (435989) от 23.09.2018
+
+VA - Das Beste aus der Starnacht (2018) 2CD [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435989.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Vanessa Mai - Mein Sommer
+02. Nik P. - Glühwürmchen
+03. Beatrice Egli - Verliebt, verlobt, verflixt nochmal(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622BDA112F5BBE3E44824C70BF5B10C56B71CA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553666   (435885) от 01.10.2012
+
+Londonbeat - Legends (2004) 3CD Box Set [FLAC|Lossless]<Europop, Synthpop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Make Me Do Things [4:57]
+02. Being With You [4:26]
+03. Build It With Love [4:19]
+04. Can't Help Wishing Back Yesterday [4:42](   Читать дальше...   )Жанр: Europop, Synthpop •Продолжительность: 01:04:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249354   (435870) от 23.09.2018
+
+Black Light Orchestra - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Downtempo, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morricone (8:17)
+02. Theme For Black Light (5:38)
+03. Fifty Eight (1:00)
+04. Tribute to Barry (5:37)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Downtempo, DiscoПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315F718C954CEEADAFE889CBA35E3D24EEF6CA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249255   (435849) от 23.09.2018
+
+VA - Schlager Für Alle 3 (2018) 3CD [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435849.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Eloy de Jong - Egal was andere sagen
+02. Ella Endlich - Schwimmen und Fliegen
+03. Michael Wendler - Feuermelder(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D45C08CC811844826E2E317870B80C85CFEFE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249396   (435725) от 23.09.2018
 
 John Davis & The Monster Orchestra - 4 Albums (1976-1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -453,297 +743,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:411430F87BE692518097D052D2C89DB86673E348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945400   (433829) от 10.10.2015
-
-Замша - Та, вместо которой (2006) 2CD [FLAC|image+.cue]<Pop, Pop Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Та, вместо которой
-02 - Медленно
-03 - Думала
-04 - Моя Чечня(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B031B44502FED46DA5F8C6E72E8D57F32E615012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323740   (433804) от 05.09.2019
-
-Numero Uno - Uno (1985) LP [MP3|320 Kbps] <Electronic, Pop, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tora Tora Tora (3:25)
-02. Just Like Marco Polo (3:57)
-03. Heart Of Gold (3:38)
-04. Holiday On The Moon (3:06)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-pop, DiscoПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EBA1192CA273C98BB1553A029863B4C4321636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571418   (433729) от 21.08.2022
-
-Madonna - Finally Enough Love: 50 Number Ones (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holiday (7 - Version)
-02. Like A Virgin (7 - Version)
-03. Material Girl (7 - Version)
-04. Into The Groove (You Can Dance Remix Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 03:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF4111458024EB0B24BF7022B9119A2A7A0AD6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249636   (433448) от 24.09.2018
-
-Aural Exciters - Spooks In Space (1979) Reissue CD, ZE Records, 2010 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spooks In Space (3:27)
-02. Marathon Runner (6:24)
-03. Goin To A Showdown (5:20)
-04. Maladie D'amour (5:34)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A559AE1A4CA9622F05A2416F506F05607D48D665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165664   (432601) от 13.09.2017
-
-VA - Good Times 80s (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spinners - Cupid / I've Loved You For a Long Time 03:57
-02. Duran Duran - Rio (Remastered) 05:38
-03. George Benson - Give Me the Night (Single Version) 04:58
-04. The B-52's - Love Shack 05:21(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A42B37472CF0C584B998A9A124A4E606E80011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063602   (432371) от 17.10.2016
-
-Gregg Diamond (Bionic Boogie) - 5 Albums (1977-1979) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раздача охватывает диско творчество Gregg Diamond - известного американского пианиста, барабанщика, композитора и продюсера, принявшего активное участие в развитии джаз и диско музыки 1970-х годов.
-Выпускал альбомы как под своим именем, так и под созданной им, больше для шоу, группой - Bionic Boogie.Список альбомов:
-1977 - Bionic Boogie - Bionic Boogie
-1978 - Gregg Diamond - Bionic Boogie - Hot Butterfly
-1978 - Gregg Diamond - Star Cruiser(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 03:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D54CA9561467ECC6C2DDA0E4A04E971F99F794E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063890   (432057) от 17.10.2016
-
-Lady Gaga - Joanne (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond Heart (03:31)
-02. A-YO (03:28)
-03. Joanne (03:17)
-04. John Wayne (02:54)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34664D566792376D8DEBA648B7463C2E4367897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571504   (431758) от 22.08.2022
-
-Sandra - Close To Seven (1992) [OGG Vorbis|485 Kbps] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Be Aggressive	4:48
-02. Mirrored In Your Eyes	3:29
-03. I Need Love	3:26
-04. No Taboo	3:53(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A126DD0166B0BE18AF46DCA6E1ECDE4C805775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571300   (431688) от 22.08.2022
-
-Sandra - Paintings In Yellow (1990) [OGG Vorbis|485 Kbps] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiroshima	6:52
-02. (Life May Be) A Big Insanity	4:30
-03. Johnny Wanna Live	4:29
-04. Lovelight In Your Eyes	5:29(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B5349182C3B005BDECCCB14A3512A1087BAC1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945877   (431449) от 11.10.2015
-
-Reflex - Взрослые девочки (2015) [FLAC|Lossless|WEB-DL]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction - Погружение
-02. Свобода и любовь
-03. Взрослые девочки
-04. Бросай оружие(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C0677E0181D76C9D35341C16A3B4106C2A27DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,22 @@
-###  Публикация: 1444727   (1034233) от 03.02.2021
+###  Публикация: 1443714   (1035069) от 30.01.2021
 
-Giorgi Mikadze - Georgian Microjamz (2020) [FLAC|Lossless|tracks + .cue] <Jazz, Jazz Rock, Ethnic Jazz, Experimental>
+Одна ночь в Майами / One Night in Miami (2020) WEB-DL [H.264/1080p] [MVO]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034233.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Metivuri (Prelude) (3:44)
-02. Dumba Damba (9:35)
-03. Shedzakhili (Interlude) (1:04)
-04. Elesa (8:46)(   Читать дальше...   )Производство: RareNoise Records – RNR116Жанр: Jazz, Jazz Rock, Ethnic Jazz, Experimental, MicrotonalПродолжительность: 00:56:33
+Действие развернётся в ночь на 25 февраля 1964 года вокруг амбициозного боксёра Кассиуса Клея, еще не сменившего имя на Мухаммед Али. Вопреки прогнозам экспертов он сумел победить Сонни Листона, поразив своим триумфом весь мир, и теперь готов сразиться с любым соперником. Пока толпы людей празднуют его победу в Майами-Бич, Клей, который не может оставаться в городе (   Читать дальше...   )Производство: США / ABKCO Films, Snoot EntertainmentЖанр: ДрамаРежиссер: Реджина КингАктеры: Кингсли Бен-Адир, Эли Гори, Элдис Ходж, Лесли Одом мл., Лэнс Реддик, Christian Magby, Joaquina Kalukango, Николетт Робинсон, Майкл Империоли, Лоуренс Гиллиард мл.Перевод: Многоголосый профессиональныйСубтитры: Русские (forced, full), английские, французские, немецкие, китайскиеПродолжительность: 01:54:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0D6341A3B98987A792612BC68D98A97B7803D70
+magnet:?xt=urn:btih:BDA134EC54FF07FFD3A619B1D0F4FD4926E44F16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444842   (1034232) от 03.02.2021
+###  Публикация: 1443894   (1035068) от 30.01.2021
 
-Logistics - Jungle Music (DRS & Dynamite MC x Logistics Remix) (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+Максим Добрый | Univer 7. Обработка топ уровня! (2020) PCRec
 
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034232.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jungle Music (DRS & Dynamite MC x Logistics Remix) (03:29)Жанр: Drum & BassПродолжительность: 00:03:29
+Курс по Обработке топ уровня!
+Таких шикарных пресетов не получал ещё НИКТО!! более 15 видосов по Обработке!Производство: UniverЖанр: Фото, ретушьПродолжительность: 09:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA8247BEE834F0CA63D0FE51F9ACC3FBA05DD9F2
+magnet:?xt=urn:btih:9AD8269B24639E3917C67333D8FCA19B52FB074C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +51,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444789   (1034231) от 03.02.2021
+###  Публикация: 1443701   (1035067) от 30.01.2021
 
-VA - Intensity: Trance Compilation (2021) [MP3|320 Kbps] <Trance, Electro>
+Сборник клипов (01.2021) WEB-DL [H.264/720p-LQ]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034231.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Авторы сборника "Intensity" объединили свои силы, чтобы достичь нового уровня "Интенсивности", так называется представляемый Вашему вниманию новый транс-сборник, с мощными психоделическими звуками и массивной ударной базой, где нет места милосердию и сладкой лирике.001. Salvatore Mascaro - Isabel
-002. Indecent Noise - Pictures Of A Gallery
-003. Above & Beyond - On My Way To Heaven
-004. Vyacheslav Sketch - New Life(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 08:20:29
+Сборник зарубежных и отечественных видеоклипов за январь 202101_MIA BOYKA, T-killah - Лепесток
+02_Alan Walker & ISAK - Sorry
+03_Markus Schulz & Christina Novelli - Not Afraid To Fall
+04_Brando - Close To You(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:38:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D7D5719385DA47E3935A59464320C08BA16BEF4
+magnet:?xt=urn:btih:78DF2932F71450C9A9DCBBEB256E8CF3B644B81F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +80,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444885   (1034230) от 03.02.2021
+###  Публикация: 1443037   (1035066) от 30.01.2021
 
-DJ Healer - Nothing 2 Loose (2018) All Possible Worlds [FLAC|Lossless|tracks|Vinyl] <Ambient, Breakbeat, House>
+Райя и последний дракон / Raya and the Last Dragon (2021) WEBRip [VP9/2160p] [4K] [Трейлер]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Остальное
+>>Трейлеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034230.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. At Last (Becalming The Storm) (03:27)
- 02. Great Escape (03:09)
- 03. 2 The Dark (08:27)
- 04. Gods Creation (08:01)(   Читать дальше...   )Жанр: Ambient, Breakbeat, HouseПродолжительность: 01:08:00
+Отважной воительнице по имени Райя и её верному спутнику Тук-Туку предстоит покинуть родное королевство Кумандра, чтобы отыскать последнего оставшегося в мире дракона, и с его помощью вернуть надежду на победу над могущественным врагом.Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: Мультфильм, Мюзикл, Фэнтези, Боевик, Комедия, Приключения, СемейныйРежиссер: Дон Холл, Карлос Лопес Эстрада, Пол БриггсАктеры: Келли Мари Трэн, Джемма Чан, Аквафина, Дэниэл Дэ Ким, Сандра О, Бенедикт Вонг, Росс Батлер, Патти Харрисон, Люсиль Сун, Исаак ВангПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 00:04:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BC38030683C5325CA00BE7493DD850636A44A90
+magnet:?xt=urn:btih:59A3417C099A79B1B4992F21B460E23B3AB3A2AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,392 +106,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444943   (1034229) от 03.02.2021
+###  Публикация: 386304   (1035065) от 30.01.2021
 
-C.O.D. - Tears (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears (3:20)
-02. Groovin' (2:52)
-03. Good Time (3:21)
-04. I Just Want To Be With You (3:21)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59580E61C026A14B5EFE8654D6977BFCA7123E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444800   (1034228) от 03.02.2021
-
-VA - Acoustic Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Soul, Pop, RnB>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tamia - Officially Missing You
-02. Leela James - When You Love Somebody
-03. Jason Derulo - Ridin' Solo (Acoustic Version)
-04. Rose Royce - Angel In the Sky(   Читать дальше...   )Жанр: Soul, Pop, RnBПродолжительность: 01:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB76711D6D1B28B9ED6A70251FD13ADDEB9DCC1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444792   (1034226) от 03.02.2021
-
-VA - Best New Electro: Tech House Party (2021) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы фанат не стандартной современной электронной музыки, то вам определенно прийдётся по нраву альбом с названием "Best New Electro: Tech House Party". Сюжет космоса, роботов и технологий синтеза - это потрясающий музыкальный мир, в котором захочется раствориться и не заметить ход времени. Превосходные аранжировки, прогрессивный звук и выделяющееся (   Читать дальше...   )001. Sources - Fields
-002. Korioto - El Bien Y El Mal
-003. Lab Doctors - Doing Tricks
-004. Kacper Kirtz - Clarity(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 08:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31BD4D869523C7627B6A4F9597E3DB1978EB80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444935   (1034225) от 03.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 4 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghosty, Andy Grimwood - All I Know (Vocal Mix) (04:30)
-02. Tact Tokyo - Leaf Of Happiness (Original Mix) (05:12)
-03. Malaky - In Blue (Original Mix) (05:34)
-04. Satorbass - Mindcrime (Original Mix) (03:15)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0669EDFEEF13DDE3E129E4C49E7B1FEFB2D5EDC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444882   (1034224) от 03.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 2 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altered Perception - Bombay Sunset (Original Mix) (04:38)
-02. Rohmz - Promise Land (Original Mix) (05:36)
-03. Vibrant Scientists - Fortune (Original Mix) (09:02)
-04. Al Menos - New Stars (Original Mix) (07:29)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C44379D9C27AAD17160B4F4D3CD0779F997B302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444920   (1034223) от 03.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 3 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sikka - Spellbook (Original Mix) (05:22)
-02. Telpha, Jeauneil Baptiste - Polarity (Original Mix) (03:51)
-03. Swayz - Finding (Original Mix) (06:37)
-04. paul psr ryder - Challenge Everything (Format Remix) (02:03)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A433ED6AECAD3C7DAE5142E0C7BE7C9764DE7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444844   (1034222) от 03.02.2021
-
-Thе Ritсhiе Fаmily - Bad Reputation (1975-1983) [MP3|320 Kbps] <Pop, Funk, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская вокальная группа из Филадельфии. Некогда, во времена Disco, довольно популярная в Америке и мало известная в нашей стране. Основной период их творчества приходится на 1975-1983 года, а в последующие года меликнувшие только со своими ремиксами.01. Theme Of The Queen Of Sheba
-02. Theme Of Nefertiti
-03. Theme Of Cleopatra
-04. Lady Champagne(   Читать дальше...   )Жанр: Pop, Funk, DiscoПродолжительность: 03:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE161BD68BBB3AF0EFFDBAF47B957516D669EAC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444836   (1034221) от 03.02.2021
-
-Любовь Тильман | Мир круженья [Эксклюзивный релиз] (2021) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир круженья – тринадцатый сборник и восемнадцатая книга Любовь Иосифовны Тильман,
-две из которых написаны в соавторстве.
-Настроение сборника, как и почти всех других книг автора, отображает обложка, сделанная ей на основе собственного снимка. Над неподвижными домами, дорогами, светящимися фонарями, островками зелени – гонимые ветрами слои туч и туманы облаков, подсвеченные (   Читать дальше...   )Жанр: современная проза, поэзияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59A1FFAAF58E93160A3475DDDC60ED776519928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444747   (1034220) от 03.02.2021
-
-Газета | Народный совет №4 (январь 2021) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F17C1C69EBF26E2025EE76E25E75865C6DB9C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444906   (1034219) от 03.02.2021
-
-Роско Арбакл. Простая жизнь Фатти и Мейбл / Mabel and Fatty's Simple Life (1915) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец Мейбл хочет выгодно выдать её замуж. Но Мейбл уже любит ФаттиПроизводство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Роско АрбаклАктеры: Роско Арбакл, Мэйбл Норманд, Аль Ст. Джон, Джозеф Суикерд, Джо Бордо, Тед Эдвардс, Филлис Аллен, Билли Гилберт, Бобби ДаннПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B489D16C2C7530DCCB95D35B40296B34617458E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444863   (1034218) от 03.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 1 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denial, Shiva - Don't Forget About Me (Furney Remix) (05:34)
-02. MSdoS, A.k.A - It's You (Original Mix) (05:58)
-03. Swiss, Struz - Together (Original Mix) (05:45)
-04. Exper1menT - Live Already (Original Mix) (07:09)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363510D968D84670AB8F01766D230F3D103ED9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444733   (1034217) от 03.02.2021
-
-The Persuaders - It's All About Love (1976) LP [MP3|320 Kbps] <Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Love (2:57)
-02. Count The Ways (4:58)
-03. I Need Love (4:15)
-04. Quickest Way Out (Vocal) (4:11)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B886262AAB7C476F05300D84D4DB0E88C201586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444245   (1034216) от 03.02.2021
-
-Екатерина Риз | Закон подлости (2017) [EPUB]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маша искренне считала, что не хочет от жизни ничего сверхъестественного. Как и любая девушка хочет быть счастливой, любимой, выйти замуж и создать семью. И она встретила своего принца, человека, которого смогла полюбить, который отвечал ей взаимностью. Но, как порой бывает, любовная лодка разбилась. Под насмешливым взглядом надменного родственника… Который откровенно (   Читать дальше...   )Жанр: Современные любовные романыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB62FBBD21C340363E9B16FE7F063BC80FEDEF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444921   (1034215) от 03.02.2021
-
-Любовь Вайткене, Мира Филиппова | 200 любимых страниц для почемучек. Занимательные науки и увлекательные эксперименты (2017) [PDF]
+Е.В. Колесникова | Я считаю до 20. Рабочая тетрадь для детей 6-7 лет (2008) [DJVU]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
+>>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034215.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хочешь узнать, что изучают различные науки, например такие, как химия, физика, биология? А может быть, ты уже рассматриваешь варианты будущей профессии? Тогда ты выбрал правильную книгу. Прочитав ее, ты разберешься во многом, чего раньше попросту не понимал. Теперь ты будешь знать, чем химические реакции отличаются от ядерных, как появился пенициллин, что такое молочная (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+Это книжка для занятий родителей с детьми старшего дошкольного возраста.
+Через систему увлекательных игр и упражнений дети познакомятся с цифрами до 20, расширят свои знания о временах года и частях суток, о геометрических фигурах, научатся решать логические задачи.Жанр: ОбучениеФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61077AC3E0168960516B507893A10E1E857A9335
+magnet:?xt=urn:btih:4C4C94E5351D6CD1C9DAFA5F796018B3F2F12ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,28 +133,132 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444729   (1034214) от 03.02.2021
+###  Публикация: 1443801   (1035064) от 30.01.2021
 
-MediaHuman Youtube Downloader 3.9.9.52 [Multi/Ru]
+Небесный огонь / Skyfire (2019) BDRip [H.264]
 
->>Архив торрентов
->>Архив 4Apple
+>>Зарубежное кино
+>>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034214.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-YouTube Downloader - удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+Ещё ребенком Сяомэн увидела гибель мамы в облаке пепла на одном из островов Тихоокеанского вулканического огненного кольца. Девушка выросла и пошла по стопам родителей — стала сейсмологом, правда, с отцом после того трагического случая отношения так и не наладились. С командой учёных Сяомэн приезжает на тот самый злосчастный остров, чтобы установить новую систему (   Читать дальше...   )Производство: Китай / Meridian Entertainment, Base FX, China Film Co., Ltd.Жанр: Боевик, триллер, драмаРежиссер: Саймон УэстАктеры: Ханна Куинливан, Ван Сюэци, Шон Доу, Вивиан, Цзи Линчэнь, Джейсон Айзекс, Ши Лян, Лоуренс де Стефано, Хоу Тунцзян, Оуэн КвонгПеревод: Дублированный (IVI), профессиональный, многоголосый (IVI)Язык озвучки: Русский, украинскийСубтитры: Английские (SRT, PGS)Продолжительность: 01:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A32B8085D8847BC2F94BF34B74087BD0837D0DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443775   (1035063) от 30.01.2021
+
+Порнолоджи, или Милашка как ты / A Nice Girl Like You (2020) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда бывший парень называет скрипачку Люси замкнутой, она составляет список безумных поступков, которые должна совершить.Производство: США / SPR Media, Affirmative Entertainment, CaliWood PicturesЖанр: Комедия, мелодрамаРежиссер: Крис Райделл, Ник РайделлАктеры: Люси Хейл, Леонидас Гулаптис, Минди Кон, Адхир Кальян, Джеки Круз, Стивен Фридрих, Скай П. Маршалл, Леа МакКендрик, Джина Пейнбьянко, Надя КуиннПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:027F48652ACC7301ECB32318F43DADA1AA104D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443889   (1035062) от 30.01.2021
+
+OTUS, Анастасия Асеева-Нгуен и др. | QA Lead. Часть 1-4 (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035062.jpg" />
+</div>
+
+
+###  Подробнее
+
+За 5 месяцев мы последовательно рассмотрим все аспекты управленческой деятельности в контексте руководства командой тестировщиков начиная от усиления ваших HardSkills до SoftSkills. Курс позволит глубже осознать рабочие процессы вашей компании и использовать полученные компетенции для грамотного распределения задач среди участников команды разработки.
+Для кого этот (   Читать дальше...   )Производство: OTUSЖанр: QAПродолжительность: 72:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82927BD430AFDD947B134DB7B0A22B1BAE84E73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443768   (1035061) от 30.01.2021
+
+Дичь / Freaky (2020) BDRip [H.264/1080p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035061.jpg" />
+</div>
+
+
+###  Подробнее
+
+В среду 11-го опасный психопат по кличке Мясник, сбежавший из психбольницы для преступников, убил четырёх подростков. В руках у маньяка также оказался антикварный кинжал, с которым он следующим вечером нападает на затюканную старшеклассницу Милли, но девушке удаётся спастись. На следующий день, в пятницу 13-го, Милли просыпается на заброшенном складе в теле маньяка, (   Читать дальше...   )Производство: США / Blumhouse Productions, Divide/ConquerЖанр: Ужасы, комедия, фэнтезиРежиссер: Кристофер ЛэндонАктеры: Винс Вон, Кэтрин Ньютон, Селеста О’Коннор, Миша Ошерович, Эмили Холдер, Николас Старгел, Келли Ламор Уилсон, Митчелл Хуг, Дэна Дрори, Кэти ФиннеранПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B13C2595A294E95370C1EBA1984E5583714707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443976   (1035060) от 30.01.2021
+
+OTUS, Любовь Данилова и др. | Автоматизация тестирования на JavaScript (Часть 1-3) (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель курса - научиться организовывать комплексное автоматизированное тестирование веб-приложений. При освоении будем делать упор на API, UI и E2E тестирование и эффективное использование современных инструментов Puppeteer/Jest. Вы познакомитесь с современными подходами и технологиями, на текущий день применяемыми в автоматизации тестирования веб-приложений.
 
-• Закачка нескольких файлов одновременно
-• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2021Разработчик: MediaHumanПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+После (   Читать дальше...   )Производство: OTUSЖанр: ТестированиеПродолжительность: 30:40:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58ED2B25CADFA60E02143FE78AA5AE4BD4EBAFAA
+magnet:?xt=urn:btih:6D795931E2CB8E49F138C82237F2E202EEC60E6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,28 +266,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444788   (1034213) от 03.02.2021
+###  Публикация: 1440899   (1035059) от 30.01.2021
 
-VA - Quantum Motion (2021) [MP3|320 Kbps] <Synth Space, Electronic>
+Школа СкетчАп | Ландшафт в SketchUp (2019)
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034213.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С музыкой лонгплея "Quantum Motion" мы с Вами отправимся в фантастическое путешествие по просторам нашей необъятной галактике. Так что пристёгиваемся, одеваем наушники и полетели!001. Kalax - Let Go (feat. Anton Vic)
-002. Stilz - Hyperspace Drifter
-003. Julian Wassermann - Komet
-004. Ugo Benso - Houmework(   Читать дальше...   )Жанр: Synth Space, ElectronicПродолжительность: 09:25:25
+Ландшафт в SketchUp для ландшафтных дизайнеров и архитекторовЖанр: ГрафикаПродолжительность: 12:55:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C52CD90E3597AAEED126A618A77FEE1D5CB58B14
+magnet:?xt=urn:btih:9590DA57FE64D7E454B3DBD2B0B0C76A2F6EC8DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,28 +292,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444787   (1034212) от 03.02.2021
+###  Публикация: 845946   (1035058) от 30.01.2021
 
-VA - International Pop Party (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
+Photo Grid - Collage Maker Premium v7.90 [Ru/Multi]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034212.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Абсолютно все треки микса "International Pop Party" просто напичканы отличным танцевальным настроем, чьи мелодии призывают вас самозабвенно пуститься в музыкальное путешествие по самым разнообразным странам и послушать что поют и танцуют их жители.001. The Boyz - Checkmate
-002. DJ Di Granati - Du Bist Engel
-003. Dua Lipa - Levitating
-004. The Whiskey Gingers - Change Your Mind(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 09:00:25
+Используя PhotoGrid, Вы можете превратить свою фото коллекцию в отличный коллаж. Бесплатное приложение по созданию коллажей без ограничений. Поддерживвает экспорт коллажей 2048*2048Тип издания: Premium / Ad-Free (без рекламы)Релиз состоялся: 29.01.2021Разработчик: Cheetah Mobile Inc. (RoidApp)Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D335A8E2B018AFEF6B5B44DCA765924681DFF895
+magnet:?xt=urn:btih:FF44D1FD61742333AEA8A6D22FE9B84068DA5095
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -591,25 +318,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444757   (1034211) от 03.02.2021
+###  Публикация: 1617393   (1035057) от 07.03.2023
 
-Тайны Фрэнки Дрейк / Расследования Фрэнки Дрейк / Frankie Drake Mysteries (2018) BDRip [H.264/1080p-LQ] (сезон 2, серии 1-10 из 10) VIP Serial HD
+Wolves in Winter - The Calling Quiet (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom Metal>
 
->>Зарубежные сериалы
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034211.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сериал расскажет о Фрэнки Дрейк - первой в городе женщине, ставшей частным детективом, действующей в канадском городе Торонто в 20-е годы прошлого века. Фрэнки, обладая всеми качествами, присущими хорошему детективу, вместе со своей помощницей Труди берётся за расследование самых сложных и запутанных дел - даже таких, где, казалось бы, нет никаких улик.Производство: Канада / Shaftesbury Films, Canada Media Fund (CMF), Independent Production FundЖанр: драма, криминал, детективРежиссер: Руба Надда, Садс Сазерленд, Элинор ЛиндоАктеры: Лорен Ли Смит, Шантель Райли, Ребекка Лиддьярд, Шаррон Мэтьюз, Грэйс Линн Кунг, Венди Крюсон, Энтони Лемке, Ромэйн Вейт, Карен Робинсон, Эммануэль КабонгоПеревод: Многоголосый профессиональный (VIP Serial HD)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: ~00:45:00 серия
+01. The Cords That Ends the Pain [00:07:11]
+02. Nemesis [00:07:00]
+03. Pastime for Helots [00:06:26]
+04. Promised Harvest [00:05:36](   Читать дальше...   )Жанр: Sludge Doom MetalПродолжительность: 00:41:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5462D4E052CD5CF0E55FB120ADAD29687B957A45
+magnet:?xt=urn:btih:53CCC245C108B4F032EF6944E6F1C1A883280DE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,28 +347,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444794   (1034210) от 03.02.2021
+###  Публикация: 1617447   (1035056) от 07.03.2023
 
-VA - Beatport Deep House: Electro Sound Pack #237 (2021) [MP3|320 Kbps] <Deep House, Vocal House>
+Holur - Foul Utterings (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034210.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Слушателя ждёт не на один час погружение в море размеренной и мелодичной музыки в стиле Deep House. Специфичная для восприятия на слух, эта музыка способна вызвать довольно противоречивые настроения. Однако, именно она, наиболее выразительно преподносит слушателю для изучения немаленький пласт электронной музыки.001. Maxriven - Astronomia
-002. Mark Silengton - Away From Home
-003. Arthem - Happy And Sweet
-004. Omid 16b - Hope(   Читать дальше...   )Жанр: Deep House, Vocal HouseПродолжительность: 09:44:22
+01 - Foul Utterings (06:09)
+02 - Atop the Throne of Wickedness (04:12)
+03 - Arachnid (04:04)
+04 - Centipede Orgy Christ (04:31)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6D337A6080B5F1824E3494D6C100734BD84591B
+magnet:?xt=urn:btih:E081201E8117751DF869C98524FC3EFEA3DA0C92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,25 +376,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444899   (1034209) от 03.02.2021
+###  Публикация: 1617499   (1035055) от 07.03.2023
 
-Полидор хочет покончить с собой / Polidor vuol suicidarsi (1912) DVDRip
+Defleshed - Grind Over Matter (2022) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034209.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кредиторы наседают на Полидора, грозят тюрьмой и пожизненным заключением. Полидор решает покинуть этот мир... Но как настоящему неудачнику ему это не удаётся...Производство: ИталияЖанр: Комедия, короткометражный, немое киноРежиссер: НеизвестенАктеры: Полидор (Фердинанд Гийом)Перевод: Немой с интертитрамиСубтитры: Итальянские интертитры, русские отдельным файломПродолжительность: 00:08:59
+01. Bent Out Of Shape
+02. Grind Over Matter
+03. One Grave To Fit Them All
+04. Heavy Haul(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:34:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91315B033542FFC856AFB033F36F890920365277
+magnet:?xt=urn:btih:6556A28A9A7A42700870E52A3B815012E026C345
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,28 +405,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444866   (1034208) от 03.02.2021
+###  Публикация: 1617478   (1035054) от 07.03.2023
 
-M. A. 3 - M. A. 3 (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+Suidakra - Wolfbite (2021) [APE|Lossless|image + .cue] <Melodic Death, Folk Metal>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034208.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bee Gee's Mania (Medley) (13:40)
-02. If You Wanna Dance (5:15)
-03. Music (4:13)
-04. When Will I See You Again (4:02)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:47
+1.	A Life in Chains
+2.	The Inner Wolf
+3.	Darcanian Slave
+4.	Faoladh(   Читать дальше...   )Жанр: Melodic Death, Folk MetalПродолжительность: 00:45:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22BC22B5D4DC672BC97376133CEA228302E41C2F
+magnet:?xt=urn:btih:A88F4B5207859507341DF409F060107D709FC2A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,28 +434,277 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444924   (1034207) от 03.02.2021
+###  Публикация: 1617390   (1035053) от 07.03.2023
 
-Mr.Kitty - -+ (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
+Headstone Hollow - Shadow of the Reaper (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034207.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hurt (4:33)
- 02. Let Go (4:05)
- 03. In Loving Memory (3:55)
- 04. Everything Will Be Okay (4:54)(   Читать дальше...   )Жанр: Electronic, Synthwave, DarkwaveПродолжительность: 00:25:54
+01 - Prone Burial (04:43)
+02 - Doublecrossed (03:31)
+03 - Bitter Winds of Sorrow (03:50)
+04 - Die in Agony, Diagonally (03:34)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8B125C04A44FB54DFF0C95D4AFF5F913EF81B0B
+magnet:?xt=urn:btih:5D1D2E343AFF9BC33A1B068E6999F4D40911C8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617625   (1035052) от 07.03.2023
+
+Священномученик Киприан Карфагенский | Книга о благотворительности и милостыне (2016) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшое сочинение «О благотворительности и милостыне» великого святого отца Западной Церкви III века священномученика Киприана, епископа Карфагенского (210–258), было написано около 254 года, после трагических событий гонения Декия на христиан и эпидемии чумы, затронувших также и Карфагенскую церковь в Латинской Африке. Святой Киприан призывает христиан к проявлению (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD78B45B011D35A30E0A8C6B55AA0D8FACC08DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617441   (1035051) от 07.03.2023
+
+Jes.Team - Нет никаких нас (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Волна [00:03:54]
+02. Кого больше нет [00:04:25]
+03. Клетка [00:03:31]
+04. Стая [00:03:32](   Читать дальше...   )Жанр: Rapcore, Nu-MetalПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D90D06795904FF1E7594774A3D8508EB79E1501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617439   (1035050) от 07.03.2023
+
+Hemisphaerium - Thagirion (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pandemonium (00:46)
+02 - Creacion (05:00)
+03 - La Maldicion (04:31)
+04 - El Navegante (05:16)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BA4B9EE8362F523BF7F0534E0D401E7F747E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617537   (1035049) от 07.03.2023
+
+Ожог - Электростанция Z (2004) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Висяк [00:05:48]
+02. Машина [00:04:31]
+03. Песня рабочего-литейщика [00:04:28]
+04. Смерть в кредит, Ч. 5 [00:04:16](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67899B546831608F1604B277DDDD98CC24998EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617476   (1035048) от 07.03.2023
+
+Milking the Goatmachine - Greatest Hits - Covered in Milk (2014) [APE|Lossless|image + .cue] <Death Metal, Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035048.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Ma Baker (Жанр: Death Metal, GrindcoreПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19764BC36073915EA4C67AC4A7659E13A06F52F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617616   (1035047) от 07.03.2023
+
+Сибирская Благозвонница | Святая Мария (2012) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя человека есть не только простой звук, оно обладает воздействием на строй нашей души и соединяет нас со святыми, в честь которых мы названы. Ценность книги «Святая Мария» в том, что здесь собраны воедино жизнеописания святых жен, угодивших Богу с именем Мария, а также сведения о храмах, обителях и лечебницах им посвященных и молитвословия, составленные в их честь. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FD0B4958CF49589FF4013CB9012B8EFFCDCCD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617463   (1035046) от 07.03.2023
+
+The Inspector Cluzo - Horizon (2023) Scene [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Act Local Think Global
+02. Wolf S At The Door
+03. Running A Family Farm Is More Rock Than Playing Rock N Roll Music
+04. Shenanigans(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C01444C19385FEFFC0627A13A2469564805FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617620   (1035045) от 07.03.2023
+
+Священномученик Киприан Карфагенский | О благе терпения (2013) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшое, но весьма известное сочинение великого святого отца Западной Церкви IV века священномученика Киприана, епископа Карфагенского (210–258), «О благе терпения» является по своему жанру словом или проповедью и посвящено одной из главных христианских добродетелей. Примеры для подражания в терпении св. Киприан находит прежде всего во Христе, но также и во святых (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A82A0E2EBA20031564A229107158C710D36A9D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617550   (1035044) от 07.03.2023
+
+Фильм - Стихия: Иллюзорные миры (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы верим в то, что ждем... [00:01:44]
+02. Наш мир арена жестких игр... [00:00:58]
+03. Часто цвета меняют свою окраску... [00:01:44]
+04. В запутанных дорогах... [00:01:40](   Читать дальше...   )Жанр: RockПродолжительность: 00:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E186C3A463C43A3A1ABB1E8B06FF560A956CC7EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

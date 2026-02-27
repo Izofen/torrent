@@ -1,3 +1,58 @@
+###  Публикация: 1368584   (905075) от 22.03.2020
+
+Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz, Pop, Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Henry Mancini - Pink Panther
+02. Nils Lofgren - Keith Don't Go
+03. Hugh Masekela - Stimela
+04. Ben Webster - Gentle Ben(   Читать дальше...   )Жанр: Jazz, Pop, RockПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DABF018BC7AAA75901473E7649435791627E589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 181911   (904966) от 10.03.2010
+
+VA - The Best Of Cafe Del Mar - Compiled By Lahud (2009) [MP3|320 kbps]<Easy Listening/Lounge/Jazz/Lo-Fi>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Easy Listening/Lounge/Jazz/Lo-Fi
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 865218   (904890) от 07.02.2015
 
 Sub Pub Music - Submersive (2014) [MP3|320 кб/с]<Trailer Music>
@@ -701,64 +756,6 @@ Wychazel - In Search of Lemuria (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE8171BB1499E16E71F98C9893DCF7533EAF63CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867186   (901369) от 09.02.2015
-
-VA - Ешь богатых / Eat the Rich (1987) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motorhead - Eat The Rich
-02. Simon Brint - Terrorists
-03. Motorhead - Built For Speed
-04. Danny Eccleston - Nosher In The Bar(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D04A1F19936D29B538B65D58510C7BADA9230B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099996   (901314) от 03.02.2017
-
-Vicente Amigo - Apasionadas Cuerdas del Alma (2015) [FLAC|Lossless|image + .cue] <Flamenco, Acoustic, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bolero A Los Padres (4:23)
-02 - Campos De San Gregorio (4:23)
-03 - Bolero a Marcos (5:40)
-04 - Rio De La Seda (9:43)(   Читать дальше...   )Жанр: Flamenco, Acoustic, GuitarПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C881B6FD91BF013D89073CC49B0F9C24407DA2A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

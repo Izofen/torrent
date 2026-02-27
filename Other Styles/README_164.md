@@ -1,3 +1,61 @@
+###  Публикация: 1627910   (238916) от 23.04.2023
+
+Atahualpa - Музыка у метро (2016) 2CD [MP3|320 Kbps] <Native American, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andino [04:24]
+02. Cultivos [05:16]
+03. La Furia y el Condor [06:15]
+04. Pio Pio [04:38](   Читать дальше...   )Жанр: Native American, WorldПродолжительность: 01:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BDF5F38F33D43E4967CA5C37EFE6D66F5D87CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639005   (238475) от 12.06.2023
+
+Tenhi - Valkama (2023) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Progressive Rock, Neo-Classical, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_238475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saattue [00:11:09]
+02. Kesävihanta [00:04:51]
+03. Valkama [00:07:20]
+04. Rintamaan [00:03:34](   Читать дальше...   )Жанр: Nordic Folk, Progressive Rock, Neo-Classical, NeofolkПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0E7087267BD02162C65B48022A1EEFD4C9813D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628842   (237108) от 02.05.2023
 
 ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
@@ -696,64 +754,6 @@ VA - The Best Christmas Album In The World...Ever! (2020) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6963576D16E96152F62B6923FE3D40A8FD03377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341800   (228780) от 29.11.2019
-
-White String Orchestra - Aktuelle Hits im modernen Streichersound Vol. 2 (1996) [FLAC|Lossless|image + .cue] <Instrumental, Classical Crossover, Cover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Me Softly (4:14)
-02. I Cant Help Myself (3:17)
-03. Where Do You Go (4:17)
-04. My Love (4:06)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, CoverПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2E3A66FA537C9433430E07B0658444A54EAADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341804   (228730) от 29.11.2019
-
-White String Orchestra - Traumhafte Balladen im modernen Streichersound - Vol.3 (1997) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Believe I Can Fly (4:18)
-02. Lonely (3:51)
-03. Time To Say Goodbye (4:05)
-04. When I Die (4:34)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2DE4D18573BEC545054E8B6888B149057DAA0F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

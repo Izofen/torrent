@@ -1,3 +1,290 @@
+###  Публикация: 1363250   (943902) от 27.02.2020
+
+Света - Что мне делать (сингл) (2001) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Что мне делать? (Radio Edit) (03:42)
+02. Что мне делать? (DJ Nikk clubbin mix) (06:21)
+03. Что мне делать? (virtually mix by Cosmonaut) (06:35)
+04. Что мне делать? (Caffe mix) (06:53)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1D1C022BFD4C4F9FF9B7EC138FE333555BBE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363253   (943831) от 27.02.2020
+
+Света - Что мне делать сегодня (сингл) (2001) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Что мне делать? (Radio version) (06:47)Жанр: Pop, DanceПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EFD25446B39316E01AC149B6C0E7DF9FE3F34B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363260   (943829) от 27.02.2020
+
+Света - Самый нежный (2003) [MP3|320 Kbps] <Pop, Europop, Downtempo>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жизнь моя (03:47)
+02. Лети за облака (03:59)
+03. Как чужие (03:50)
+04. Скажи (03:58)(   Читать дальше...   )Жанр: Pop, Europop, DowntempoПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808F4F7BBC654B9F0422C0554F7D3BDD312AF404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363256   (943825) от 27.02.2020
+
+Света - Вернись, моя любовь! (2002) [MP3|320 Kbps] <Pop,  Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вернись, моя любовь! (03:42)
+02. Хватит, довольно (03:39)
+03. Мои слёзы (03:32)
+04. Белый снег (05:35)(   Читать дальше...   )Жанр: Pop,  Europop, Euro HouseПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E584327DE146D8E2259E538EE3E1587899FA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363244   (943823) от 27.02.2020
+
+Света - Lюбовь (1999) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Золотой рассвет (04:05)
+02 Любовь (05:18)
+03 Дорога в аэропорт (04:28)
+04 Просто (03:32)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5FE3186A2C535BA3351299146CC48697077497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363261   (943822) от 27.02.2020
+
+Света - Где найти любовь (2004) [MP3|320 Kbps] <Pop, Euro Pop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весна моя (04:41)
+02. Где найти любовь? (03:42)
+03. Ты не мой (03:44)
+04. Не обижай меня (03:19)(   Читать дальше...   )Жанр: Pop, Euro Pop, Euro HouseПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2DE2F6A02B567D103A1FB152541EEBEC3DB314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363227   (943817) от 27.02.2020
+
+Игорёк - Употреблять охлаждённым (2008) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эти Слёзы Твои .... (3:06)
+02. Мой Лучший Корефан (2:36)
+03. Летом (2:23)
+04. Бросай Бухать (2:55)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA3ED442DDFC0845F88B7FC09315D02E741D5DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363254   (943815) от 27.02.2020
+
+Света - Другая (2001) [MP3|320 Kbps] <Pop, Europop, Trance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Твои глаза (03:40)
+02. Птица (04:45)
+03. Почему? (03:49)
+04. Что мне делать? (06:51)(   Читать дальше...   )Жанр: Pop, Europop, TranceПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8D668BAD7419A1597650496B163099A75B981D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363242   (943814) от 27.02.2020
+
+Арина и "Размер" Project - Предел громкости (2008) [MP3|256 Kbps] <Pop, Euro Dance, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не бросай (4:53)
+02. Зови меня (3:40)
+03. Я там (3:50)
+04. Ближе (3:25)(   Читать дальше...   )Жанр: Pop, Euro Dance, Euro HouseПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1432930D1AE22A0C12A2C664AEB896560735F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363247   (943812) от 27.02.2020
+
+Света - Другой аLьбом (2000) [MP3|320 Kbps] <Pop, Dance, House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Светит луна (03:59)
+02. Моё солнце (04:15)
+03. Оригинал Увидимся /другой (04:04)
+04. Другой оригинал /Уходи (04:13)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D73FB6FFB703CE85F2C4C6E32CECA72FDBC3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983090   (943784) от 06.02.2016
 
 Zayn - Pillowtalk (2016) Single [MP3|320 кб/с] <Pop, R&B>
@@ -451,296 +738,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:843F6108FE8EFFF9CA15370FC1757FBBE3DAD2C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983853   (942120) от 07.02.2016
-
-Joyce Jonathan - Une Place Pour Moi (2016) [MP3|320 кб/с] <French Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Je tiens les renes (03:27)
-02. Le bonheur (03:23)
-03. Les filles d'aujourd'hui (04:23)
-04. Je plonge (03:50)(   Читать дальше...   )Жанр: French PopПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BDF19658A110408C8203995CBE6711C571BB826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984072   (941965) от 07.02.2016
-
-VA - Radio 538 Hitzone 76 (2016) [MP3|320 кб/с] <Pop, Dance, Top40>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный Нидерландский лейбл  Радио 538 открывает в новом году свою серию двухдисковым сетом новинок популярной музыки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1:
-01. Justin Bieber - Love Yourself  (3:53)
-02. Lukas Graham - 7 Years  (3:58)
-03. Zara Larsson & MNEK - Never Forget You  (3:33)(   Читать дальше...   )Жанр: Pop, Dance, Top40Продолжительность: 02:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1AF0B6FD552431ACE3C17B07A72C71340C05AA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363631   (941883) от 28.02.2020
-
-Лика - Fallen Angel (1994) [MP3|320 Kbps] <Pop, Techno, Trance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жажда новых иллюзий (3:25)
-02. Падший Ангел (4:41)
-03. Где-то Там (3:58)
-04. Пусть Пройдет Дождь (4:31)(   Читать дальше...   )Жанр: Pop, Techno, TranceПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F8006C761C9E93B0B012B5994ACB745F1B6F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983528   (941789) от 07.02.2016
-
-La Bouche - A Moment Of Love (1997) Unofficial Release [FLAC|Lossless|image + .cue] <Euro-House, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	You Won't Forget Me 	04:17
-02. 	Unexpected Lovers 	04:25
-03. 	SOS 	                        03:49
-04. 	A Moment Of Love 	04:25(   Читать дальше...   )Жанр: Euro-House, ElectronicПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7FBC2692AD0F4F9F8C53E2D4F3C8EE1DBDB6BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983926   (941780) от 07.02.2016
-
-Burito - Bu Ri To (2015) [FLAC|Lossless|image + .cue] <Pop, R&B, Electronic>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
- 02. Я танцую
- 03. Стих 1
- 04. Разбей меня(   Читать дальше...   )Жанр: Pop, R&B, ElectronicПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1F149850CA79D8381B1E0F07E4FD753F1A1290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983929   (941598) от 07.02.2016
-
-Burito - Bu Ri To (2015) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
- 02. Я танцую
- 03. Стих 1
- 04. Разбей меня(   Читать дальше...   )Жанр: Pop,R&B,ElectronicПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F6454DBB6D18B29741FB8D23D973A381CFC9DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091835   (941421) от 10.01.2017
-
-Rinder & Lewis - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Laurin Rinder & W. Michael Lewis (полные имена) - продюсерский дуэт из Лос-Анджелеса. Выпускал Disco продукцию под разными вывесками, включая наиболее известные: Amrakus, Discognosis, In Search Of Orchestra, Saint Tropez, El Coco, Cheetah, Le Pamplemousse... В историю же вошли их сольные предлагаемые альбомы, близкие по звучанию к европейскому космик-диско, а (   Читать дальше...   )01. Lust  (7:06)
-02. Sloth  (7:52)
-03. Gluttony  (7:07)
-04. Pride  (5:42)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F980C938659189BBFF5330DBFD980C85B6C0B474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090690   (941308) от 10.01.2017
-
-VA - Radio Maxitalo Present: BCR Instrumental Versions Vol. 1-5 (2014-2016) [MP3|128-320 Kbps] <Italo-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Linda Skywalker - Don't Fly Away (Instrumental Version)
-02. Lady Fantasy - You And Me (Instrumental Version)
-03. Modern Boots - Tears Of A Broken Heart (Fast Instrumental Version)
-04. Alan Brando - Love Is Always On My Mind (Instrumental Version)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 07:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5ADEDBC765DDF8AF7C514E71EBF0F98FB651396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363674   (941011) от 29.02.2020
-
-СтеклоVата - Льдинкой по стеклу (2003) [MP3|320 Kbps] <Europop, Novelty, Chanson>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стекловата [03:56]
-02. Просто Осень [04:28]
-03. Тает Снег [03:32]
-04. Прости [03:19](   Читать дальше...   )Жанр: Europop, Novelty, ChansonПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BCFA3867A995210FC9767EF590B6F3627BDFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363625   (940933) от 29.02.2020
-
-Лика - Больше, чем любовь (1996) [MP3|320 Kbps] <Pop, Progressive House, Happy Hardcore>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одинокая луна (Молитва) (Original Version) (4:17)
-02. Вспоминай (Original Version) (4:58)
-03. Танцуй со мной, мой мальчик (4:59)
-04. Би-би такси (Remix) (4:34)(   Читать дальше...   )Жанр: Pop, Progressive House, Happy HardcoreПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC31A4BE5CC053E1BC2F85BA9E750AD667610E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

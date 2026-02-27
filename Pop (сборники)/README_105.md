@@ -1,3 +1,148 @@
+###  Публикация: 1267537   (265461) от 07.12.2018
+
+VA - Club Dance Ambience Vol.168 (2018) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265461.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Mytton - Sugar (Original Mix)
+002. Alyssa Salt - Не отпускает (DJ ANDREY NASH Remix)
+003. Bad Boys Blue - Mon Amie  (KaktuZ Remix)
+004. Black Blood & Crazibiza - Tokoriki (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B9D89309DA88EBB49FFE2D0F04E80FFFD64D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191219   (265227) от 12.12.2017
+
+VA - Unknown 00's (2017) [MP3|320 Kbps] <Alternative Rock, Modern Pop Rock, Synthpop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Horrors (UK) - Scarlet Fields - 2009
+02. Starfield - Top Of Our Lungs - 2010
+03. Bon Voyage - Monster - 2008
+04. Melee - Built To Last - 2007(   Читать дальше...   )Жанр: Alternative Rock, Modern Pop Rock, SynthpopПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D7F0D955AACCE403BDDB670DAB2CEC279422E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339675   (265184) от 20.11.2019
+
+VA - Hot Mix Radio Vol. 08 (2019) [MP3|320 Kbps] <Pop Dance, EDM>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265184.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Greenmamba - One More
+002. Susie Johnson - Double Red (Original Vocal Mix)
+003. A-Jing Project - Drive Into Road
+004. Techneck - Give Me A Bassline(   Читать дальше...   )Жанр: Pop Dance, EDMПродолжительность: 11:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58082951FD75C493DB4B6320ED1C733AD7D21D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267844   (265129) от 08.12.2018
+
+VA - German Top 100 Single Charts 07.12.2018 (2018) [MP3|320 Kbps] <Pop, Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265129.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ava Max - Sweet but Psycho
+002. Mero - Baller los
+003. Sido - Tausend Tattoos
+004. Capital Bra - Feuer(   Читать дальше...   )Жанр: PopПродолжительность: 05:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7964A4D6DC10E3C7CD5699EC75F41F004679A3CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267868   (265128) от 08.12.2018
+
+VA - German Top 40 DBC Deutsche Black Charts 07.12.2018 (2018) [MP3|320 Kbps] <Hip-Hop, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Snake;Selena Gomez;Ozuna;Cardi B - Taki Taki
+02. Bad Bunny;Drake - MIA (feat. Drake)
+03. KitschKrieg;Trettmann;Gzuz;Gringo;UFO361 - Standard (feat. Trettmann, Gringo, Ufo361 & Gzuz)
+04. Anderson .Paak;Kendrick Lamar - Tints (feat. Kendrick Lamar)(   Читать дальше...   )Жанр: Hip-Hop, R&BПродолжительность: 02:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FAE2B332FC7F34614010B9D5BAF9BA02845029E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267757   (265125) от 08.12.2018
 
 VA - German Top 50 Official Dance Charts 07.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -636,169 +781,6 @@ Smtve - Favorites Collection (2025) [MP3|320 Kbps] <Romantic / Cinematic Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A00685F5EBFC73E94F483E1B37A7E75EDC494DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500304   (257295) от 23.05.2012
-
-VA - Сборник классных хитов (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radu Sirbu feat. Sianna - Осколки сердца
-02. Далински Аника - Навстречу друг-другу
-03. Юдина Женя - Небо это я (Vitalik Solt Radio Edit 2012)
-04. Roma Kenga - Ты будешь счастливой
-05. Разина Светлана - Радио НАХ
-06. Пропаганда - Наберу (Sergey Sunny Remix)
-07. Скрябин - Ниби в раю
-08. T1One - Чтобы ты улыбнулась
-09. MainstreaM One & Handyman - Мы не одиноки
-10. Марка - Спокойной ночи, Москва (Remix)(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF96D1A10DC6FB1EA43EA758CB57235D1BAAB04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499334   (256411) от 21.05.2012
-
-VA - Euro Football Cup 2012. The Super Goal Compilation (2012) [MP3|320 кб/с]<Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Copa de la Vida (Radio Edit) - The Champions
-02. Vamos Al la Playa (Radio Edit) - Elucid
-03. The Ketchup Song (Asereja) (Radio Edit) - World Cup Girls
-04. Ritmo del Sol (Radio Edit) - El Ritma
-05. Around the World (Radio Edit) - Atmm
-06. Chihuahua (Radio Edit) - The Supporters
-07. Life Is Life (Radio Edit) - Dance Kings
-08. Bamboleo (Radio Edit) - The Party Boys
-09. Bailando (Radio Edit) - Elissa
-10. Cuba (Party Mix) - Football Disco Club(   Читать дальше...   )2012Жанр: Dance, PopПродолжительность: 01:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C9B9620F4DC13367DD117A5D5A98E1A4CDFEDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498459   (255840) от 19.05.2012
-
-VA - Музыкальные летние хиты (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255840.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DJ Neonilin & Lantra - Буду Любить (Radio Version) (3:13)
-2. Тимур Timbigfamily & Лючана - Dance With Me (4:15)
-3. LiLi - Lady GaGa Отдыхает! (4:07)
-4. Dj Fenix & Kathy Soul - Скажи Мне Да (3:36)
-5. Дмитрий Губич - Эхо Любви (3:12)
-6. СтаЯ - Душа (2:40)
-7. Макс Барских - Dance (Russian Version) (3:21)
-8. V2G feat. Boris Bredin - Цунами (3:13)
-9. T - Killah feat. Виктория Дайнеко - Mirror Mirror.mp3 (3:23)
-10. Dj Smash Feat. Maury - Rendez-Vous (Melloffon Extended Remix) (6:18)2012Жанр: PopПродолжительность: 06:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6368C688259339555DE146404CA966A51F2E1975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363904   (255074) от 17.04.2023
-
-VA - UNKNOWN 70'S (2020 - 2023) 5CD (обновляемая) [MP3|320 Kbps] <Pop, Rock>
-
->>След.
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255074.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Hello - Slow Motion - 1977
-02. 999 - Homicide - 1978
-03. Small Wonder - Ride A Black Sheep - 1974(   Читать дальше...   )Жанр: Pop, Rock, Blues, Disco, Funk, New Wave, Punk RockПродолжительность: 06:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7660953A1C94B1E6CFD2E9CE2E45B77ABE0CC7DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836630   (254246) от 12.11.2025
-
-Romantic Dreams - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Smile When I Light Your Sky
- 02 - Peace of My Soul
- 03 - Hello My Love
- 04 - More Each Day(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3021706E7A14603F2FA0522D49211EA67CBC3733
 ```
 
 https://mybot314.ru/tekegram_catalog/

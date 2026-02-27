@@ -1,344 +1,3 @@
-###  Публикация: 455798   (94004) от 21.02.2012
-
-[Wallpapers:]  Обои для рабочего стола - Mixed Desktop Wallpapers 1080p [Set 3]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Различная тематика обоев
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9851A2B7CC34BE70E57CB1F3CE2DCE580455D466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455860   (94002) от 21.02.2012
-
-Журнал | Автопанорама №2 [февраль 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-На страницах журнала вы найдете эксклюзивные тесты самых знаменитых автомобилей планеты, потребительские тесты наиболее популярных моделей, обзоры предложений тюнинговых компаний, новинки техники, статьи по истории автомобиля, материалы о ремонте и сервисном обслуживании, а также самую полную информацию о ценах на автомобили, услуги и запчасти в автосалонах и сервисных центрах.февраль 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE0A3E99AD0A0F526228A346EEA95705716D1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455806   (94001) от 21.02.2012
-
-[Wallpapers:]  Обои для рабочего стола - Mixed Desktop Wallpapers 1080p [Set 7]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Различная тематика обоев
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:103CC9048968FF10D0A49D5A06B175432BC6602C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456000   (93999) от 21.02.2012
-
-Kill For Thrills - Dynamite From Nightmareland (1990) [MP3|320 kbps]<Hard Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Motorcycle Cowboys (3:48)
-02. Commercial Suicide (5:17)
-03. Brothers' Eyes (5:11)
-04. Paisley Killers (4:27)
-05. Something For The Suffering (4:51)
-06. Rockets (4:18)
-07. Wedding Flowers (3:47)
-08. Ghosts And Monsters (3:36)
-09. My Addiction (4:33)
-10. Misery Pills (5:04)(   Читать дальше...   )1990Жанр: Hard RockПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AE2B5ACE8D01152EBDE8A78077E586B5FA9DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455852   (93998) от 21.02.2012
-
-Журнал | Лучший Автовыбор №8 [февраль 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-"Лучший Автовыбор" - еженедельный автомобильный журнал-каталог. Более 2000 легковых и грузовых автомобилей любого класса, предлагаемых к продаже автосалонами. Публикуются новости и рекламные материалы автосалонов, тесты новых и подержанных автомобилей.февраль 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02EF76935468A1D18FF63F26674EFCA90A58DA91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455804   (93997) от 21.02.2012
-
-[Wallpapers:]  Обои для рабочего стола - Mixed Desktop Wallpapers 1080p [Set 6]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Различная тематика обоев
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B4C4DFE3AEF905C89EC8BC12586E5CD1D0C571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455256   (93994) от 21.02.2012
-
-[Wallpapers] Обои для рабочего стола.
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола,на любой вкус(280 шт.)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3B6219028615B61FCF322DBDB04046C682A70C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456065   (93992) от 21.02.2012
-
-Журнал | Psychologies №70 (февраль 2012) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный журнал PSYCHOLOGIES, который был создан во Франции в 1970 году, за последнее десятилетие стал самым успешным и динамичным издательским проектом Европы, а сегодня выходит в двенадцати странах мира, в том числе – с 2005 года – и в России.
-PSYCHOLOGIES — уникальный «специалист по жизни», поскольку главная его тема — жизнь его читателей. Это знающий друг, доброжелательный советчик и помощник в любых жизненных ситуациях. Он предназначен для женщин и мужчин, молодых и зрелых, семейных и холостых — для всех, кому нужна внятная и достоверная информация о происходящем с ним и с другими; для всех, кто хочет получить квалифицированный совет по поводу отношения к себе и отношений с окружающими — супругом или супругой, детьми, родителями, друзьями, коллегами; для всех, кто хочет улучшить качество свой жизни и обрести уверенность в себе.
-Аудитория PSYCHOLOGIES в России – 605 000 человек (по данным TNS Gallup 2010/IV).2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0677B4AA431B8D223369D72D4EB5D511D2662867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455719   (93991) от 21.02.2012
-
-[Wallpapers] Best HD Wallpapers Pack (20.02.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B20C2AAD94FB2732B295F1B057340A77A375F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456156   (93990) от 21.02.2012
-
-Язва - 12 Сил (2012) [MP3|320 кб/с]<Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Хибара Музла (Максон production)
-02. Там Где Царствует Огонь (ft. OMI 1)
-03. Пусть тебя (Максон production)
-04. Пазл (ft. Некада)
-05. Есть (SKIT)
-06. 12 Сил (Black Market production)
-07. Вон Там (ft. Свора Флэйва)
-08. Сорвало (SKIT)
-09. Яд (Некада production)
-10. По неизвестным причинам (ft. Некада)(   Читать дальше...   )2012Жанр: RapПродолжительность: 00:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843F8A1F7EC47F507EB8A225350F0D1532957FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455761   (93988) от 21.02.2012
-
-[Wallpapers] Girls Wallpapers (21.02.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E7A7628A00B86A2187CCC338E83D53E106AC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455882   (93987) от 21.02.2012
-
-Jaci Velasquez - Diamond (Deluxe Edition) (2012) [MP3|320 kbps]<Pop, christian>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond (3:42)
-02. Give Them Jesus (3:26)
-03. The Sound of Your Voice (3:51)
-04. Stay (3:06)
-05. Fall for You (3:32)
-06. Con El Viento a Mi Favor (4:39)
-07. Tell Me Again (3:38)
-08. Girl (3:24)
-09. Trust in You (3:17)
-10. Guilt (3:54)(   Читать дальше...   )2012Жанр: Pop, christianПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D303B0902BBD15BAB3B9777DEF8A992EB720246F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455306   (93984) от 21.02.2012
 
 [Wallpapers] Girls Wallpapers (19.02.12)
@@ -697,6 +356,366 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3FAB39BB27C607EF0A1D859C8047BB68EE9D2E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455307   (93967) от 21.02.2012
+
+[Wallpapers] Best HD Wallpapers Pack (19.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFD8FEC3D06268C9BEA30491B4B27EA8D4B6BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455764   (93966) от 21.02.2012
+
+[Wallpapers] Best HD Wallpapers Pack (21.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7360C2FFC6A03A630B0396E2B6BF34093F887CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455760   (93965) от 21.02.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (21.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BB22B41907967275C6DC5981A7D000DD6B232B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455958   (93964) от 21.02.2012
+
+Kalapana - Kalapana II (1976) [MP3|320 kbps]<Funk, pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Love 'Em (3:08)
+02. Freedom (3:56)
+03. (For You) I'd Chase A Rainbow (2:57)
+04. Way That I Want It To Be (4:09)
+05. Dorothy Louise (3:21)
+06. Play It Sing It (2:49)
+07. Moon And Stars (3:22)
+08. Black Sand (5:20)
+09. Lost Again (3:15)
+10. Wandering Stranger (4:00)(   Читать дальше...   )1976Жанр: Funk, popПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAA4575137687B41D419BDCEE387CFEE6B0A011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455720   (93963) от 21.02.2012
+
+[Wallpapers] World Games Wallpapers 2 (20.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D50116FC353F62652A2F68E597A8C9AD7055FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455762   (93962) от 21.02.2012
+
+[Wallpapers] Girls Wallpapers Mix (21.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700B1478687926868F1CBEBA7B58E2298A1C9CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455716   (93961) от 21.02.2012
+
+[Wallpapers] Girls Wallpapers (20.02.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA32E90B1F3A2C5455E90202B2395095EA7075A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455443   (93960) от 20.02.2012
+
+Ephor - Maybe It`s You (2012) [MP3|320 kbps]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe It`s You (05:13)
+02. Close My Eyes (05:51)
+03. Space Trip (05:12)
+04. Dons You (05:07)2012Жанр: Drum & BassПродолжительность: 00:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14CCC812FFF4F6E700C176357A8133986964D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455630   (93959) от 20.02.2012
+
+VA - Ночь Любви на Муз ТВ (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Balan - Лишь До Утра
+02. Mylene Farmer - Lonely Lisa
+03. Филипп Киркоров - Даже Если Ты Уйдешь
+04. Brian Mcknight - What's It Gonna Be
+05. Даша Суворова - Я Пою Тебе
+06. Roxette - No One Makes It On Her Own
+07. Сергей Трофимов И Лайма Вайкуле - Я И Ты
+08. Seal - Kiss From A Rose
+09. Катя Бужинская - Нежный, Родной
+10. W. Houston, Kelly Price & Faith Evans - Heartbreak Hotel(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C0F5E8CE4ED7D77FDC5E76E5044984092A0A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454488   (93958) от 20.02.2012
+
+VA - US TOP 40 Single Charts (18.02.2012) [MP3|~201~272 kbps]<House, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 Kelly Clarkson - Stronger (What Doesn't Kill You) 03:42
+ 02 Adele - Set Fire To The Rain 03:35
+ 03 Fun. Feat. Janelle Monae - We Are Young 04:12
+ 04 LMFAO - Sexy and I Know It 03:21
+ 05 Flo Rida - Good Feeling 04:07
+ 06 Rihanna Feat. Calvin Harris - We Found Love 03:36
+ 07 Whitney Houston - I Will Always Love You 04:31
+ 08 David Guetta Feat. Nicki Minaj - Turn Me On 03:20
+ 09 Tyga - Rack City 02:33
+ 10 Madonna Feat. Nicki Minaj & M.I.A - Give Me All Your Luvin' 03:22(   Читать дальше...   )18.02.2012Жанр: House, ClubПродолжительность: 02:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F778722F28AF8E06A8FA950DF904DFE2B87693D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455166   (93957) от 20.02.2012
+
+DJ Feel - TranceMission Top 25( Of January 2012) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah - Falling Away (Protoculture Remix) (ARMADA)
+02. DJ Feel feat Loona - Ill Find Myself (Original Mix) (ALTER EGO)
+03. Orjan Nilsen - Legions (Original Mix) (ARMIND)
+04. Mike Foyle feat. Refeel - Universal Language (Original Mix) (SOUNDPIERCING)
+05. Cold Blue - Coconut (Original Mix) (MONSTER TUNES)
+06. alexander popov - elegia (original mix)
+07. Robbie Rivera - Dance Or Die Series 2 - Makes Me Feel Good (JUICY)
+08. Marcel Woods - Everything (Marcel Woods 2nd Treatment) (MUSICAL MADNESS)
+09. Ferry Corsten feat Ben Hague - Aint No Stoppin (Original Extended) (FLASHOVER)
+10. Cosmic Gate & Arnej - Sometimes They Come Back For More (Stoneface & Terminal Remix) (BLACK HOLE)(   Читать дальше...   )25 Of January 2012Жанр: TranceПродолжительность: 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B7CC9D64C5D6DAF3180429FF1EB8FB67A69C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455396   (93956) от 20.02.2012
+
+VA - Клубные новинки vol.2 (2012) [MP3|128-320 kbps]<Club, Electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. DJ Antoine feat. The Beat Shakers - Ma Chеrie (Raf Marchesini Remix)
+ 2. Hotel Stereo - Out Of My Mind (Extended Mix)
+ 3. Queen, Roul & Doors - We Will Assidulty (DJ Flight Secret Mash)
+ 4. Schoolboy - The Science Project feat Ricco Vitali (Original Mix)
+ 5. TON!C - Groundy (Original Mix)
+ 6. Bel Suono - Te Quiero (Jasper Forks Remix)
+ 7. Black Eyed Peas - Dj Veryty - The Time (Dub Remix)
+ 8. Bruno Barudi, Steklo - Fly Away (Original Mix)
+ 9. David Guetta - Love is gone (DJ Veryty) Remix
+ 10. DjPromElektron - Alfa & Omega2012Жанр: Club, ElectronicПродолжительность: 04:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B882F27974074C0D3276B82D04B0578532E7CE95
 ```
 
 https://mybot314.ru/tekegram_catalog/

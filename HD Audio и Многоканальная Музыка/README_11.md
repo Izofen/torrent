@@ -1,3 +1,209 @@
+###  Публикация: 1105409   (874934) от 18.02.2017
+
+Duran Duran - Notorious (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874934.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Notorious
+A2	American Science
+A3	Skin Trade
+A4	A Matter Of Feeling(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6D710DCECA83540E6D5487CFA041AD805349FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300925   (872231) от 26.02.2011
+
+Ludwig van Beethoven - Symphonies 4,5,6,9 (Daniel Barenboim) (2000) [MLP 5.0, 2.0 96/24 |DVD-Audio]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872231.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Allegro ma non troppo, un poco maestoso 17:35
+2. Molto vivace15:15
+3. Adagio molto e cantabile17:56
+4. Presto - Allegro assai - Presto - Allegro assai 25:382000Жанр: ClassicalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872400   (872108) от 26.02.2015
+
+Ван Клиберн - Ван Клиберн (1987) [FLAC 1.0 24/96|traks(Vinil-Rip)]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Ф. Лист
+1. Грёзы любви (Ноктюрн №3)  4:04
+2. Венгерская рапсодия №12  10:36
+Ф. Шопен(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA63D0DE881B7B64DB45FD30B105E91A1745D3E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872332   (872061) от 26.02.2015
+
+Ван Клиберн, симфонический оркестр Московской Государственной филармонии (К. Кондрашин) - С. Рахманинов – Концерт №3 для фортепиано с оркестром (1975) [FLAC 1.0 24/96|traks(Vinil-Rip)]<Classical ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт №3 Ре Минор для фортепиано с оркестром, соч. 30
+Сторона 1
+1. Allegro ma non tanto  17:38
+Сторона 2
+1. Intermezzo. Adagio  10:48(   Читать дальше...   )Жанр: Classical, Neo-RomanticПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F091C3FD2E4320C7D6541A4EF792989DE056B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106721   (869534) от 21.02.2017
+
+VA - RETROспектива, часть XII. Мелодии и песни из кинофильмов I (1939-1965) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Э. Горовец - Ты не печалься (из к-ф ''Большая руда'')
+02. М. Новохижин - Сероглазая (из к-ф ''Огонёк в горах'')
+03. М. Новохижин - Огонёк (из к-ф ''Огонёк в горах'')
+04. Т. Таубэ - Амадо Мио (из к-ф 'Рим в 11 часов'' или ''Джильда'')(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D59E8C99EE03292BFCC65957A7E8A6FC76B3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999510   (864205) от 22.03.2016
+
+Horizont and Friends - Late Night Chillout Lounge (2003/2008) [DTS 5.0 CD-DA|44.1/16|image+cue|SACD] <new age>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864205.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Insect - Paranoise
+2. Show In L.A. - Horizont
+3. Consequenze - Horizont
+4. Victim - Paranoise(   Читать дальше...   )Жанр: new age, relaxПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146736C742E331F4C1EBC81A386175C46B392FA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108388   (864034) от 24.02.2017
+
+Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864034.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЧЕРРОНЕ ЖАН-МАРК (Cerrone Jean Marc) (р. в 1952, Сен-Мишель, Франция), французский композитор, продюсер и барабанщик.
+     Хотя слушателю 1990-х годов это имя едва ли говорит о многом, два десятилетия назад, во времена диско-бума конца 70-х, он был одним из самых продуктивных и изобретательных творцов европейской танцевальной музыки: как композитор, продюсер и барабанщик (   Читать дальше...   )Альбомы:
+1976 - Love In C Minor
+1977 - Cerrone's Paradise
+1977 - Cerrone III - SupernatureЖанр: DiscoПродолжительность: 01:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE580ACCFFE03490CD71B85B01CBE72DC77DDDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375874   (863367) от 15.04.2020
 
 The Alan Parsons Project – Ammonia Avenue (1984) 2020 [DTS 5.1 CD-DA|44.1/16|image+.cue|BD-Audio] <electronic, rock, pop>
@@ -539,206 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A286BC7EC7C1FC1FF6F538F985372B748D34FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499460   (847826) от 02.10.2021
-
-Bonnie Tyler - All In One Voice (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847826.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Heaven
-A2 Like An Ocean
-A3 Soon Will Be Too Late
-A4 You Always Saw The Blue Sky(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8365CF1C85317E9D8A6D3349E2E82AE568F3E24B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870976   (846917) от 01.04.2016
-
-Юра Саркисян (кларнет) - 2002 (2002) [FLAC 2.0|44.1/16|tracks|MC-Rip] <Folk/Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Праздничный танец
-02. Танец Юрика
-03. Восточный таней
-04. Далеко ты от меня(   Читать дальше...   )Жанр: Folk/PopПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1199CC2B9492386438ED62F77D76981AD3AE1F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003224   (845110) от 02.04.2016
-
-Аспид - Кровоизлияние (1992) 2016, Metal Race [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро
-02 - Он пришел (Аспид)
-03 - К цели одной
-04 - Дай мне(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A98F8D0099E1C56F5E4432BE9CD04DE618D9F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 650181   (845067) от 29.04.2013
-
-Celine Dion – All the Way….A Decade of Song (1999) [DSD 5.1 1bit/2822,4kHz | SACD-R] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBEC295AC2AE92D889B9A76B9079F7F072C424C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112154   (844772) от 07.03.2017
-
-Manfred Mann's Earth Band With Chris Thompson - Criminal Tango (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844772.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Going Underground (5:19)
-A2. Who Are The Mystery Kids (3:45)
-A3. Banquet (5:17)
-A4. Killer On The Loose (4:00)(   Читать дальше...   )Производство: Virgin - 207 629-630Жанр: Progressive RockПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECBB14DFE7ECA3470324BCDF5CED82DC1C208BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499462   (842350) от 05.10.2021
-
-Московский Камерный Орк., дир. Л. Маркиз - Mozart - Cassation No. 1 In G Major K. 63 / Concerto No. 2 For Harpsichord And Orchestra In B Flat Major (1972) [FLAC 2.0|96/24|image +.cue] <Classical ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cassation No. 1 In G Magor K. 63 --- Кассация № 1 Соль Мажор К. 63
-A1 Marche
-A2 Allegro
-A3 Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758B21FB195E6A2868BB9C44981F05983F1924E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500378   (841290) от 06.10.2021
-
-Cinderella - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Don`t Know What You Got
-02. Heartbreak Station
-03. Hard To Find The Words(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858AA927F0CB1C3D96BE3612DBCC68414E724EE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

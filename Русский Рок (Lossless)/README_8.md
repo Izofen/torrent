@@ -1,3 +1,32 @@
+###  Публикация: 1359171   (966198) от 10.02.2020
+
+Sergey Golovin - Sculpture (2018) [FLAC|Lossless|Web-DL|tracks] <Progressive Metal, Instrumental Rock, Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somnambu (1:23)
+02. Charger (4:07)
+03. Depth (4:02)
+04. Snow Blast (5:08)(   Читать дальше...   )Жанр: Progressive Metal, Instrumental Rock, DjentПродолжительность: 00:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDAB6BA698566575557B9830973E9524290E097F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977337   (965596) от 21.01.2016
 
 Борис Гребенщиков - Radio Silence (1989) Japanese Edition [FLAC|Lossless|image + .cue] <Rock>
@@ -737,35 +766,6 @@ HELENGARD - Firebird (2017) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B6045866E92AB2F8E34D565272401B2B1535D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362533   (949681) от 23.02.2020
-
-HELENGARD - Helengard (2010) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:27)
-02. Wreath (5:05)
-03. Blizzard Sweeps The Traces (4:48)
-04. Snowstorm Call (7:20)(   Читать дальше...   )Производство: kauanmusicЖанр: Folk Metal, Black Metal, Post RockПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D2DBE52FB99F36670AAFDA130946A7BF1AC578
 ```
 
 https://mybot314.ru/tekegram_catalog/

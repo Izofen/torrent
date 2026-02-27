@@ -1,25 +1,22 @@
-###  Публикация: 1757777   (38908) от 29.10.2024
+###  Публикация: 1757158   (39275) от 25.10.2024
 
-VA - Not Spooky Jazz (Enchanting Music for a Cozy Halloween Dinner) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Dead Mount Death Play (2023) | Смертельная игра мёртвой горы [ТВ-2] [2023, TV, 12 эп.] WebRip 720p raw
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аниме с субтитрами
+>>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38908.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gabriel Belleto - Hope (3:49)
-02. Rusty Browne - Her Name (3:50)
-03. Daniel Liz - His Voice (4:09)
-04. Maverick Teller - Autumn Rain (4:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:20:46
+Когда легендарный герой близок к победе над некромантом, известным как Бог Трупов, события принимают неожиданный оборот с последним гамбитом темного колдуна — магией реинкарнации. Эта последняя отчаянная попытка застает храброго бойца врасплох, и теперь он мальчик по имени Полька Шинояма в совершенно новом мире! Противостояние добра и зла только что стало эпическим. (   Читать дальше...   )Производство: Студия Geek ToysЖанр: приключения, фэнтезиРежиссер: Сацума ЁсихироПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EF5F12F3B0D188D5030FD5F30483F2896EE2C47
+magnet:?xt=urn:btih:E59C55B607BBA71F30ECAE6D5E0650A2FB38E5EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757692   (38907) от 29.10.2024
+###  Публикация: 1757130   (39274) от 25.10.2024
 
-Europica - Part One (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Folk Rock>
+Grant Jackson - Devotion (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38907.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unflagging (feat. Blaze Bayley)
-02. This Land (feat. Fabio Lione)
-03. Silently (feat. Ralf Scheepers)
-04. The Patriot (feat. Tim Ripper Owens)(   Читать дальше...   )Жанр: Heavy Metal, Folk RockПродолжительность: 00:32:04
+01. Sunshine (6:34)
+02. Glass (7:56)
+03. Mourning (8:36)
+04. Devotion (8:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7011CAB55C16DC549C4BA9349EEF490C7FB742BA
+magnet:?xt=urn:btih:346F94DE6C11D50C6B8E147195AA37B65A3478F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,57 +53,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757787   (38906) от 29.10.2024
+###  Публикация: 1757069   (39273) от 25.10.2024
 
-VA - Unlucky for Some (13 Songs for Halloween, Volume 1) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swing Sonix - Dance (To Save Your Soul) (Electro Swing Radio Mix) (2:28)
-02. Elle & The Pocket Belles - Dancing with the Devil (3:47)
-03. Swingrowers - Midnight (3:43)
-04. The Swing Bot - St. James Infirmary (3:15)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B06663D256FEA3BEE269456A384FD2B3852D8FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757739   (38905) от 29.10.2024
-
-VA - Redux Selection Vol. 11 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Benassi Bros. x Dhany - Every Single Day (remix) (2021) [FLAC|Lossless|WEB-DL|tracks] <Club House>
 
 >>Electronic
->>Trance
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38905.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aura - Share The Tears 2024 (Vikram Prabhu's Magic Flight Extended Remix) [6:38]
-02. Bryn Whiting - Apricus (Extended Mix) [7:19]
-03. Christophe Quinlivan-Hunt - Retreads (Extended Mix) [7:26]
-04. Liam Van Hoven - Fly (Extended Mix) [7:06](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:20:55
+01. Benassi Bros. x Dhany - Every Single Day (club edit) (03:43)
+02. Benassi Bros. x Dhany - Every Single Day (club version) (06:41)
+03. Benassi Bros. x Dhany - Every Single Day (club version instrumental) (06:41)Жанр: Club HouseПродолжительность: 00:17:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C832D65D15093B399C3EF9C695AC42D55B4FCE60
+magnet:?xt=urn:btih:8BC79D0F4BEABC3D5E8EB5673DBAC1E5F8D65C23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,422 +81,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757758   (38904) от 29.10.2024
+###  Публикация: 1757109   (39272) от 25.10.2024
 
-Vola - Friend Of A Phantom (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cannibal (feat. Anders Fridén of In Flames) (5:03)
-02. Break My Lying Tongue (3:50)
-03. We Will Not Disband (4:25)
-04. Glass Mannequin (3:49)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EF3C9C5D946334EDE08BD9B4FE58622ADC3F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757784   (38903) от 29.10.2024
-
-VA - Only Grooves In The Bulding (Chillout Jazz & Soul Vibes) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lo Greco Bros - Why You Don't Call Me (5:08)
-02. Anduze - Priority (3:05)
-03. Mr.Tune - Right Thing (4:35)
-04. Wendy D. Lewis - Habit (4:14)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A54BED2511F383CEF6E7078D897F82E3326BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757775   (38902) от 29.10.2024
-
-VA - Get Jazzy on Me: Jazz Dance Party, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hank Hehmsoth - San Juan Sunset (4:33)
-02. Groove Specialists - Satin Strutters (3:39)
-03. Jussanam - Samba-Rumba (3:14)
-04. Al Pascua - Brang It! (4:20)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F97DA7EC4E8B49BA22FD7E7C3246B6C7A1C5F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757794   (38901) от 29.10.2024
-
-VA - Too Cool to Handle: Rock, Blues, & Country Edition (Vol. 1) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memphis Nights - Texas (3:07)
-02. Jeffery Leander - What Bad Guys Do (3:06)
-03. D - BeautifulCrazyLove (3:04)
-04. love2be - Burning Like a Fire (3:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007CD94816778CF2CE574CA9B3DD39CDB6AC3CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757795   (38900) от 29.10.2024
-
-VA - Too Cool to Handle_ Rock, Blues, & Country Edition (Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boneshakers - Big Legged Man (4:25)
-02. Suzanne's Band - Night Blues (4:05)
-03. JJ Soul Band - Really Wild (2:49)
-04. Chicken House Purple - That I Was Back Then (3:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7C1CC2D6EFFCC6B5B38BFE87DFC3A12148A0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757791   (38899) от 29.10.2024
-
-VA - Rhythm & Blues in the Moonlight (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MistrCarter - Smoov Luv (3:50)
-02. Nicki Love - Sweet Love (3:37)
-03. Ronzoni Hines - Last Night (3:28)
-04. Tianni Goode - How You Feel (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1CDD95E39C0540ED5839629CB5EE362D1EF1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757801   (38898) от 29.10.2024
-
-VA - Rock songs para mawala ang sama ng loob (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twenty One Pilots - Heathens (3:16)
-02. Red Hot Chili Peppers - Snow (Hey Oh) (5:35)
-03. Paramore - Misery Business (3:32)
-04. Linkin Park - Numb (3:08)(   Читать дальше...   )Жанр: RockПродолжительность: 01:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26CE4869FC9396B99B502516F9EA772D9668238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757779   (38897) от 29.10.2024
-
-Дезертир / Теплоход «Пятилетка» (1933) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38897.jpg" />
-</div>
-
-
-###  Подробнее
-
-1932 год. Молодой гамбургский докер Карл Ренн, устав от многомесячной забастовки, поддается на агитацию социал-реформистов и уклоняется от участия в решающей схватке с полицией и штрейкбрехерами. Попав в число рабочей делегации, направленной в СССР, герой остается в стране большевиков и вскоре становится ударником завода. Однако, узнав о гибели коммуниста Цейле, (   Читать дальше...   )Производство: СССР / МежрабпомфильмЖанр: драмаРежиссер: Всеволод ПудовкинАктеры: Борис Ливанов, Василий Ковригин, Александр Чистяков, Тамара Макарова, Семен Свашенко, Дмитрий Консовский, Юдифь Глизер, М. Олещенко, Сергей Мартинсон, Максим ШтраухСубтитры: английские (hadrsub)Продолжительность: 01:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF27E9378D73B581C287BE9542E4D6905472A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757799   (38896) от 29.10.2024
-
-VA - Rock Motivation (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teddy Swims - Don’t Stop Believin’ (4:08)
-02. Twisted Sister - We’re Not Gonna Take It (3:40)
-03. Nickelback - Rockstar (2020 Remaster) (4:15)
-04. Red Hot Chili Peppers - Can’t Stop (4:29)(   Читать дальше...   )Жанр: RockПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226C7C494995C5701D2F33C19FFE48C106BDEAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757785   (38895) от 29.10.2024
-
-Журнал | Добрые советы. Люблю готовить! №11 (ноябрь 2024) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал о вкусной еде, не похожий на другие кулинарные издания. Все опубликованные в нем рецепты присланы в редакцию самими читателями. Каждый рецепт прошел конкурсный отбор, а его автор получил денежный приз. Ежемесячно на страницах журнала — более 50 коронных блюд, которые многократно проверены опытными хозяйками и которые можно смело брать в свою коллекцию рецептов (   Читать дальше...   )Жанр: КулинарияИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDD6FFD3B04B51FA1D5AAB6006E4BB070CD3827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757798   (38894) от 29.10.2024
-
-VA - Rock Hits - As Melhores de 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benson Boone - Beautiful Things (3:00)
-02. Teddy Swims - Lose Control (3:31)
-03. Coldplay - feelslikeimfallinginlove (3:58)
-04. Twenty One Pilots - Overcompensate (3:56)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1931E3DCB66247CDB1FC50CA93DDD7AEC7F3BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757731   (38893) от 29.10.2024
-
-Октябрь, ноябрь / Oktober November (2013) BDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соня, актриса-звезда, «Снежная Королева» картин о роковых сильных женщинах, проводит дни в Берлине на съёмочной площадке очередной мелодрамы о мужеубийце. Накатывающее ближе к ночи одиночество холодная красавица скрашивает свиданиями с новым партнёром по фильму и попытками отшить назойливого старого любовника. В последний съёмочный день Соне приходится вернуться (   Читать дальше...   )Производство: Австрия / Coop 99, SpielmannfilmЖанр: драмаРежиссер: Гётц ШпильманнВ ролях: Нора фон Вальдштеттен, Урсула Штраусс, Петер Симонишек, Себастьян Кох, Йоханнес Цайлер, Андреас Рессль, Самуэль Финци, Себастьян ХюлькПеревод: авторскийЯзык озвучки: русский, немецкийСубтитры: русские (sonnyb), английские, немецкиеПродолжительность: 01:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2542148FC0C3FEB38B11A331783D398DE365F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757803   (38892) от 29.10.2024
-
-VA - Top 10 Outstanding Rock Songs, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mad/No/Mad - Addicted to Love (3:44)
-02. SMITT E. SMITTY & THE FEZZTONES - Rebel Rebel (3:29)
-03. Evan Cauble-Johnson - Running up That Hill (5:16)
-04. Davey AB Heritier - Crazy (4:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9AB4D1021FF6D87C30652F01401C996A8BBFB50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757793   (38891) от 29.10.2024
-
-VA - Rock Blues Mania (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaleo - Way Down We Go (3:34)
-02. Kid Rock - New Orleans (6:37)
-03. Black Stone Cherry - Can't You See (3:31)
-04. Brent Cobb - Let the Rain Come Down (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C1A961095AD4321098B47A94A8E1B6CB9BB440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757765   (38890) от 29.10.2024
-
-Михаил Дорин | Авиатор. Назад в СССР (Книга 10) (2024) [MP3, Илья Маликов]
+Густав Майринк | Голем (2013) [MP3, Сергей Чонишвили]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38890.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Старший лейтенант Родин сделал важный шаг к своей цели стать лётчиком-испытателем. Опаснейшая работа по плечу не каждому, но радость новых открытий, продолжает каждый раз тянуть Сергея в небо, когда он сидит в кабине самолёта. Путь и в этот раз тернист и сложен. Впереди последнее испытание, прежде чем старший лейтенант Родин закончит службу в Военно-воздушных силах (   Читать дальше...   )Жанр: Альтернативная история, Военно-историческая фантастикаИздательство: ЛитРесПродолжительность: 08:52:06
+Роман «Голем» Густава Майринка (1868–1931) относится к лучшим произведениям своего жанра. Это первый и самый известный из романов писателя. Он повествует о некоем иудейском раввине, который слепил из глины Голема и оживил его каббалистическим заклятьем. Будничное и сказочное, мечты и реальности всё перемешано в этом сюрреалистическом сюжете, который с одной стороны (   Читать дальше...   )Жанр: Зарубежная литература, классика, мистика, романИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 08:28:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2407DF2152950E485EDFF07EEAB23C4DA1800BC6
+magnet:?xt=urn:btih:DE01C0A400370F082BCBE082B3E8EA067289B8DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,25 +107,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757666   (38889) от 29.10.2024
+###  Публикация: 1757128   (39271) от 25.10.2024
 
-QOwnNotes 24.10.4 Portable [Multi/Ru]
+Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 эп.] BDRip 1080p 10-bit raw
 
->>Архив торрентов
->>Архив Программ
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38889.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-QownNotes – менеджер заметок, позволяющий четко организовать свои заметки, эффективно управлять записями. Удобные функции сортировки, вывода на печать, расшаривания, синхронизации заметок с облачным сервисом. Такая синхронизация позволит открывать и редактировать файлы, например в мобильном устройстве. Записи хранятся в простых текстовых файлах. Есть возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Когда легендарный герой близок к победе над некромантом, известным как Бог Трупов, события принимают неожиданный оборот с последним гамбитом темного колдуна — магией реинкарнации. Эта последняя отчаянная попытка застает храброго бойца врасплох, и теперь он мальчик по имени Полька Шинояма в совершенно новом мире! Противостояние добра и зла только что стало эпическим. (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: приключения, комедияРежиссер: Исихира СиндзиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E70A8A3C73868C7D16C803055D2182174A94C114
+magnet:?xt=urn:btih:EA476CE9C5C5F6ABA379597BDB876A0E9BCC80D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,26 +133,111 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757747   (38888) от 29.10.2024
+###  Публикация: 1756758   (39270) от 25.10.2024
 
-НХЛ 2024-2025. Питтсбург Пингвинз - Ванкувер Кэнакс (27.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Klaus Wunderlich - The Collection Volume 2 (1987) [FLAC|Lossless|tracks + .cue] <Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain, Rain, Rain / Love and Rainy Weather / It Never Rains in Southern California
+02. The Most Beautiful Girl / Seasons in the Sun / Cabaret
+03. A Song of Joy / Julie Do Ya Love Me / Teneriffa – Melody
+04. Rosetta / Jack in the Box(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135C360E1586EBDC871D0164E75A56AEF12E1116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757036   (39269) от 25.10.2024
+
+Сергей Бехтерев, Виктория Бехтерева | Лидер будущего (2022) [MP3, Сергей Бехтерев, Виктория Бехтерева]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о фасилитации, которая поможет перейти на новый уровень лидерства, раскрыть потенциал всей команды и проводить управляемые, эффективные совещания.
+В своем развитии лидер проходит несколько этапов. Один из последних — фасилитатор. У такого руководителя «все работает само». Он видит недостатки и достоинства каждого человека, умеет раскрывать потенциал сотрудников (   Читать дальше...   )Жанр: БизнесИздательство: МИФПродолжительность: 08:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF42DA43DACDEA9585445577C96A8EF0F755B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756996   (39268) от 25.10.2024
+
+VA - Invisible Strings (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39268.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anitta - Savage Funk
+002. Precious Pepala - Death Of The Party
+003. Bella Poarch - Don't Like Anybody
+004. Casso, Raye, D-Block Europe - Prada(   Читать дальше...   )Жанр: Indie, Alternative, Pop RockПродолжительность: 10:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81860BD3C3630CD343B8EEABEADCF8B70DC8E153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757103   (39267) от 25.10.2024
+
+НХЛ 2024-2025. Филадельфия Флайерз - Вашингтон Кэпиталз (23.10.2024) WEB-DLRip [H.264/1080p] [hand made 60 fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38888.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-27 октября 2024 года, воскресенье. 05:00 по московскому времени. Стадион: Роджерс Арена (Ванкувер, Канада), 18 748 зрителей (99% от вместимости 18 910 человек)
-Главный судья: Уэс МакКоли (Джорджтаун, Канада); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный судья: Киль Марчисон (Кловердейл, Канада); Лайнер: Райан Гиббонс (Ванкувер, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:03:17
+24 октября 2024, четверг. 02:30 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 17 254 зрителя (93% при вместимости 18 573)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Брэндон Гаврилетц (Трэил, Канада); Линейный: Скотт Черри (Дрэйтон, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:13:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54ABC6704D925113A25ED3699E9183AF601DA5E5
+magnet:?xt=urn:btih:33C2B888E103326CF624F145CA64F942109AE849
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,25 +245,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757780   (38887) от 29.10.2024
+###  Публикация: 1757146   (39266) от 25.10.2024
 
-Под деревом воспоминаний / Under mindernes trae (1913) WEBRip [H.264/720p] [DK / RU sub]
+Autumn's Grief - Dead Among The Living (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38887.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Душещипательная история растянувшаяся на десятилетия. А начиналось все просто и банально. Молодой художник Симон Дюран проезжает мимо идиллической деревни. Здесь он получает постой от Мариетты, которая живет одна со своей больной матерью, и вскоре Дюран покорил сердце своей молодой хозяйки. Идилию портит богатый фермер Джером, который уже давно периодически сватается (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Хольгер-МадсенАктеры: Аугуста Блад, Олаф Фонсс, Фредерик Якобсен, Свенд Корнбек, Doris Langkilde, Svend Melsing, Питер Нилсен, Franz Skondrup, Ella SprangeПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:42:25
+01. The Absolution
+02. Dead Among The Living
+03. Perfectly Flawed
+04. Pushing Up The Daisies(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:38:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3991F31E6ECB13FBDD6EC80E14177F4897132D90
+magnet:?xt=urn:btih:5FD0736FBDBF2AFB1E2CD3C2589F4DF5C2574550
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,25 +274,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757921   (38886) от 30.10.2024
+###  Публикация: 1757133   (39265) от 25.10.2024
 
-Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0) Scene Rune
+Greg Satterthwaite - Crossing Lines (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Brook (3:02)
+02. Crossing Lines (5:01)
+03. Afro Beat Mode (3:54)
+04. Long Road (4:43)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC655117BDBF3C4EB2F1C196F0548B7A4A128EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757178   (39264) от 26.10.2024
+
+Невский. Близкий враг (2024) WEBRip [H.264/1080p] (сезон 7, серии 1-30 из 30)
+
+>>След.
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39264.jpg" />
+</div>
+
+
+###  Подробнее
+
+После разыгравшейся в здании ГУ МВД по Санкт-Петербургу и Ленинградской области кровавой драмы, в «северную столицу» из Москвы направлен заместитель министра внутренних дел генерал Кондратьев. Перед ним поставлена конкретная задача – в кратчайшие сроки навести порядок в городе на Неве. В результате ведомственных интриг, майор Семёнов и подполковник Михайлов также (   Читать дальше...   )Производство: Россия / «Триикс Медиа»Жанр: детективРежиссер: Игорь ДракаАктеры: Антон Васильев, Андрей Гульнев, Дмитрий Паламарчук, Сергей Кошонин, Виктория Маслова, Александр Саюталин, Анастасия Забирова, Игорь Павлов, Денис Старков, Екатерина РокотоваПродолжительность: ~00:49:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0A936037BC313ACB70F80862C68388A3F891F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713430   (39263) от 26.10.2024
+
+Alan Wake 2 (II) (2023) [Ru/Multi] (1.2.2/dlc) Repack FitGirl [Deluxe Edition]
 
 >>Win Игры
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38886.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cypress Ridge - 28 сентября 1999 г. Вернитесь к началу конца в прологе к грядущему Outbreak от студии Dead Drops: Shades of Horror. Переживите вспышку эпидемии нежити, борясь за выживание, чтобы пролить свет на ужасные события, которые вот-вот постигнут Cypress Ridge. В роли Лидии, офицера полиции-ветерана, вы мчитесь наперегонки со временем по канализации Cypress (   Читать дальше...   )Тип издания: SceneРазработчик: Dead Drop Studios LLCЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+Городок Брайт-Фоллс, укрывшийся среди гор и лесов на северо-западе тихоокеанского побережья, потрясла серия ритуальных убийств. Для расследования этих жутких преступлений в город прибывает Сага Андерсон - опытный агент ФБР, за плечами которой немало дел, считавшихся нераскрываемыми. Однако, когда Андерсон находит страницы из романа ужасов, который начинает оживать (   Читать дальше...   )Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Экшены, Приключение, ШутерыЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F029A8399192FD5CC08829C4196AD653884D5026
+magnet:?xt=urn:btih:F8C65A805CD8098A28190586AD4ACF0329144788
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,25 +355,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757858   (38885) от 30.10.2024
+###  Публикация: 1756895   (39262) от 26.10.2024
 
-Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Repack FitGirl
+В новой Call of Duty Black Ops 6 появятся... платные настройки звука.
 
->>Win Игры
->>Action (TPS)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38885.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Red Dead Redemption - компьютерная игра в жанре action-adventure, разработанная компанией Rockstar San Diego при поддержке Rockstar North, Rockstar NYC, Rockstar Leeds, Rockstar New England и Rockstar Lincoln. Является логическим продолжением игры 2004 года - Red Dead Revolver. Выпущена 18 мая 2010 года на PlayStation 3 и Xbox 360, 17 августа 2023 года на Nintendo (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar Games, Double ElevenЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+Компания Activision Blizzard и студия Treyarch добавили платную опцию настройки в Call of Duty: Black Ops 6. О нововведении разработчики рассказали в блоге на официальном сайте шутера.Black Ops 6 выйдет с улучшенной звуковой системой. Разработчики перезаписали все звуки оружия и окружения, а также изменили настройки, благодаря чему шаги и их позиционирование должны (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:404121CE54D29FCB3BDD635A78826DFE3D9258DF
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,25 +381,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757835   (38884) от 30.10.2024
+###  Публикация: 1757286   (39261) от 26.10.2024
 
-Adobe Acrobat Pro 2024.004.20220 RePack by KpoJIuK [Multi/Ru]
+Кукушка / Cuckoo (2024) BDRemux [H.264/1080p]
 
->>Архив торрентов
->>Архив Программ
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38884.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Acrobat Pro — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+17-летняя Гретчен с отцом, мачехой и единокровной младшей сестрой Альмой приезжает в Германию на небольшую базу отдыха, владелец которой, давний бизнес-партнёр отца, предложил ему работу по планировке нового объекта. Девушка не в восторге от переезда и скучает по матери. Отношения с отцом окончательно портятся, когда Альма попадает в больницу с судорогами неизвестного (   Читать дальше...   )Производство: Германия, США / Fiction Park, Neon, Waypoint EntertainmentЖанр: УжасыРежиссер: Тильман СингерАктеры: Хантер Шафер, Ян Блютхардт, Мартон Чокаш, Джессика Хенвик, Дэн Стивенс, Мила Лью, Грета Фернандес, Прошат Мадани, Астрид Берже-Фрисби, Конрад Сингер, Калин МорроуПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced , Full) Английские (Forced, Full, SDH)Продолжительность: : 01:42:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD20FA204AF526D20F17B04AD218F716C3A983A9
+magnet:?xt=urn:btih:8B9E84F2952BB4B0D5E8C95F7E1088EE55D376EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,26 +407,292 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757837   (38883) от 30.10.2024
+###  Публикация: 622285   (39260) от 26.10.2024
 
-Adobe Illustrator 2025 29.0.1.192 RePack by KpoJIuK [Multi/Ru]
+Враг мой / Enemy Mine (1985) BDRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Программ
+>>След.
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38883.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Illustrator — это принятое в качестве отраслевого стандарта программное обеспечение векторной графики, широко используемое дизайнерами в различных областях — цифровой графики, иллюстраций и печати — при разработке любых видов мультимедийных ресурсов: печатных материалов, интернет-контента, интерактивных средств, видеороликов и мобильных приложений.
-Создавайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+В глубинах нашей галактики, на огромном расстоянии от Земли люди ведут кровопролитную войну с расой рептилий. Войну, которой Земля отдает последние силы, войну на полное уничтожение. В одной из жестоких схваток в окрестностях гористой планеты в системе двойной звезды пилот Виллис Дэвидж сбивает машину чужого, но тут же получает несколько попаданий и выходит из боя. (   Читать дальше...   )Производство: США, 20th Century Fox Film Corporation, Kings Road EntertainmentЖанр: Фантастика, Боевик, Драма, ПриключенияРежиссер: Вольфганг ПетерсенАктеры: Деннис Куэйд, Луис Госсет мл., Брайон Джеймс, Ричард Маркус, Кэролин МакКормик, Бампер Робинсон, Джим Мапп, Лэнс Кервин, Скотт Крафт, Лу МайклсПеревод: ДубляжЯзык субтитров: Русский, английскийПродолжительность: 01:48:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:359A507636169C8779EF8FD245474B982FEFDC7E
+magnet:?xt=urn:btih:4D0090FAE6CD7C4B7CFBF9973C458D1BA0CB0D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344633   (39259) от 26.10.2024
+
+Елизавета Дворецкая | Собрание сочинений [75 книг] (1997-2024) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родилась 1 июня 1970 года в Москве, где и жила до 2010 года, затем переехала в Санкт-Петербург, где и живёт до сих пор.
+
+«После школы окончила филологический факультет Московского Педагогического Государственного Университета. Надежды, что из меня выйдет педагог, рассеялись еще на 1-м курсе, но филологическое образование оказалось очень полезным в творческой деятельности. (   Читать дальше...   )Жанр: Славянское фэнтези, Историческая литератураИздательство: Терра; Книжный клуб «Клуб семейного досуга»; Эксмо; АвторФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DAB0A2995270082EB34D1BCF0930D7AFBF5FD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273429   (39258) от 26.10.2024
+
+Проводник (2018) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня, девушка Катя, обладает мистическим даром: она видит призраков. Когда пропадает её сестра-близнец, девушка в одиночку бросается на поиски. В полиции настаивают, что сестры вообще  не существует, что она — плод Катиного больного воображения. Однако в процессе поисков сестры Катя понимает, что в городе орудует серийный маньяк, и сестра — одна (   Читать дальше...   )Производство: Россия, Мотор Фильм Студия, Пропеллер ПродакшнЖанр: Ужасы, ТриллерРежиссер: Илья МаксимовАктеры: Александра Бортич, Евгений Цыганов, Александр Робак, Вячеслав Разбегаев, Владимир Яглыч, Константин Мурзенко, Юрий Скулябин, Марта Тимофеева, Екатерина Рокотова, Василий БочкаревПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90EB25A0DEFAD3671AA9E2A85921AFFB6B281AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522351   (39257) от 26.10.2024
+
+Lama (Лама) - 4 Albums + 11 Single's (2006-2023) [APE, FLAC|Lossless|image + .cue, tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39257.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 - Мені так треба
+2008 - Світло і Тінь
+2010 - Тримай (Нове та найкраще)
+2013 - Назавжди...Жанр: Pop, RockПродолжительность: 03:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78D79A4D5FF1DF7EBC02BB0C70EFC2B616B3763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252265   (39256) от 26.10.2024
+
+Псы / Psy (1992) HDTV [H.264/1080i-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Польша после падения коммунизма. У нескольких бывших сотрудников Управления безопасности — большие сложности с адаптацией к новой действительности. Теперь их начальниками в полиции стали соперники в прошлом, мягко говоря, не испытывающие к ним симпатии. Бывшие гэбэшники убеждаются, что борьба с бандитами сильно отличается от того, чем они занимались в УБ: уже в одной (   Читать дальше...   )Производство: Польша / Студия Фильмов Зебра, Agencja Produkcji FilmowejЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Владислав ПасиковскийАктеры: Богуслав Линда, Марек Кондрат, Цезары Пазура, Януш Гайос, Агнешка Ясколькая, Збигнев Запасевич, Збигнев Бельский, Томаш Дедек, Рышард Фисхбах, Марек ФраковякПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50AE9ADE58DFE1C4F1244DAEED71504CD755B60B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756959   (39255) от 26.10.2024
+
+Российских разработчиков Linux лишили руководящих статусов
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грег Кроа-Хартман (Greg Kroah-Hartman), отвечающий за поддержку стабильной ветки ядра Linux, внёс изменение в список мэйнейнеров подсистем ядра Linux, в результате которого были удалены 11 сопровождающих, предположительно работающих в российских компаниях. В качестве причины удаления упомянуто лишь "выполнение различных требований комплаенса" (various compliance (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655460   (39254) от 26.10.2024
+
+Сканворды на русском v1.3.14 Mod от Alex.Strannik [Ru]
+
+>>След.
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепный сборник разнообразных сканвордов. Более тысячи хороших сканвордов. Возможность использования подсказок. Ведение статистики разгаданных головоломок. Удобный и простой интерфейс. Поддерживается, работает без интернет.Тип издания: ModРелиз состоялся: 09.10.2024Разработчик: FgCos GamesПоддерживаемая ОС: Android 5.0+Жанр: Словесные игрыЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D059C964C4484F1C115216FD3CF488C88A351B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757174   (39253) от 26.10.2024
+
+Мужское слово (2024) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39253.jpg" />
+</div>
+
+
+###  Подробнее
+
+После несчастного случая десятилетний Илья впадает в кому. Его отец Андрей дежурит у постели сына в больнице, но лечащий врач сообщает, что мальчика придется отключать от аппарата поддержания жизнедеятельности — таков закон. Андрей предлагает деньги, пытается убедить врача, что нужно подождать, но все бесполезно. Тогда Андрей завозит каталку с Ильей, подключенным (   Читать дальше...   )Производство: Россия / К.Б.А. / Кинокомпания братьев АндреасянЖанр: драма, триллер, криминалРежиссер: Сарик АндреасянАктеры: Павел Прилучный, Марк Андреасян, Юрий Цурило, Николай Шрайбер, Ирина Пегова, Екатерина Стулова, Игорь Черневич, Евгений Шириков, Валерия Богданова, Анастасия КрыловаПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1B855F4E302114D367FFC7835A4BA2B9A55EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757242   (39252) от 26.10.2024
+
+VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39252.jpg" />
+</div>
+
+
+###  Подробнее
+
+С нуля освоите Blender — самую популярную 3D-программу.
+Научитесь создавать 3D-графику под любые задачи и сможете начать карьеру в сфере компьютерной графики.
+Курс подойдёт начинающим и тем, у кого есть базовые знания Blender.Производство: VideoSmileЖанр: 3D моделированиеЯзык озвучки: РусскийПродолжительность: 26:27:11Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEE2ECC1BEBAB7594C37622F721412CDBF14621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512232   (39251) от 26.10.2024
+
+Зов ада / Hellbound / Jiok (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) LostFilm
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39251.jpg" />
+</div>
+
+
+###  Подробнее
+
+2023 год. По всему миру происходит загадочный феномен — некоторые люди получают предсказание о своей смерти, и точно в назначенное время за ними приходят злобные существа и жестоко убивают. Лидер набирающей популярность религиозной организации «Новая правда» считает происходящее божественным воздаянием.Производство: Корея Южная / Climax Studio, NetflixЖанр: фэнтези, драма, триллер, ужасыРежиссер: Ён Сан-хоАктеры: Ю А-ин, Ян Ик-чун, Ким Хён-джу, Пак Чон-мин, Вон Джин-а, Ким До-юн, Ким Щин-нок, Рю Гён-су, Ли Рэ, Ким Гю-бэкПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: русский, корейский, английскийСубтитры: русские (Forced, Full), Корейские (Forced, SDH), английские (Forced, Full, SDH)Продолжительность: ~00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8419FA6E1B4CE669796392563C0A50E7B2B203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694327   (39250) от 26.10.2024
+
+Парни в лодке / The Boys in the Boat (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39250.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Дэниела Джеймса Брауна. Фильм, снятый Джорджем Клуни, рассказывает о команде по академической гребле Вашингтонского университета 1936 года, которая боролась за золото на летних Олимпийских играх в Берлине. Эта вдохновляющая правдивая история рассказывает о группе аутсайдеров в разгар Великой депрессии, когда они оказываются в центре внимания и сражаются (   Читать дальше...   )Производство: США / Lantern Entertainment, Metro-Goldwyn-Mayer (MGM), Tempesta FilmsЖанр: драма, биография, спортРежиссер: Джордж КлуниАктеры: Джоэл Эдгертон, Каллум Тернер, Питер Гиннесс, Сэм Страйк, Томас Эльмс, Джек Малхерн, Люк Слаттери, Брюс Эрбелин-Эрл, Уил Кобан, Том ВэйриПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (full, SDH)Продолжительность: 02:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4192FD7F588876181BB989C87807479C6D4EAE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

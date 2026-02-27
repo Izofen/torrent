@@ -1,3 +1,32 @@
+###  Публикация: 1481415   (1007295) от 10.07.2021
+
+VA - Jazz Sexiest Ladies, Vol. 4 (2020) [AAC|~305 Kbps] <Chillout, Lounge, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nenei, Stella Starlight Trio - Don't Start Now (3:20)
+02. The Cooltrane Quartet - Wonderful Life (3:09)
+03. Jazzystics, Urselle - Everybody Wants to Rule the World (3:54)
+04. Stella Starlight Trio - Sunrise (3:22)(   Читать дальше...   )Жанр: Chillout, Lounge, JazzПродолжительность: 01:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7F81D2C01744E4B83D8D214BC859CD41C973BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481409   (1007294) от 10.07.2021
 
 VA - Jazz Sexiest Ladies, Vol. 2 (2019) [AAC|~311 Kbps] <Chillout, Lounge, Jazz>
@@ -708,35 +737,6 @@ Jenna Mammina, Matt Rollings - Mutineer (Audiophile Edition SEA) (2021) [AAC|~26
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEBEDE2DA242C4756EDCA48B9AD7C8FA6C10A548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483867   (1005337) от 26.07.2021
-
-Группа Сентябрь - Радость моя (2020) [AAC|~336 Kbps] <Pop, Chanson>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Радость моя (4:40)
-02. Ладони нежные (3:46)
-03. Дождь (4:10)
-04. Королева моей осени (4:05)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7048F2A1D80CD0E3C3DC218BBBEE62E43B2DD8C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

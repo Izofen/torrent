@@ -1,3 +1,73 @@
+###  Публикация: 597622   (999681) от 05.01.2013
+
+VA - Narada Guitar 2  The Best of Two Decades (2000) [MP3|320 кб/с]<Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Don Ross - Michael Michael Michael Don Ross (4:11)
+ 2. Artie Traum - Safety In Numbers Artie Traum (6:31)
+ 3. Randy Roos - Ray's Passage Randy Roos (5:48)
+ 4. Billy McLaughlin - Candleman Billy McLaughlin (6:19)
+ 5. Willie and Lobo - Havana Vieja Willie and Lobo (5:04)
+ 6. Alex de Grassi - It Ain't Necessarily So Alex de Grassi (4:30)
+ 7. Jesse Cook - Rattle And Burn Jesse Cook (3:48)
+ 8. Eric Tingstad - The Craftsman Eric Tingstad (3:38)
+ 9. Oscar Lopez - The Flavor Oscar Lopez (4:00)
+ 10. Laurence Juber - New Jersey Left Laurence juber (4:09)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 02:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E9402853263ED9D61592F3A518258B1E76D9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598975   (999148) от 07.01.2013
+
+Андрей Сигунов - Bessame Mucho (2011) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999148.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Тико-Тико
+2.Ноктюрн
+3.Besame Mucho
+4.Мой ласковый и нежный зверь
+5.Карусель
+6.Baila con migo
+7.Yesterday
+8.Бегут года
+9.Piccola samba
+10.Cumbia gitana(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B51B4E6567E481E7218CF1E9174166511477A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598967   (999120) от 07.01.2013
 
 Jesse Cook - Greatest Hits (2CD) (2010) [MP3|320 кб/с]<New Age, Flamenco, Instrumental>
@@ -813,77 +883,6 @@ VA - Союз нерушимый... - Песни и танцы народов С
 
 01. Государственный гимн Советского Союза Оркестр Государственного Академического Большого Театра СССР, Юрий Симонов
 02. Государственный гимн Украинской ССР Хор и оркестр Государственного академического театра оперы и балета имени Т.Шевченко, Стефан Турчак(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607002   (994473) от 23.01.2013
-
-Ансамбль духовной музыки Кант - Пасха Песнопения пасхальной службы. (2006) [MP3|320 kbps]<Духовная музыка>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Воскресение Евое, Христе Спасе (2:23)
- 2. Ирмосы Пасхи (7:40)
- 3. Воскресение Христово видевше (2:01)
- 4. Стихиры Пасхи (5:13)
- 5. Уст твоих (1:48)
- 6. Часы Пасхи (13:03)
- 7. Слава... Единородный Сыне (2:24)
- 8. Христос Воскресе (1:43)
- 9. Елицы во Христа крестистеся (2:34)
- 10. Сей день, его же сотвори Господь (1:28)(   Читать дальше...   )Жанр: Духовная музыкаПродолжительность: 01:06:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608219   (994021) от 24.01.2013
-
-Sleepthief - Labyrinthine Heart (2009) [FLAC|Lossless]<New Age, Ethereal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Here I Confess (feat. Joanna Stevens)
-02. World Gone Crazy (feat. Coury Palermo)
-03. Skimming Stones (feat. Kirsty Hawkshaw)
-04. Labyrinthine Heart (feat. Jody Quine)
-05. A Kind of Magic (feat. Zoe Johnston)
-06. A Cut from the Fight (feat. Kristy Thirsk)
-07. Rainy World (feat. Caroline Lavelle)
-08. Ariadne (The Dividing Sea) (feat. Joanna Stevens)
-09. Reason Why (feat. Zoe Johnston and Coury Palermo)
-10. Fire King (feat. Jody Quine)(   Читать дальше...   )Жанр: New Age, Ethereal  |Продолжительность: 00:49:36
-Enya, Delerium, Conjure One, Amethystium…Имена, которые безусловно многое говорят любителю качественной, красивой музыки в стилях нью-эйдж, энигматик и этериал. Теперь к ним прибавилось еще одно -
 
 ## Скачать торент
 ```bash

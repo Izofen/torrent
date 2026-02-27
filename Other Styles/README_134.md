@@ -1,3 +1,61 @@
+###  Публикация: 1414104   (387288) от 07.10.2020
+
+Sensual Music Academy - Ambient Tantric Melodies (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fine Wine and Love (3:49)
+02. Hot Massage (3:54)
+03. All Night Talking (3:28)
+04. At One's Night (4:01)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C51AAE5DD8807BA3673B2348CCF3CD69063BAC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067080   (387256) от 29.10.2016
+
+Bob Weir - Blue Mountain (2016) [MP3|320 Kbps] <Folk Rock, Country Rock, Psychedelic Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Only a River   (05:28) 
+  02| Cottonwood Lullaby   (03:40) 
+  03| Gonesville   (04:09) 
+  04| Lay My Lily Down   (03:57) (   Читать дальше...   )Жанр: Folk Rock, Country Rock, Psychedelic RockПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E207E2D444520A2540E4CA205347A445861DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174154   (387235) от 14.10.2017
 
 Стары Ольса - Medieval Classic Rock (2016) [MP3|320 Kbps] <Folk, Folk rock>
@@ -691,64 +749,6 @@ Aeoliah - Sacred Mantras (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5DDEF204DF14D193DCE80A841DA75707C814591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174882   (381079) от 17.10.2017
-
-Darshan Ambient - Lingering Day: Anatomy of a Daydream (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snowflake
-02. Silver
-03. Arc Of Angels
-04. White Calm(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E0A4E9525C473BEF0497674C3D1EF05AB442C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326564   (380787) от 22.09.2019
-
-VA - Modern Sound Orchestras - Moonlight Sonata (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight Sonata - Beethoven (4:44)
-02. A little must for guitar players - Diabelli, Paganini & Mertz (5:17)
-03. Fire dance / Can-Can - De Falla / Offenbach (3:37)
-04. Yesterday - McCartney / Lennon (2:36)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D6168E09DD3E8C76D042FA513DFE32951B6BF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

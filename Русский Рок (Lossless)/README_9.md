@@ -1,3 +1,32 @@
+###  Публикация: 1362533   (949681) от 23.02.2020
+
+HELENGARD - Helengard (2010) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Metal, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:27)
+02. Wreath (5:05)
+03. Blizzard Sweeps The Traces (4:48)
+04. Snowstorm Call (7:20)(   Читать дальше...   )Производство: kauanmusicЖанр: Folk Metal, Black Metal, Post RockПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D2DBE52FB99F36670AAFDA130946A7BF1AC578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 625317   (946782) от 03.03.2013
 
 Земфира - Жить в твоей голове (2013) [FLAC|lossless] <Indie / Rock>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DF8409F7268A0DD5CCC1F9B3BFCA9F99F2ADC09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366232   (925730) от 10.03.2020
-
-Сергей Маврин - Запрещённая Реальность (2004) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пока Боги Спят (7:06)
-02. Дьявольский Вальс (8:15)
-03. Падший (6:24)
-04. Дорога В Рай (4:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D3A93E1180719181EB31CC6D8DB442DBDAA86E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,293 @@
+###  Публикация: 1257885   (343137) от 27.10.2018
+
+VA - MNM Back To The 90s & Nillies The Party Edition (2018) 2CD [MP3|320 Kbps] <Eurodance, Disco, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343137.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Scooter - How Much Is The Fish?
+02. 3 Doors Down - Kryptonite
+03. Leila K - Open Sesame(   Читать дальше...   )Жанр: Eurodance, Disco, PopПродолжительность: 02:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A758CB07B50C80FDC1371DC15A65F74D3CE3B95E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257746   (343118) от 27.10.2018
+
+VA - А у нас во дворе... (2005) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Моя любовь на пятом этаже ( Секрет )
+02. Осень ( Лицей)
+03. Кто виноват ? ( Воскресение )
+04. Галя ( Ивана КУпала )(   Читать дальше...   )Жанр: РорПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A34744B7C2EDEE92DAB4444C59258EDDFDA0744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257838   (342944) от 27.10.2018
+
+VA - 100 Hits - 80s Pop (2017) 5CD [MP3|320 Kbps] <80s, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342944.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Dead Or Alive - You Spin Me Round (Like A Record)
+02. Haircut 100 - Fantastic Day
+03. Bros - I Owe You Nothing(   Читать дальше...   )Жанр: 80s, Pop, RockПродолжительность: 06:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:326BD5C5E271E792DE50BFA03CF4C3269C29DAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180264   (342643) от 03.11.2017
+
+DJ Friction present Ground Control - Boogie Some More (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night Long (feat David Whitley – extended mix) 05:15
+02. Boogie Some More 04:22
+03. Love Fever (feat Tansy Davis & CJ) 04:50
+04. Step Out Of The Dark (feat David Whitley) 04:02(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786490C6726563580EDD082D140E5550D7D2D972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179979   (342520) от 03.11.2017
+
+Dee Dee - Loving You (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единственный полноформатный, малоизвестный в СССР, но весьма неплохой альбом голландской исполнительницы Dee Dee (настоящее имя Anna Dekkers).01. I Put A Spell On You (5:08)
+02. Hold Me (3:16)
+03. Loving You (6:07)
+04. Do Your Loving Right (3:17)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B65BF6F6C46AD6935830C9E67642B79B464FA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580538   (342462) от 25.11.2012
+
+Adriano Celentano - Unicamentecelentano (2011) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_342462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если перевести с итальянского название диска, то оно звучит как "Только Челентано". В отличии от 3-х боксового сета 2006 года с таким же названием, в сборнике 2011 года лишь один диск. Я бы назвал его "Unicamente Super-Celentano"01. C'e Sempre Un Motivo    [0:05:25]
+02. Io Sono Un Uomo Libero    [0:05:48]
+03. Le Stesse Cose    [0:05:42]
+04. L'Emozione Non Ha voce (Io Non So Parlar D'Amore)    [0:04:08](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954264   (342291) от 07.11.2015
+
+Kate Boy - One (2015) [MP3|320 кб/с]<Alternative, Synthpop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Sun (03:03)
+02. Northern Lights (03:35)
+03. Lion For Real (04:33)
+04. Human Engine (04:46)(   Читать дальше...   )Жанр: Alternative, Synthpop, Indie PopПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A68B09EEAB00E5667D16F07F79BB3C755FF7AE0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419289   (342189) от 27.10.2020
+
+Interface - Plastic Age (2020) Unofficial [MP3|320 Kbps] <Synthpop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plastic Age (12'' Version) (6:47)
+02. Like Puppets (12'' Version) (5:27)
+03. Plastic Age (Male Vocal Mix) (8:00)
+04. Like Puppets (7'' Version) (3:49)(   Читать дальше...   )Жанр: Synthpop, Italo-DiscoПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6146375674050C5CD93A8D132D20B751B97211F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954537   (342153) от 07.11.2015
+
+Bjork - Vulnicura Strings (2015) [MP3|320 кб/с]<Pop, Experimental, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mouth Mantra
+02. Lionsong
+03. Black Lake
+04. Atom Dance(   Читать дальше...   )Жанр: Pop, Experimental, AcousticПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61FF050EFCB33B7E373BBBE68DDEB34CC54D1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419172   (342058) от 27.10.2020
+
+Amadeus Liszt - Win The Race (2020) Unofficial [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Win The Race (12'' Version) (7:58)
+02. The Devil Wins (12'' Version) (5:51)
+03. La Donna (Crazy Disco Version) (6:28)
+04. Derby (Single Version) (2:25)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A0244D15891CFD4EFB9AFE619C13062FC460F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419359   (342054) от 27.10.2020
 
 Wonder - Up & Down (1980) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -455,296 +745,6 @@ VA - Radio Mania Vol. 1-2 (2016) [MP3|320 Kbps] <EuroDance, EuroDisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CD061C69B33E8E87FEA641EB2012BC3FC7F7E80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179748   (340150) от 04.11.2017
-
-Группа Кассета - Искорки зимы (2014) [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня любви (4:21)
-02. Сердце моё (3:06)
-03. Искорки зимы (4:13)
-04. Медленно тает (5:37)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE06316CE4C761146BCCAC7A36713972FB1CC118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180405   (340142) от 04.11.2017
-
-The Universal Robot Band - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340142.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Universal Robot Band - американская музыкальная группа в составе: Gregory Carmichael, Patrick Adams, Leroy Burgess, Gregory Tolbert и Woody Cunningham. Сформированы Патриком Адамсом и Грегом Кармайклом в 1976, их дебютный сингл "Dance And Shake Your Tambourine" достиг максимума в топе 25 хитов в танцевальной клуб-музыке.01. Flintstone Disco (8:52)
-02. Dance And Shake Your Tambourine (6:21)
-03. You're My Music (5:05)
-04. Space Disco (11:47)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE2F4F97F563FD97BD6D0EDE201E0CC088469B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419533   (339991) от 28.10.2020
-
-Bogart - ...Again (1981) LP [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back On The Road  (3:46)
-02. Looking For A Good Thing  (3:46)
-03. Without You  (3:39)
-04. Susan And Me  (3:46)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94B17473320719F0DB9A8F1A3A9628518C227B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419463   (339988) от 28.10.2020
-
-Gene Farrow - Move Your Body (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Move Your Body  (5:43)
-02. Woman  (3:32)
-03. One Night In New York  (3:29)
-04. Do It Again  (3:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C17A25E4D72F28B2F09C8E6002B5C15CE2308D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419512   (339982) от 28.10.2020
-
-Interface - Plastic Age (2020) Unofficial [FLAC|Lossless|tracks + .cue] <Synthpop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plastic Age (12'' Version) (6:47)
-02. Like Puppets (12'' Version) (5:26)
-03. Plastic Age (Male Vocal Mix) (8:00)
-04. Like Puppets (7'' Version) (3:49)(   Читать дальше...   )Жанр: Synthpop, Italo-DiscoПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3D52F15A6ED092F678DC03F33128AF7FD29752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419514   (339980) от 28.10.2020
-
-Il Quadro di Troisi - Il Quadro di Troisi (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il giudizio (4:15)
-02. Beata (3:50)
-03. Sfere di Qi (3:58)
-04. Non ricordi (5:08)(   Читать дальше...   )Жанр: Synthpop, Italo-DiscoПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF4E880B25D90300F7625CAC5CA1596A58842267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954582   (339966) от 08.11.2015
-
-Anouk - Greatest Hits (2015) 2CD [FLAC|image+.cue]<Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern World
-02. If I Go
-03. Three Days In A Row
-04. Woman(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159C55B6DAB3990D8CF78F090E9E22FD664475C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954580   (339869) от 08.11.2015
-
-Anouk - Greatest Hits (2015) 2CD [MP3|320 кб/с]<Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern World
-02. If I Go
-03. Three Days In A Row
-04. Woman(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5877B2E1BA49B2A5A164C3C25CF7FB5D8CEED397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954695   (339859) от 08.11.2015
-
-Алёна Валенсия - Твоя (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Твоя
- 02. Рождена для тебя
- 03. Единственный мужчина
- 04. Спасибо, Вова(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D7592428B47312C00E55C09AFDBD86CF2349DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954576   (339837) от 08.11.2015
-
-Bjork - Vulnicura Strings (2015) [FLAC|tracks+.cue]<Pop, Experimental, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mouth Mantra
-02. Lionsong
-03. Black Lake
-04. Atom Dance(   Читать дальше...   )Жанр: Pop, Experimental, AcousticПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773F67186A9FAA6BC8B39C391EAFBC7050B232DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

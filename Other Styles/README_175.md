@@ -1,3 +1,61 @@
+###  Публикация: 1345129   (165012) от 17.12.2019
+
+Jean Michel Jarre - Images: The Best Of Jean Michel Jarre (1991) Compilation, Reissue, 1992, Disques Dreyfus [FLAC|Lossless|image + .cue] <Ambient, New-Age, Experimental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Oxygene 4 [3:09]
+ 02 - Equinoxe 5 [3:22]
+ 03 - Chants Magnetiques 2 [3:57]
+ 04 - Oxygene 2 [3:12](   Читать дальше...   )Жанр: Ambient, New-Age, ExperimentalПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11C17AA8285C03657C6CC1FBE7C2FBCBF948968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432257   (164964) от 16.12.2020
+
+Ulvesang - Ulvesang (2015) [FLAC|Lossless|Web-DL|tracks] <Folk, Ambient, Dark Folk, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Purge (6:33)
+02. Taakeferd (5:20)
+03. Two Rivers (3:39)
+04. Wolf's Passage (5:22)(   Читать дальше...   )Производство: Ulvesang Self-releasedЖанр: Folk, Ambient, Dark Folk, NeofolkПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D782472C52FE80A161588511E7F3C400A3401C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432258   (164928) от 16.12.2020
 
 Ulvesang - The Hunt (2018) [FLAC|Lossless|Web-DL|tracks] <Folk, Black Metal, Dark Folk, Neofolk>
@@ -687,64 +745,6 @@ The Mystic Sound Orchestra - Pharaoh: Sound of Mystery (1998) 2CD [MP3|320 kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1478AE326C24E0D7EA15776C1253ECF8B699A5D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968109   (158234) от 22.12.2015
-
-Ennio Morricone - The Man And His Music (2002) 2CD, 2005, Warner Classics [MP3|320 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'era Una Volta Il West (3:11)
-02. The Mission: Gabriel's Oboe (2:17)
-03. C'era Una Volta In America: Deborah's Theme (4:11)
-04. L'Ereditа Ferramonti (1:54)(   Читать дальше...   )Жанр: Soundtrack |Продолжительность: 01:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF08A9588CBE59050B68BF3F497120E0CF41946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967999   (158223) от 22.12.2015
-
-David Arkenstone - Native Dreams (2015) [MP3|320 кб/с] <Native american, Ethnic, Folk, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Roads (05:04)
-02. Wind and Stone (04:48)
-03. Mother Sky (06:00)
-04. Mesa Morning (04:51)(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, New AgeПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74120E850B00DAAECF2958497499CBCA4B5FB72C
 ```
 
 https://mybot314.ru/tekegram_catalog/

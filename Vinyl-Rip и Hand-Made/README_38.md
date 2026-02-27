@@ -1,3 +1,205 @@
+###  Публикация: 1837526   (257520) от 17.11.2025
+
+Haddah - Studio Albums (3 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Haddah - метал-группа из Италии, образованная в 2001 году.2014 - Through the Gates of Evangelia
+2015 - Path to Nefrath
+2025 - AetereaЖанр: Melodic Death MetalПродолжительность: 01:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64B0287768743605BF6D22EE26E25D8FDAA2CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177019   (255537) от 04.04.2023
+
+The Dave Brubeck Quartet - Gone With the Wind (1959) [FLAC|24bit/192kHz & 24bit/96kHz]<Jazz>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255537.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Swanee River 5:55
+2. The Lonesome Road 7:41
+3. Georgia On My Mind 6:40
+4. Camptown Races 2:01(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DBD0323C9BB70D0AFB59316635BEB0D7BE2990C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624356   (255518) от 05.04.2023
+
+Various - Let's Break (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255518.jpg" />
+</div>
+
+
+###  Подробнее
+
+What Fun –	The Right Side Won
+Vanessa –	Obsession
+Pure Energy –	Love Game
+Lafleur –	Dance Till We Drop(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C9E0021C95E737A6D918DC2A50EDEF9B9AAB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624832   (255435) от 07.04.2023
+
+Two Of Us - Inside Out (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255435.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 My Inner Voices 4:24
+A2 I'll Be Around 4:29
+A3 Building An Empire 4:13
+A4 We Got A Break It Out 3:49(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB79DA06D4ED4937142EDE4FEE9B68A0DF7E927B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624897   (255414) от 08.04.2023
+
+Styx - Kilroy Was Here (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255414.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mr. Roboto
+A2 Cold War
+A3 Don't Let It End
+A4 High Time(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD76E048CE74CB7EB0D235AFE84112F604B6A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625027   (255339) от 10.04.2023
+
+Bangles - Different Light (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255339.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Manic Monday
+A2 In A Different Light
+A3 Walking Down Your Street
+A4 Walk Like An Egyptian(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF45F2685B4E84CE299C188819A9317B1595CA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625837   (255306) от 11.04.2023
+
+Bucks Fizz - Are You Ready? (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255306.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 My Camera Never Lies
+A2 Easy Love
+A3 Love Dies Hard
+A4 One Way Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9FB27FB7B766CE67C7225563D6F90135AB16C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625753   (255302) от 11.04.2023
 
 Bucks Fizz - I Hear Talk (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<BritPop>
@@ -543,209 +745,6 @@ Pretty Reckless — американская рок-группа из Нью-Й�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD27DE2B99D15C9F60FE92D4D39361A38FE8183C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836401   (252509) от 10.11.2025
-
-Godark - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Godark - метал-группа из Португалии, основана в 2010 году.2015 - Reborn from Chaos (EP)
-2020 - Forward We March
-2025 - OmniscienceЖанр: Melodic Death MetalПродолжительность: 02:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34BC01D822F5224C78231D80539A1E6A62E6D4D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514465   (252145) от 20.05.2023
-
-Metallica - Дискография (20 releases) (1983-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Thrash Metal>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metallica — американская метал-группа, образованная в 1981 году, в Лос-Анджелесе.
-Вместе с такими группами как Slayer, Megadeth и Anthrax входит в «большую четвёрку трэш-метала».1983 - Kill 'Em All
-1984 - Ride the Lightning
-1986 - Master of Puppets
-1988 - ...And Justice for AllЖанр: Heavy/Thrash MetalПродолжительность: 39:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0864958871EF26E3FB7C6FD9ADC485A3A91DA6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494949   (251202) от 11.05.2012
-
-Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Hung, Drawn And Quartered[04:35]
- 02. - Stalingrad[05:59]
- 03. - Hellfire[06:08]
- 04. - Flash To Bang Time[04:07](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED416EC19D27D3AD0626D6BE3018BF611B0041C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834720   (250468) от 04.11.2025
-
-Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250468.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	The Boyd Brothers–	Keep It Coming	(7:19)
-A2	Charlene Davis–	Aggression	(4:29)
-A3	Nancy Dean–	Too Many Promises	(5:56)
-A4	Hippies With Haircuts–	Eye On You	(4:45)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4148D74064A3D81B0B8B068AF25B6AC3626040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617214   (250260) от 07.03.2023
-
-Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Insomnium — финская англоязычная группа из города Йоэнсуу, играющая музыку в стиле мелодик-дэт-метал. Основными темами песен являются скорбь, мистицизм, природа. Их стиль содержит в себе некоторые элементы doom metal. В творчестве группы также присутствуют элементы нордического фолка и симфонической музыки.2002 - In the Halls of Awaiting
-2004 - Since the Day it All Came Down
-2006 - Above the Weeping World
-2009 - Across The DarkЖанр: Melodic Death MetalПродолжительность: 09:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13F03859AF8AF05B4966658D8C66F58A9A09AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617966   (250117) от 09.03.2023
-
-Имант Ванзович, Мирдза Зивере и Группа «Опус'' - Високосный Год. Песни Зигмара Лиепиньша (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250117.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Пробуй
-A2 Високосный Год
-A3 Мы Почти Позабыли
-A4 Испорченный Телефон(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED446D73CD4F41073A14074723A479F208122761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586632   (250027) от 11.03.2023
-
-Группа Las Vegas - Imported From... (1998) Unofficial Release [FLAC 2.0|64/24|image+.cue|MC-Rip] <Glam Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexual Might
-02. Hard Golden Chains
-03. Crying In The Silence
-04. Bestseller Gun(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37238C52EC26C6504B49AAC973A5080490D774E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

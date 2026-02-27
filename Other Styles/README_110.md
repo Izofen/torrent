@@ -1,3 +1,61 @@
+###  Публикация: 605467   (549197) от 21.06.2019
+
+Виктор Цой - Минусовки (2010) [MP3|96-256 kbps] <Rock>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549197.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Невесёлая песня 04:20
+2. Следи за собой  04:35
+3. Спокойная ночь  06:17
+4. В наших глазах  03:37(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F4960AB074D82FA2AF69189866A601771F797F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238061   (548779) от 27.07.2018
+
+VA - Summer: The Donna Summer Musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soundtrack, Musicals>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LaChanze & Original Broadway Cast of Summer - The Queen Is Back (2:29)
+02. LaChanze & Original Broadway Cast of Summer - I Feel Love (2:51)
+03. Ariana DeBose & Original Broadway Cast of Summer - Love To Love You Baby (2:40)
+04. Storm Lever, Kimberly Dodson, Wonu Ogunfowora & Original Broadway Cast of Summer - I Remember Yesterday (2:39)(   Читать дальше...   )Жанр: Pop, Soundtrack, MusicalsПродолжительность: 01:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA42EE4097535A9313EACCBA6C9E0968E20176E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310042   (547844) от 23.06.2019
 
 Sun Kil Moon ‎ - I Also Want To Die In New Orleans (2019) 2CD [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk Rock>
@@ -696,70 +754,6 @@ Two Steps From Hell - Nemesis (2007) [MP3|320 кб/с]<OST Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9721AEEAEEA00DF6475386F781FC60DE54E4C1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531355   (541830) от 05.08.2012
-
-Astor Piazzolla - Edicion Critica (2005) 7CD [FLAC|Lossless]<Latihin, Tango>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invierno Porteno [08:24]
-02. Verano Porteno [03:55]
-03. Otono Porteno [06:01]
-04. Primavera Portena [05:33]
-05. Buenos Aires Hora Cero [04:03]
-06. Retrato De Alfredo Gobbi [07:47]
-07. Revolucionario [05:22]
-08. Kicho [06:24]
-09. Casa Pueblo [03:53]
-10. Flaco Aroldi [02:36](   Читать дальше...   )Жанр: Latihin, TangoПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049929   (541573) от 06.09.2016
-
-Ocean Waves For Sleep - Collection Of Ocean Sounds (2016) [MP3|320 Kbps] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean SoundsRefreshing Sleep
-02. Ocean SoundsBeach Paradise Relaxation
-03. Ocean SoundsParadise
-04. Ocean SoundsCalm Ocean(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E02D10C559A79FE226B39A7CE90625CE503B01
 ```
 
 https://mybot314.ru/tekegram_catalog/

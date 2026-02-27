@@ -1,3 +1,407 @@
+###  Публикация: 915264   (592337) от 05.07.2015
+
+VA - Vocal Trance Seduction Vol 5 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Miller, Nicole McKenna - This Time Last Year (Original Mix) (07:04)
+02. Jan Martin - There's You (LTN Remix) (06:55)
+03. Lisaya ft. Hanna Finsen - Time To Live (Original Mix) (07:25)
+04. Julie Thompson with Dragon & Jontron - Loved (Sied van Riel Remix) (06:38)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1E1FA3FF9883D0AF7C221B2A95229B7668AC20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915497   (592302) от 05.07.2015
+
+VA - Summer Dance Party (2015) [MP3|320 кб/с]<Club, Dance, Hands Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirami - Amore Eh Oh! (Bbx English Remix)
+02. Federico Seven feat. Valeria Barbera - Summer Breeze (Extended Mix)
+03. Ellie Goulding - Love Me Like You Do (Seum Dero Remix)
+04. Gabry Ponte - Showdown (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, Hands UpПродолжительность: 07:09:5
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66070F3A83895A0C2DABC456D44999122FD64AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915353   (592258) от 05.07.2015
+
+VA - Сборник танцевальных хитов Оттопырься (2015) [MP3|192-320 кб/с]<Pop, Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гр. «Планеты» - Всем привет из 90-х (Alex Neo Remix)
+02. Аркадиас - Солнечное регги (Dj Migachev original-mix)
+03. Topmodelz - Your Love 2015 (Extended Mix)
+04. Кай Метов - Position #2(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80973F7F6197B608DC8F80D1EFF203F70DBE7087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915394   (592249) от 05.07.2015
+
+VA - Car Audio. Великолепный замес. Sound Clinic - Special Edition (2015) [MP3|320 кб/с]<Deep, Tech, Trap, Electro, Progressive, Drum n Bass, House, Auto>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592249.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 4Tune500 - Dancing In The Dark (CamelPhat Vocal Mix)
+2. Aaliyah - Try Again (Michael Naesborg Remix)
+3. Abramovsky - Away (Smokeless Soul Remix)
+4. Aimes - Harmonique Cosmique (Beach Version)(   Читать дальше...   )Жанр: Deep, Tech, Trap, Electro, Progressive, Drum n Bass, House, AutoПродолжительность: 15:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1DD3421A98BC72978DE9A6952A4E281E541119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915343   (592247) от 05.07.2015
+
+VA - Союз летних хитов от Европа Плюс. Часть 4 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Денис Rider - Неделимыми
+002. Stine Bramsen - Karma Town
+003. Dirty South Feat. Rudy - Live Love Forever
+004. Сергей Жуков Feat. Михаил Жуков - Глупая(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADF25A8E75B108B03AE38C27F12091C54224BD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915290   (591795) от 06.07.2015
+
+VA - Rock 'n' Roll Reloaded (2015) [MP3|320 кб/с]<Rock 'n' Roll, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Bopper - White Lightnin'
+02. Bo Diddley - Roadrunner
+03. Chubby Checker - Pony Time
+04. Chuck Berry - Sweet Little Rock And Roll(   Читать дальше...   )Жанр: Rock 'n' Roll, RockПродолжительность: 07:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD82925944EA226C6CDDB4A9F192B2A24F2F744F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916165   (591399) от 07.07.2015
+
+VA - Beatport Indie Dance / Nu Disco Top 100 June (2015) [MP3|320 кб/с]<Indie Dance / Nu Disco, G-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Croatia Squad - Back to Life (Original Mix)
+02. Lika Morgan - Relax (Don't Do It) (Original Mix)Жанр: Indie Dance / Nu Disco, G-HouseПродолжительность: 10:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7978BF10EBEBB5F8344796BFA37AE459546655A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916160   (591390) от 07.07.2015
+
+VA - German Top 50 Official Dance Charts (13.07.2015) [MP3|128-320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Solveig & Gta - Intoxicated
+02. Armin Van Buuren feat. Mr. Probz - Another You (Radio Edit)
+03. Avicii - Waiting For Love
+04. Fragma - Toca Me (twoloud Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 03:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68687B40A06F1D1B0AE8638A4F14B9DCB5AFB5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915953   (591389) от 07.07.2015
+
+VA - Billboard Hot 100 Single Charts 11th July (2015) [MP3|320 кб/с]<Pop, Euro, Indie, Folk, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wiz Khalifa - See You Again (Feat. Charlie Puth)
+02. Taylor Swift - Bad Blood (Feat. Kendrick Lamar)
+03. OMI - Cheerleader (Felix Jaehn Remix)
+04. Fetty Wap - Trap Queen(   Читать дальше...   )Жанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 05:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C586889647FEDAE44E2C93E02DDE0443856C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915998   (591378) от 07.07.2015
+
+VA - Лирика Шансона: Озноб Души (2015) [MP3|256-320 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Аня Воробей - Бессонница
+002. Виктор Калина - Ты высшая
+003. Валентин Садовников - Первая Любовь
+004. Анжелика Рута - Заплутавшее Счастье(   Читать дальше...   )Жанр: ШансонПродолжительность: 09:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEBEE7577DCF6829AAC4FD2AEA2D373B09C5737C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916245   (591331) от 07.07.2015
+
+VA - 100 Волшебных треков Chillout (2015) [MP3|160-320 кб/с]<Chillout, Lounge, Ambient, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterlife - Pirates (Milchbar Mix)
+02. AK & Mapps - Life Cycle (Original mix)
+03. Alex Field - My Life (Original Mix)
+04. Alex Lead feat. Mila Kirichek - Two Hearts (Original mix)(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, TrapПродолжительность: 07:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF36A7463C692042207FDD7DDF49CE8F5A326EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916300   (590937) от 08.07.2015
+
+VA - Музыкальный Сюрприз От Радио Шансон (2015) [MP3|256 кб/с]<Шансон, Авторская Песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590937.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Владимир Курский и Наталья Крикун - Ну где ты
+002. Козьмин Валерий - Казачья
+003. Юрий Охочинский - Дождивый Лондон
+004. Андрей Швидько - Пуля-Время(   Читать дальше...   )Жанр: Шансон, Авторская ПесняПродолжительность: 06:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A6D17D339A4101C00FA79807FD26E7081957D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916389   (590920) от 08.07.2015
+
+VA - Hot Dance Summer 2015 Vol.3 (2015) [MP3|96-320 кб/с]<Club , Dance , House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590920.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hilary Duff - My Kind (Original Mix) [03:28]
+002. Da Buzz - Wonder Where You Are (DJ Misha Gold Remix) [03:10]
+003. JES, Shant, Clint Maximus - Hold On (Red Cube Remix) [03:57]
+004. Showtek feat. Vassy - Satisfied (Blinders Remix) [04:39](   Читать дальше...   )Жанр: Club , Dance , HouseПродолжительность: 08:18:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188765418E3D548DB878F0133F397B9F51DF4032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916374   (590880) от 08.07.2015
+
+VA - The Best World Ballads-26 (2015) [MP3|320 кб/с]<Pop, Rock, Rap, R'n'B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590880.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Sanna Nielsen-Trouble 3:33
+002 Jay Sean-Tears In The Ocean 3:21
+003 Tove Lo-This Time Around 4:04
+004 XOV-Lucifer 3:07(   Читать дальше...   )Жанр: Pop, Rock, Rap, R'n'BПродолжительность: 16:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A795A522CC4CEFEAE41E0518E97082B82C864D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549695   (590672) от 14.05.2022
 
 VA - NDH 7 (2022) [MP3|320 Kbps] <NDH, Industrial Metal, Gothic Metal>
@@ -339,412 +743,6 @@ VA - Summer Dance (2015) [MP3|320 кб/с]<House, Bigroom, Progressive, Funky>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B705B1FAB7C125875A08D1CE478C50F62FB6A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916931   (589935) от 10.07.2015
-
-VA - Ищу тебя Новые хиты шансона (2015) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589935.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Группа Централ - Держись
-002. Евгений Любимцев - Никто меня не любит
-003. Виталий Волин - Птица
-004. Сергей Черновской - Мадам(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC2C87CC0412DAACBFD604725BBAB7C8E7BEDCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917120   (589924) от 10.07.2015
-
-VA - Верность Топ новинок попмузыки (2015) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589924.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Майя Подольская - Верность
-002. Дима Билан - Болен тобой
-003. Бьянка - Любимый дождь
-004. Вера Брежнева - Доброе утро(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1694E233DE147719934152ED43260D55C51FD553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916992   (589863) от 10.07.2015
-
-VA - Новинки Русского Рока Выпуск 4 (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Каспий - Открытый космос
-02. Stereoдождь - Смотри как рушится их мир
-03. KiMATA - Авеню Свободы
-04. 18 Plus - Белые ночи(   Читать дальше...   )Жанр: RockПродолжительность: 03:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44397208AF52FDBA6886B0432E285C3EC4C5797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917022   (589792) от 10.07.2015
-
-VA - New Clear Radio Vol1 (2015) [MP3|~245 кб/с (V0)]<Pop , Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589792.jpg" />
-</div>
-
-
-###  Подробнее
-
-(03:27) 1. The Clash - Rock The Casbah
-(03:56) 2. The Psychedelic Furs - Pretty In Pink
-(04:31) 3. Mumford & Sons - I Will Wait
-(02:39) 4. Plain White T's - Take Me Away(   Читать дальше...   )Жанр: Pop , RockПродолжительность: 07:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCEDE298D50C5A73377DA02F9A51ECBD919661A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917163   (589642) от 11.07.2015
-
-Dj Parafich - Pumping (Scouse) Romantica vol. 14 [Ultimate Energy 2] (2015) [MP3|320 кб/с]<Pumping house, Scouse house, Hard bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Broken Heart (Rusklubb Mix)
-02 Decoy
-03 Wipe Away My Tears (Paul Forcer Remix)
-04 Move Your Love (Dj New Man Remix)(   Читать дальше...   )Жанр: Pumping house, Scouse house, Hard bassПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0935CAB3DA5BADD4B7796C5F4123772DD1B900D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917297   (589588) от 11.07.2015
-
-VA - Summer Rhythm Ibiza Club Life (2015) [MP3|320 кб/с]<House, Progressive House, Dutch House, Bounce>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Napt - Hold Tight
-02. Duke Dumont - Nicht Vor Mitternacht (Original Mix)
-03. Frankho - Brain Drop (Original Mix)
-04. Fabio D'elia & Kawkastyle - Respawn (Original Mix)(   Читать дальше...   )Жанр: House, Progressive House, Dutch House, BounceПродолжительность: 10:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F022E3E87A1541F6F7D1B83408D1575490227D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917171   (589547) от 11.07.2015
-
-VA - Rarity Rock (1968-1979) [MP3|320 кб/с]<Classic Rock, Blues Rock, Jazz-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Hull - Squire (5:08)
-02. Alan Hull - One More Bottle Of Wine (4:14)
-03. Alan Hull - Bad Side Of Town (3:56)
-04. Andwella - Hold On To Your Mind (3:53)(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Jazz-RockПродолжительность: 09:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFB073FAC38B7F67E284FEF9D7382897A685946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917477   (589544) от 11.07.2015
-
-Rod Stewart - Picture In A Frame. The Best Ballads (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'd Rather Go Blind (3:52)
-02. This Old Heart of Mine (4:06)
-03. I Don't Want To Talk About It (4:51)
-04. Sailing (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06FBE1162DBDE9A80BE99C778CD232D1CB6405E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917160   (589465) от 11.07.2015
-
-Би-2 - Нечетный воин. Лучшее (2005-2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Би-2 & Диана Арбенина- Медленная звезда
-02. Brainstorm-Ты не один
-03. Би-2 & Инна Желанная- Небо без края
-04. Би-2 & David Sterry-Теперь ты знаешь(   Читать дальше...   )Жанр: RockПродолжительность: 01:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A0B33071DC7C1B5BBE71E38B1FCD0A99543FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917612   (589106) от 12.07.2015
-
-VA - Extra Lounge (episode 9) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernd Filz - Behind (07:04)
-02. Late Night Alumni - Drummer (04:30)
-03. Enrico Donner - Forget Me Not (06:01)
-04. Miss Jaedha - Izea Remembered (05:11)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A810968FF9287165B2F39537AC31371DDDDE8942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917694   (589047) от 12.07.2015
-
-VA - Дискотека забытых хитов (зарубежная) - 14 (2015) [MP3|245 - 268 кб/с]<Italo Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugh Bullen - Night Girl (06:32)
-02. Blu-I Boy - Night Of Ecstasy (Night Version) (04:56)
-03. Helen - Zanzibar (Remix) (06:02)
-04. Marrianne - Passion (06:00)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84052C0345756F9E973F02D8C43D3A3B2E22BEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917704   (589041) от 12.07.2015
-
-VA - Летние super новинки (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589041.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Бьянка - Любимый Дождь
-002. Fidel Wicked - Miss V
-003. Дио.Фильмы - Стая
-004. Gorgon City Feat. Katy B - Lover Like You(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0976B69C06EA608169673346D1F104EBEC6FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917608   (589024) от 12.07.2015
-
-VA - Любимые медляки. Часть 1 (2015) [MP3|320 кб/с]<Pop, Rock, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - Blank Space
-02. Jeremy Fisher - Mother
-03. Air - Cherry Blossom Girl
-04. Alex Lloyd - Lonely Town(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 04:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C253D9D4927979D73EA0B1F0A955666E518CA61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551936   (588965) от 18.05.2022
-
-VA - Morning Motivation (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calum Scott - Rise (3:36)
-02. Kygo, X Ambassadors - Undeniable (3:00)
-03. Masked Wolf, Bebe Rexha - It’s You, Not Me (Sabotage) (2:56)
-04. Ed Sheeran - Overpass Graffiti (4:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748C61A17452F130E2F0443CDC87079811E30FF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

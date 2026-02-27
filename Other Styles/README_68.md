@@ -1,3 +1,61 @@
+###  Публикация: 1392124   (769371) от 25.06.2020
+
+Khruangbin - Mordechai (2020) [FLAC|Lossless|tracks + .cue] <Reggae, Funk, Neo-psychedelia, World>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Class (04:47)
+02. Time (You And I) (05:42)
+03. Connaissais De Face (04:21)
+04. Father Bird, Mother Bird (03:05)(   Читать дальше...   )Жанр: Reggae, Funk, Neo-psychedelia, WorldПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6F4C3F2B78E37D13A06E5C2F225C3DE080FFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125272   (768808) от 14.04.2017
+
+Caroline Reese and the Drifting Fifth - Tenderfoot (2017) [FLAC|Lossless|tracks] <Country,Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Unlocked (3:48)
+02 - Airshow (3:35)
+03 - New Tricks (2:31)
+04 - Snake Eyes (3:06)(   Читать дальше...   )Жанр: Country,FolkПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F5447EAFF0C709E1DA3525325FD2CDABDC509A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125154   (768807) от 14.04.2017
 
 Sambodhi Prem - Circle of Light (2016) [MP3|320 Kbps] <New Age>
@@ -687,64 +745,6 @@ Jim Brickman - Piano Tributes: Songs Of Carole King (2020) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7228FA7FEF5299D855635BB0B3F51D80EC78D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279729   (764544) от 31.01.2019
-
-Ulver - Svidd Neger (Original Motion Picture Soundtrack) (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Soundtrack, Modern Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preface (1:42)
-02. Ante Andante (0:53)
-03. Comedown (2:19)
-04. Surface (3:17)(   Читать дальше...   )Производство: Jester Records – TRICK030Жанр: Electronic, Soundtrack, Modern Classical, Score, AmbientПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133A35C1E4AE0C925F4557605C541C2B9FB80E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126635   (764479) от 19.04.2017
-
-The Essence - Enigma Lounge (2003) [FLAC|Lossless|tracks + .cue] <Enigmatic, New age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wholeness Of The Essence (04:38)
-02. True Sensuality (05:02)
-03. Essence (04:02)
-04. La Vie Rouge (04:04)(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C57950BAC6E7E800C0950B1FA8B126BA41D81B
 ```
 
 https://mybot314.ru/tekegram_catalog/

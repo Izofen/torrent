@@ -1,3 +1,299 @@
+###  Публикация: 518310   (642753) от 03.07.2012
+
+Игорь Саруханов - Лучшая Коллекция (2012) [MP3|320 кб/с]<Pop rock, pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маскарад
+02.Вчерашний день
+03.Ящики почтовые
+04.Дорогие мои старики
+05.Зачем вернулась ты
+06.Ослепительная блондинка
+07.Серенада моей любви
+08.Скрипка-лиса
+09.Парижское такси
+10.Ты ли это(   Читать дальше...   )Жанр: Pop rock, popПродолжительность: 02:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B957DE4FDA3DA12D031B676DC558ACA90EA5CAFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142627   (642710) от 14.06.2017
+
+140 ударов в минуту - 140% хит (часть 1) (2016) [MP3|320 Kbps] <Dance, Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тополя 3:28
+02. Я тебя люблю 3:51
+03. Ты одна 4:02
+04. Я скучаю по тебе 4:40(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 04:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F07BD252D1975B9ACC38363F3B5120F1BB3499C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142629   (642579) от 14.06.2017
+
+140 ударов в минуту - 140% хит (часть 2) (2016) [MP3|320 Kbps] <Dance, Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Почему же, девчонки... 3:33
+02. Самая длинная ночь 4:51
+03. Двигайся со мной 3:09
+04. I Love You (PPK Russian Trance Mix) 7:56(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 04:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB995B3A3174AE2BCC69A3CF3623FD46977A8C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142620   (642437) от 14.06.2017
+
+Время и Стекло - Обратный отсчёт. The Best (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back2Leto
+02. На cтиле
+03. Навернопотомучто
+04. Песня 404(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BEA27F3965781A1C5044C2B6EC931D4F06BF5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142535   (642345) от 14.06.2017
+
+D. White - One Wish (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fоllоw Mе
+02. Оnе Wіsh
+03. Wаlkіng
+04. Оnе Dау(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6453E8212A0CD77172D63DB204400D838DC011F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032923   (642109) от 09.07.2016
+
+Cristina - Contremano (1982) [MP3|320 Kbps] <Electronic, Pop, Italo-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Lettera (3:39)
+02. Treno 5943 (4:25)
+03. Storia Di Periferia (3:58)
+04. Per Noi (3:50)(   Читать дальше...   )Жанр: Electronic, Pop, Italo-popПродолжительность: 00:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E6C4139C56D9E8BFBA4AB055823C2E05B32490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032876   (641915) от 09.07.2016
+
+Shura - Nothing's Real (2016) [MP3|320 Kbps] <80's Synthpop, Indietronica, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (i)
+02. Nothing's Real
+03. What's It Gonna Be?
+04. Touch(   Читать дальше...   )Жанр: 80's Synthpop, Indietronica, Female VocalПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:953E409F6C8E32B9D47F37D390ECC68A55ABE5B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032812   (641903) от 09.07.2016
+
+Русский стилль - Ты позови меня... (2012) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снег во дворе [04:46]
+02. А в саду ромашки [04:20]
+03. Уезжаешь [04:38]
+04. Ты позови меня (с Олегом Пахомовым) [03:50](   Читать дальше...   )Жанр: PopПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0D240ED1CF4B84475948A955795A82BCC4F00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032730   (641902) от 09.07.2016
+
+Shura - Nothing's Real (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Synthpop, Indietronica, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (i)
+02. Nothing's Real
+03. What's It Gonna Be?
+04. Touch(   Читать дальше...   )Жанр: 80's Synthpop, Indietronica, Female VocalПродолжительность: 00:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1AC73824F65761388CF6A79EBA771DF78AFA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906877   (641699) от 10.06.2015
+
+QED - Animal Magic (1984) [OGG|475-526 кб/с]<Electronic, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Solo And More	03:30
+02.	Sayonara	04:26
+03.	Barbie Doll	04:45
+04.	This One	03:51(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C3EE94D1B5FC4FE0CF74BEC79E8DA64DC534D8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905800   (641698) от 10.06.2015
 
 Ульяна КаракоZ - New Angels (2015) [MP3|320 кб/с]<Pop>
@@ -463,296 +759,6 @@ VA - Disco Music Comeback (The Return Of The Glory Hits) (2017) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ACAB3031C7E5DFE192882488350C99F304F9363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541936   (640872) от 05.04.2022
-
-Bananarama - Discomania (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venus
-02. I Heard A Rumour
-03. Love Is The First Degree
-04. I Can't Help It(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D29A9980B7B693111C8ACF831AE3F7D77CBF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542170   (640615) от 05.04.2022
-
-Мираж - Снова вместе (1994) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Музыка нас связала
-02. Наступает ночь
-03. Снова вместе
-04. Где я(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FB1EC7C2D0A397B6157441CBD6FB174D5F43E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033208   (640200) от 10.07.2016
-
-Coco Morier - Dreamer (2016) [MP3|320 Kbps] <Electropop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Pressure (2:51)
-02. World on Fire (3:44)
-03. Dreamer (3:16)
-04. Am I Normal (3:45)(   Читать дальше...   )Жанр: ElectropopПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24CE0A4C7510EA03DF90C58E9E89EFDB088DC2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033154   (640195) от 10.07.2016
-
-MAGIC! - Primary Colors (2016) [MP3|320 Kbps] <Pop, reggae>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have It All (03:38)
-02. Lay You Down Easy (02:45)
-03. Gloria (03:47)
-04. Red Dress (03:21)(   Читать дальше...   )Жанр: Pop, reggaeПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D36ABAE02EABE0268AAB28C2EB58D2A8EBC9FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033302   (639882) от 10.07.2016
-
-VA - FitHits (2016) [MP3|256 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639882.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-Пpодолжительность: 01:11:52
-
-01. Avicii Ft Simom Aldred - Waiting For Love(   Читать дальше...   )Жанр: PopПродолжительность: 2:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D1D3893BD1BFD4A85BF91C2DA7F09D0DEFFD9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907369   (639737) от 11.06.2015
-
-Татьяна Котова - Ты Один (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты Один
-02. В Играх Ночей
-03. Признание
-04. За Тобой(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66EB9E685071DA3F89261F12742D03E2658D58D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907337   (639729) от 11.06.2015
-
-MIKA - No Place in Heaven (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talk About You (CD Version)
- 02. All She Wants
- 03. Last Party
- 04. Good Guys(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC4706170B4D4B3C2B4C142D0CA8F1645DD39FDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907167   (639645) от 11.06.2015
-
-VA - KuschelRock The Most Beautiful Duets (2015) 2CD [MP3|320 кб/с]<Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Michael Duet With Elton John - Don t Let The Sun Go Down On Me
-02. Phil Collins & Marylin Martin - Separate Lives
-03. Bill Medley & Jennifer Warnes - (I ve Had) The Time Of My Life
-04. Joe Cocker & Jennifer Warnes - Up Where We Belong (An Officer And A Gentleman-Soundtrack(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 02:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5DFFC34095F597DE4BDDAE0B1D879FE76EB2B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228104   (639397) от 30.05.2018
-
-VA - Pop Remixes Mixed By Christian Bartasek (2018) [MP3|320 Kbps] <Dancecore, Hands Up, Hard Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Bartasek - Pop Remixes Megamix (Continuous Mix)
-02. Toxic Outbreak - All Of Me (Sunny Dee And Dreaming Canon Remix Edit)
-03. Orangez - I Gotta Feeling (B-Tastic Remix Edit)
-04. Phat Bomb - Bad (Sunny Dee Remix Edit)(   Читать дальше...   )Жанр: Dancecore, Hands Up, Hard Dance, PopПродолжительность: 02:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7765ED87907BAC2DD6DC2682D362EDA4DE6BA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228042   (639272) от 30.05.2018
-
-VA - Dino Maxi Tops Vol. 1-5 (2001-2006) 10 CD, Compilation, Limited Edition [MP3|320 Kbps] <Italo-Disco, Europop, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639272.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Pet Shop Boys - It's A Sin (Disco Mix) (7:40)
-02. Samantha Fox - Touch Me (I Want Your Body) (5:18)
-03. David Hasselhoff - Je T'Aime Means I Love You (5:45)(   Читать дальше...   )Жанр: Italo-Disco, Europop, Synth-popПродолжительность: 12:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B03D1E00C7646CD71D85463FD3A03C755E1E44
 ```
 
 https://mybot314.ru/tekegram_catalog/

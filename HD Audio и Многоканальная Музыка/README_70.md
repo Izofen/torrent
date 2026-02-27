@@ -1,3 +1,206 @@
+###  Публикация: 1431042   (168724) от 12.12.2020
+
+Tangerine Dream - Stratosfear (1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Electronic, Ambient, Berlin-School>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168724.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Stratosfear	10:04
+A2 The Big Sleep In Search Of Hades	4:45
+B1 3AM At The Border Of The Marsh From Okefenokee	8:10
+B2 Invisible Limits	11:38Жанр: Electronic, Ambient, Berlin-SchoolПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9988EF09DB2BA403F6D9AB26745AE208C6AF3A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596795   (168260) от 12.12.2022
+
+Nordic Union - Studio Albums (3 releases) (2016 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Heavy Metal/Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168260.jpg" />
+</div>
+
+
+###  Подробнее
+
+За названием "Nordic Union" скрывается созданный президентом компании "Frontiers Records" Serafino Perugino совместный проект Ронни Аткинса (Ronnie Atkins) из легендарной датской мелодик-хард'н'хэви группы "Pretty Maids" и подающего большие надежды шведского автора песен и продюссера Эрика Мартенсона (Erik Martensson) известного по таким (   Читать дальше...   )2016 - Nordic Union
+2018 - Second Coming
+2022 - Animalistic
+.Жанр: Melodic Heavy Metal/Hard RockПродолжительность: 02:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9864A331F5B3E71184626604B124A9E0ACD6B449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672786   (168088) от 29.10.2023
+
+Death - Symbolic (1995) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symbolic
+02. Zero Tolerance
+03. Empty Words
+04. Sacred Serenity(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EECD267AEBFBE2A091DB17592F7B7E116F9CE14B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672778   (168063) от 29.10.2023
+
+Death - Individual Thought Patterns (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Overactive Imagination (03:31)
+02. In Human Form (03:58)
+03. Jealousy (03:42)
+04. Trapped In A Corner (04:15)(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B040AA3EDB20D562A9BB694C32B233F42913F468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672667   (167985) от 29.10.2023
+
+Death - The Sound of Perseverance (1998) Reissue 2016, Relapse Records [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scavenger Of Human Sorrow (06:57)
+02. Bite The Pain (04:29)
+03. Spirit Crusher (06:47)
+04. Story To Tell (06:36)(   Читать дальше...   )Жанр: Death Metal, Progressive Death MetalПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A51D6968F01296F1D835CD65C7CF20A4114E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672719   (167966) от 29.10.2023
+
+Bolt Thrower - Studio Albums (8 releases) (1988-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bolt Thrower — британская дэт-метал-группа, образовавшаяся в 1986 году в Бирмингеме, Англия, и ставшая (согласно Allmusic) «самой последовательной и стойкой дэт-метал-группой Британии, сумевшей через все взлёты и падения сохранить звучание и не поддаться на коммерческие соблазны»1988 - In Battle There Is No Law
+1989 - Realm Of Chaos
+1991 - War Master
+1992 - The IVth CrusadeЖанр: Death MetalПродолжительность: 06:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F53D880D8944389925010ED692DC5015E458B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672709   (167811) от 29.10.2023
+
+Deep Purple - In Rock (1970) Remaster, 2018, Parlophone UK [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speed King  (2018 Remaster) [00:05:51]
+02. Bloodsucker  (2018 Remaster) [00:04:12]
+03. Child in Time  (2018 Remaster) [00:10:17]
+04. Flight of the Rat  (2018 Remaster) [00:07:53](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479D1CEDC6633D138878ED1A1577BE57F4FA56E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672620   (167741) от 29.10.2023
 
 Мираж - Неизданное (1989-1991) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, Disco>
@@ -543,209 +746,6 @@ Van Morrison - Accentuate The Positive (2023) [FLAC 24/96|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F117AEAEFC7376AFBB798935875E98784EF09C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673709   (163199) от 03.11.2023
-
-Angra - Cycles Of Pain (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyclus Doloris (0:48)
-02. Ride Into The Storm (6:12)
-03. Dead Man On Display (6:07)
-04. Tide Of Changes (Pt. I) (1:15)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7688709E0C58CCE5307DB9F9C4FA689D1B17AACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673668   (163119) от 03.11.2023
-
-VA - Аракс / Веселые Ребята - Песни На Стихи Виктора Дюнина (1980) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163119.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Аракс– Мир Снов
-(музыка – С. Рудницкий)
-A2 Веселые Ребята – Если Б Не Суббота
-(музыка – В. Аникеев)(   Читать дальше...   )Жанр: PopФормат: FLAC, image+.cueПродолжительность: 00:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4330F517B6E40B67F899FFE7EAC635D59CD9A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673673   (163019) от 03.11.2023
-
-Jean Michel Jarre - Oxymoreworks (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brutalism Take 2 (5:00)
-02. Epica Extension (4:29)
-03. Brutalism Reprise (4:29)
-04. Epica Take 2 (5:34)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3538DF15A47E89772A927DC89FAF4C09759980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598473   (162447) от 19.12.2022
-
-John Di Martino's Romantic Jazz Trio - Lovegame - Tribute to LADY GAGA (2012) Japanese Edition, 2019, Venus Records [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judas
-02. LoveGame
-03. Americano
-04. Paparazzi(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78A75C9BDA784638D25559F1FEFDE9293CF6F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503358   (162138) от 16.12.2021
-
-Smackbound - 20/20 (2020) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Melodic Modern Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wall of Silence (3:27)
-02. Drive It Like You Stole It (3:36)
-03. Close to Sober (4:29)
-04. Run (2:57)(   Читать дальше...   )Жанр: Melodic Modern Metal, Power MetalПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA8EFB778CDD57152F673E677A3578F02086CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674226   (162115) от 04.11.2023
-
-Till Lindemann - Zunge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zunge (4:36)
-02. Sport frei (4:13)
-03. Altes Fleisch (4:25)
-04. Übers Meer (3:19)(   Читать дальше...   )Жанр: Industrial metalПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E828FC06A31BAD5C4A92EA70F0A0B2036A781E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598370   (161775) от 20.12.2022
-
-HIM - Studio Albums (10 releases) (1997 - 2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Rock, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161775.jpg" />
-</div>
-
-
-###  Подробнее
-
-HIM — финская рок-группа, созданная в 1991 году вокалистом Вилле Вало, гитаристом Микко Линдстремом и басистом Микко Паананеном. Первоначальное название коллектива было His Infernal Majesty (Его дьявольское Величество), но его заменили аббревиатурой HIM, когда начались обвинения в пропаганде сатанизма. Некоторое непродолжительное время во время гастролей по США и (   Читать дальше...   )1997 - Greatest Lovesongs Vol. 666
-2000 - Razorblade Romance
-2001 - Deep Shadows And Brilliant Highlights
-2003 - Love Metal(   Читать дальше...   )Жанр: Gothic Rock, Gothic MetalПродолжительность: 10:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE846906E176701A8A43C083589F4D1D55E0035
 ```
 
 https://mybot314.ru/tekegram_catalog/

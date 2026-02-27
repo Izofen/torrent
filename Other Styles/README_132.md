@@ -1,3 +1,67 @@
+###  Публикация: 1168870   (403104) от 27.09.2017
+
+Richard Evans - Seaside: Solo Piano (2008) [FLAC|Lossless|tracks] <New Age, Solo Piano, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Beginnings (5:48)
+ 02. Sea Breeze (5:31)
+ 03. Riding The Surf (5:27)
+ 04. Watching The Shorebirds (5:13)(   Читать дальше...   )Жанр: New Age, Solo Piano, RelaxПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED33C69ABC8A1A888FB44C081E7A7CCB49420068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564207   (402849) от 23.10.2012
+
+Daridan - Listen To Beautiful Music II (2012) [MP3|320 кб/с]<New age, Instrumental, Relax, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_402849.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:55) 01. Do Not Ask Me Who
+(4:26) 02. A Thousand Words
+(4:41) 03. Monsoon
+(3:52) 04. Double Star Love Song
+(4:23) 05. Embrace The Starlight
+(5:40) 06. Hand
+(4:33) 07. Never Been Relentless Love
+(3:47) 08. Fishing Boat Lights Shining
+(4:44) 09. Aizaishenqiu
+(4:36) 10. The Edge Of Love And Pain(   Читать дальше...   )Жанр: New age, Instrumental, Relax, PianoПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1558E7C3DA97311F2A48C9C8400BA4FFC43893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564122   (402794) от 23.10.2012
 
 Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
@@ -723,64 +787,6 @@ David Arnold - Stargate (The Deluxe Edition) (2006) [MP3|320 Kbps] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB3C91A4B0DB0279C30EBF2BAF0CCECF5815D97A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171392   (396680) от 04.10.2017
-
-Joel Goldsmith - Stargate: Atlantis (2005) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Main Title
-02 - Atlantis Takes Flight
-03 - Rogue Drone
-04 - Messages(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE816B06332699687713DC64624D27F1A99FB0B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171474   (396567) от 04.10.2017
-
-Jesse Cook - Beyond Borders (2017) [MP3|320 Kbps] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Borders
-02. Hembra
-03. Unchosen
-04. To the Horizon(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6FC1E3C7FB1D09AB4CE2226C1989F024D5AC1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,207 @@
+###  Публикация: 1497401   (862975) от 23.09.2021
+
+VA - Музыка РУ 5 (2005) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Верка Сердючка - Трали-вали
+02. Жуки - Властелин колец ауди vs. бумер
+03. А'Studio feat. Zied - Ты(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11B1B383658D143701BEA72C5C68C3CE018A6ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497402   (862972) от 23.09.2021
+
+Александр Маршал - Избранное 1998 - 2005 (2005) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Орёл
+02. Кленовый лист
+03. Снегопад
+04. Старое село(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE410BB158A70D41ED3BEE10B877975FBC145B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497416   (862971) от 23.09.2021
+
+Laid Back - Hole In The Sky (1990) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862971.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bakerman
+A2 Hole In The Sky
+A3 Fly With Me
+A4 Highway Of Love(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1522C03026CBD0E7A02F5FDDDEA04217271C136C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497397   (862870) от 23.09.2021
+
+VA - Любимой Женщине 3. Сборник медленных композиций (1997) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Donna Lewis - I love You Always Forewer
+02. Eric Clapton - Change The World
+03. Alanis Morissette - Head Over Feet(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2164BE1D2527B0E031CC974F3F52A392329077D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000790   (857180) от 26.03.2016
+
+Electric Light Orchestra - Time (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (1:15)
+02. Twilight (3:37)
+03. Yours Truly, 2095 (3:17)
+04. Ticket to the Moon (4:07)(   Читать дальше...   )Производство: Jet Records - 25AP 2111(JT)Жанр: Progressive RockПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9F84897677346A07E5D1305DA4DE691DA79362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109802   (855326) от 01.03.2017
+
+VA - RETROспектива, часть XIII. Мелодии и песни из кинофильмов II (1947-1963) [[FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гуальтиеро Мизиано - Кумаре-кумарелла (песня из к.ф. ''Утраченные грёзы'')
+02. Михаил Новохижин - Родной мой завода (песня из к.ф. ''Неподдающиеся'')
+03. Майя Кристалинская - Два берега (песня из к.ф. ''Жажда'')
+04. Инстр квартет п.у. В. Дмитриева - Мелодия из к.ф. ''Там где кончается асфальт''(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9A096CFC57AE241C8735C91A2EB5DAA27A2000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110192   (853604) от 02.03.2017
+
+Ken Hensley - Proud Words On A Dusty Shelf (1973) [WavPack|192/32|image+.cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Кена Хенсли (Ken Hensley) навсегда войдет в историю рок-музыки XX века как первого настоящего хитмейкера классической британской хард-роковой сцены 70-х. Безусловно, миллионы рок-поклонников видят в Кене прежде всего фактического музыкального лидера и харизматического клавишника и гитариста рок-монстров Uriah Heep периода 1970 — 1980 гг.
+Десять последующих лет (   Читать дальше...   )01. When Evening Comes (4:40)
+02. From Time To Time (3:45)
+03. King Without A Throne (3:58)
+04. Rain (3:18)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FD3C6E85140FE239F14BF4C99B443B5DD2EAE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001585   (852186) от 29.03.2016
 
 VA - The Great Singers Of The Jazz/Големите Вокалисти На Джаза (1977) [FLAC 2.0|96/24|tracks+.cue|Vinyl-Rip] <Jazz>
@@ -539,215 +743,6 @@ Elton John - Goodbye Yellow Brick Road (2014) [LPCM2.0 96/24, DTS96/24 5.1|Audio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B21594CD12BD637F55575E556F1FD53A9A80800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501310   (835028) от 10.10.2021
-
-Nirvana - Легенды Зарубежного Рока (2001) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835028.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 About A Girl
-A2 Aneurysm
-A3 Come As You Are
-A4 Frances Farmer Will Have Her Revenge On Seattle(   Читать дальше...   )Жанр: Rock, GrungeПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433A63E1A14CD5E775E84F316C7F90EB5D3348DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380220   (834908) от 02.05.2020
-
-Frank Sinatra - Close To You (1957) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834908.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Close To You
-Hoffman - Livingston - Lampi
-A2. P.S. I Love You
-Gordon Jenkins - Johny Mercer(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F460D95A1A04D01DC062104C8D7FDD41FE675D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 772304   (834257) от 03.04.2014
-
-Queen - News Of The World (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. We Will Rock You  2:03
-2. We Are The Champions  3:00
-3. Sheer Heart Attack 3:27
-4. All Dead, All Dead  3:10
-5. Spread Your Wings  4:35
-6. Fight From The Inside  3:05
-Сторона 2
-1. Get Down, Make Love  3:53
-2. Sleeping On The Sidewalk  3:08(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97472E7B1ABF53E64E1FC11981E5C04A9A743F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005102   (834167) от 08.04.2016
-
-Puhdys / Пудис (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834167.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Когда Умирают Мечты · Wenn Träume Sterben
-A2	Ловцы Жемчуга · Perlenfischer
-A3	Буревестник · Sturmvogel
- A4	Время Жизни · Lebenszeit(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2D5BE717D6373C7BB06333885474E005AA24AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501854   (833536) от 11.10.2021
-
-Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Space Rock, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atomic (Remixed Extended Version) [00:05:09]
-02. Radiate (Remix) [00:04:22]
-03. Radio Station (Extended Version) [00:05:02]
-04. Ideomatic (Remix) [00:04:16](   Читать дальше...   )Жанр: Space Rock, ElectronicФормат: Vinyl-RipПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C2BEE7F702FC9B9A276E71CF3A260976E24919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380462   (832949) от 03.05.2020
-
-Frank Sinatra - My Way (1969/1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Big Band>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832949.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Watch What Happens (from ''The Umbrellds of Cherbourg'')
-Norman Gimbel, Michel Legrand, Jaques Demy
-A2. Didn't We
-Jimmy Webb(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB84BF68342DF1CC9584D665E295E0CC064ADF90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380624   (832820) от 03.05.2020
-
-The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss You (4:49)
- 02. When the Whip Comes Down (4:21)
- 03. Imagination (4:39)
- 04. Some Girls (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

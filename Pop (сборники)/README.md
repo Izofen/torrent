@@ -1,4 +1,149 @@
 https://t.me/izofen
+###  Публикация: 1855805   (1058402) от 25.02.2026
+
+Amanda Lear - Compilation (1977-2025) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Was Your Favourite Singer ❂ Looking Back 2025
+02. Always On My Mind (& Elvis) ❂ Brief Encounters Reloaded 2010
+03. Amour(s) ❂ Looking Back 2025
+04. Are You Lonesome Tonight (& Elvis) ❂ My Happiness 2014(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 03:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78996CAD91EA36F7EFDAAB067B51F070A241E251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855751   (1058398) от 25.02.2026
+
+VA - Russian Hits 2025 (2025) [MP3|320 Kbps] <Pop, hip-hop, electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058398.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:15]. 001-Dima Sneg - Опиум
+[3:31]. 002-Полина Гагарина - Полина
+[2:11]. 003-Siiya & Muzika Tamara - А когда не
+[2:37]. 004-Xcho & Пабло & Mr Lambo - Качало(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 08:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800D8EBC6EAD310B0839F9CD989592EAEC15FA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855226   (1058129) от 23.02.2026
+
+Romantic Dreams - Favorites Collection Part 11 (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bright Future Calling
+02 - Invisible Eye
+03 - Broken Pieces, Mended Heart
+04 - Who Believe in Your Dreams(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0DED066F99960399E15F648A4C9977D1B6B5AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855162   (1058046) от 21.02.2026
+
+VA - Euro Hits 2021 (2021) [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058046.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:00]. 001-Melisa & Tommo - I'm Alone
+[3:01]. 002-Paul Oakenfold & Zhu & Velvet Cash - I Am Into It
+[3:30]. 003-Md DJ- The Real Slim Shady (cover Eminem)
+[3:13]. 004-Bruno Martini & Timbaland & Mayra - Riot(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 05:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9B8602D2B7F2E51FB5D5B0A0C691F2CE1A7A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854990   (1058026) от 21.02.2026
+
+Reyvi - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Flowers
+02 - Mi Noche Cambia
+03 - With Goodbye
+04 - My Life(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A32031C0764DEB9F70AE470127523D000EFD9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853707   (1057089) от 16.02.2026
 
 BONEY M. best (1975-1993) [MP3|320 Kbps] <pop, electronic, soul, funk>
@@ -601,151 +746,6 @@ Romantic Dreams - Favorites Collection Part 9 (2025) [MP3|320 Kbps] <Italodisco,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F83F2531196DC3A68B2276E16C6413A16C67FCAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602851   (1045909) от 07.01.2023
-
-VA - German Top 100 Single Charts 06.01.2023 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045909.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta & Bebe Rexha - I'm Good (Blue) (2:55)
-002. Peter Fox - Zukunft Pink (feat. Inez) (3:50)
-003. Nina Chuba - Wildberry Lillet (2:11)
-004. Sam Smith & Kim Petras - Unholy (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 05:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F531E14233EC355BC0BE22AADC3703A2E6DD5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604630   (1045286) от 14.01.2023
-
-VA - Schlager Hitmix XXL (2023) [MP3|320 Kbps] <Disco, Rock, Synth-pop, Dansband>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Zipfelbuben - Olivia
-02. Alexander Jahnke - Unendlich
-03. Olaf Berger - Sommer in Berlin (Stereoact Mix)
-04. Prince Damien - Du bist der Hammer(   Читать дальше...   )Жанр: Disco, Rock, Synth-pop, DansbandПродолжительность: 03:52:47 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186FC8130D5DA85DA0F62B574FE8C5040CD2C86C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604807   (1045204) от 15.01.2023
-
-VA - Hits Nu Disco Views 001 (2022) [MP3|320 Kbps] <Indie Dance, Nu Disco, Deep Groove, Soulful>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Punky Wash - Free Your Mind (Original Mix)
-02. Monkey Timers - Disko (not Disko) (Original Mix)
-03. Igor Gonya - Trampoline (Original Mix)
-04. Pvlomo, Galo Santo - BRVJA (ALFA TRAX Remix)(   Читать дальше...   )Жанр: Indie Dance, Nu Disco, Deep Groove, SoulfulПродолжительность: 01:56:32 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED7B8FD06827BD12720EB8D6843F8A3F7205507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604780   (1044945) от 17.01.2023
-
-Julia Westlin - Compilation (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyone
-02. Hello
-03. Crazy
-04. All Your Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EAF9826F8860D92B67319673FB798ACC5F6B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605571   (1044820) от 18.01.2023
-
-Sarah Connor - Compilation (2023) [MP3|320 Kbps] <Pop, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whatcha Wearing? (Interlude)
-02. Bounce
-03. Cold as Ice
-04. French Kissing (Radio Edit)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 03:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BDD1F00BF04B84BC13FA1972E95DDC55A3E75D
 ```
 
 https://mybot314.ru/tekegram_catalog/

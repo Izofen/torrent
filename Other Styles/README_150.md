@@ -1,3 +1,61 @@
+###  Публикация: 1333747   (298731) от 27.10.2019
+
+VA - New Instrumental Ballads vol.2 (2002) [FLAC|Lossless|tracks + .cue]<Instrumental, New Age, Ballads>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Hours - Rain 06:57
+02. Light Orchestra - Ocean Breathe 05:29
+03. Sun Collection - Lounge Bomb 04:45
+04. Andrew Moldon - Clounds 02:52(   Читать дальше...   )Жанр: Instrumental, New Age, BalladsПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C7FF414C35790BC5A3D797749D6C601DD3FA4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261667   (298681) от 13.11.2018
+
+Silent nook - С.О.М.А (2018) [MP3|320 Kbps] <Trip-Hop, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2069
+02. С.О.М.А.
+03. Искренне
+04. Блики(   Читать дальше...   )Жанр: Trip-Hop, AmbientПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA0C09E0D4C15F18E8D98DFF90A1280BE7CAD97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333744   (298578) от 27.10.2019
 
 VA – Super Instrumental Vol.3 (2002) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Instrumental, Pop>
@@ -687,64 +745,6 @@ NBA 2k14 Soundtrack  (2013) [MP3|320 кб/с]<OST/Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3ED142D136EB85677967C6F6FB1455CB144C2E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961549   (295059) от 04.12.2015
-
-NBA 2K15 Soundtrack (2014) [MP3|320 кб/с]<OST/Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Tribe Called Quest - Scenario (LP Mix) (04:09)
-02. Afrika Bambaataa - Planet Rock (05:21)
-03. Basement Jaxx - Hot 'n Cold (04:00)
-04. Black Rebel Motorcycle Club - River Styx (03:55)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 01:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5429035FE3B87DFB646268582B77FDC052F58395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961552   (294821) от 04.12.2015
-
-NBA 2K16 Soundtrack  (2015) [MP3|128-320 кб/с]<OST/Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294821.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ Premier Playlist
-01. Custom Track: Papoose Prod. By DJ Premier, "Hold the City Down" (02:39)
-02. Gang Starr (feat. NYGz, H. Stax), "Same Team, No Games" (03:45)
-03. Nas, "Made You Look" (03:00)(   Читать дальше...   )Жанр: OST/SoundtrackПродолжительность: 03:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA2C90E4FA2AD130F23417F68257D58DB99E64C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,294 @@
+###  Публикация: 1610082   (1041889) от 09.02.2023
+
+Janet Jackson - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco, Hardcore, Post-Hardcore, Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I.D. (Interlude) [00:00:47]
+02. Feedback [00:03:38]
+03. LUV [00:03:09]
+04. Spinnin (Interlude) [00:00:07](   Читать дальше...   )Жанр: Funk, Disco, Hardcore, Post-Hardcore, Pop, R&BПродолжительность: 01:01:38
+https://deezer.com/album/400976817
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3BC4EA7E5BC0D7F07FF8FE6D461C1AB553ED01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610911   (1041801) от 09.02.2023
+
+Муслим Магомаев - Импровизации (2004) [MP3|320 Kbps] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Элегия
+02. Три нотки
+03. Грусть
+04. Зибейда(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EE94C6828817F5381FAEA5062D1E1113E20D05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437968   (1041712) от 06.01.2021
+
+Мари Краймбрери - Переобулась (2017) [FLAC|Lossless|tracks + .cue] <Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. От Диктофона До Радио (2:08)
+ 02. Не В Адеквате (3:07)
+ 03. Бой (3:38)
+ 04. А Мы Могли Быть (3:18)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77863049E89233CDE2A3FC65D1D27F9F4D0FFFF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611160   (1041630) от 10.02.2023
+
+VA - Mega Hits Winter (2023) [MP3|320 Kbps] <Electropop, Disco, House, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn - Call It Love
+02. ClockClock - Someone Else
+03. Nico Santos - One Day (I'm Gonna Break Your Heart)
+04. Sam Smith - Unholy(   Читать дальше...   )Жанр: Electropop, Disco, House, SynthpopПродолжительность: 04:36:43 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABDFAA5CD4080BDB20DEAB335C437F9F555033DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611364   (1041419) от 11.02.2023
+
+V.A. - The Best Valentines Album In The World...Ever! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041419.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lewis Capaldi - Someone You Loved
+002. Sting - Shape Of My Heart
+003. Sam Smith - Stay With Me
+004. Diana Krall - Let's Fall In Love(   Читать дальше...   )Жанр: Pop, RnB, Rock ...Продолжительность: 06:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17BAA0ABDADECFC96C318177ECAC5141BBD3E4D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611239   (1041356) от 11.02.2023
+
+VA - Romantic Collection. Jazz (2003) [OGG Vorbis|480 Kbps] <Pop, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ella Fitzgerald - Summertime
+02. Stan Getz - The Girl From Ipanema
+03. Nina Simone - My Baby Just Cares For Me
+04. Sarah Vaughan - And I Love Him(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C051A24DC2E48EF2A02E63C73E94BA6FEB1A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610996   (1041325) от 11.02.2023
+
+VA - Romantic Collection. Tet-A-Tet (1999) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin–	Besame Mucho
+02. Tony Braxton–	Un-Break My Heart
+03. Nick Cave And PJ Harvey–	Henry Lee
+04. Neneh Cherry And Youssou N'Dour–	7 Seconds(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6884D8E28C20A7E3B5FFAF65D4E2D7FCDDDF0EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611185   (1041322) от 11.02.2023
+
+Ennio Morricone - Love Songs & Romantic Scores (2023) [MP3|320 Kbps] <Film, Bandes originales de films>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. La Califfa (Main Theme) [00:02:37]
+02. D'amore si vive [00:03:00]
+03. Love Theme (Version 2) [00:02:48](   Читать дальше...   )Жанр: Film, Bandes originales de filmsПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA137CBE83B4C4FC6934C0D0235504EB4A7960F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611191   (1041312) от 11.02.2023
+
+VA - The Best 70s Album In The World...Ever! (2023) [Mp3|320||tracks] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bee Gees - More Than A Woman (From 'Saturday Night Fever' Soundtrack) [00:03:16]
+02. John Travolta, Olivia Newton-John - You're The One That I Want (From “Grease”) [00:02:49]
+03. Kool & The Gang - Jungle Boogie [00:03:05]
+04. ABBA - Dancing Queen [00:03:51](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97A300FF47CF9093EFCD6958C57772C794D596D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611196   (1041307) от 11.02.2023
+
+VA - The Best 70s Album In The World...Ever! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Than A Woman (From "Saturday Night Fever" Soundtrack) [00:03:16]
+02. You're The One That I Want (From “Grease”) [00:02:49]
+03. Jungle Boogie [00:03:05]
+04. Dancing Queen [00:03:51](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CF564C4D6FF13CDC6A042BB66D923513769A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611419   (1041303) от 11.02.2023
 
 VA - Romantic Collection. Magic Blues (2000) [OGG Vorbis|480 Kbps] <Blues>
@@ -455,296 +746,6 @@ VA - The Best 80s Love Songs Album In The World...Ever! (2022) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15B36E77BF18191F123638B1D22C909132301963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611717   (1040751) от 13.02.2023
-
-VA - ФРАНЦУЗСКИЙ ПОДАРОК The Best Of France Nostalgique Part 1 (2004) [OGG Vorbis|480 Kbps] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salvatore Adamo–	Tombe La Naige
-02. Jean-Jacques Goldman–	Comme Toi
-03. Serge Gainsbourg & Jane Birkin–	Je T'aime... Moi Non Plus
-04. Alain Souchon–	La Foule Sentimentale(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339B659EAB39146AB2B86FAB7B60621238FEBFA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611799   (1040748) от 13.02.2023
-
-VA - The Best 80's Album In The World... Ever! (2020) 3CD, Box Set [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040748.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Phil Collins, Philip Bailey - Easy Lover (5:02)
-2. Meat Loaf - Dead Ringer For Love (4:14)
-3. Bonnie Tyler - Holding Out For A Hero (From "Footloose" Soundtrack) (5:44)
-4. Simple Minds - Don't You (Forget About Me) (2001 Remastered Version) (4:20)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 3CD, 03:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FF97BD0015459DE91B7EE3B54F93FD10FCE405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611804   (1040745) от 13.02.2023
-
-VA - The Best 80s Album In The World...Ever! (2021) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040745.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Police - Every Breath You Take (Remastered 2003) (4:13)
-2. Simple Minds - Don't You (Forget About Me) (2001 Mix) (4:22)
-3. Roxy Music - More Than This (Remastered/1999) (4:30)
-4. Nik Kershaw - Wouldn't It Be Good (4:32)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A92733E92B845ED757581F7CC1FED4A37C1C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438889   (1040613) от 10.01.2021
-
-Maggie Reilly - Past Present Future: The Best Of (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreign Affair (2021)
-02. To France (2021)
-03. Family Man (2021)
-04. Everytime We Touch (2021)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B45ECA7C353924415844AEA7303854EC579FFECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611661   (1040523) от 14.02.2023
-
-VA - I Singoli di Sanremo 2023 (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elodie - Due
- 02. Ultimo - Alba
- 03. Colapesce Di martino - Splash
- 04. Lazza - Cenere(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53CDE1F0B4B67E68B01CFD09C3DB45AB67DF307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612016   (1040514) от 14.02.2023
-
-VA - Romantic Collection. Nordic (2005) [OGG Vorbis|480 Kbps] <Pop Nordic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Øystein Sevåg–	Norwegian Mountains
-02.	Valgeir Guðjónsson, Eythor Gunnarsson–	Gaia
-03.	Markku Lepistö–	Länsiranta
-04.	Wimme–	The Waves of Life(   Читать дальше...   )Жанр: Pop NordicПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4AAE14F6B0EAC1EE5E6E127F241464837F72C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438866   (1040379) от 11.01.2021
-
-Rauw Alejandro - Afrodisíaco / Afrodisiaco (2020) [FLAC|Lossless|tracks + .cue] <Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dile a El (03:30)
-02. Strawberry Kiwi (03:32)
-03. Mood (02:56)
-04. Química (04:55)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA19B55167D99D05F5D8784069AE3ABF2988031A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438978   (1040337) от 11.01.2021
-
-Alan Barry - Greatest Hits & Remixes (2019) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Vibrations (Radio Version) (3:43)
-02. Come On (Radio Version) (3:55)
-03. Ring The Bell (Radio Version) (4:21)
-04. Tell Me The Reason (ZYX Edit) (3:27)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6F3DE489D2715BFACD9317273072E573828F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439146   (1040335) от 11.01.2021
-
-A La Carte - The Ultimate Best of Album (2016) Remastered [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Gimme Reggae (Remastered) (3:01)
-02. When the Boys Come Home (Remastered) (4:06)
-03. You Get Me on the Run (Remastered) (3:22)
-04. Viva Torero (Remastered) (3:56)(   Читать дальше...   )Жанр: Euro-Disco, EuropopПродолжительность: 02:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86EB2D4832DEBCF38B7F5E375E3286A8FB374EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612182   (1040283) от 15.02.2023
-
-VA - Romantic Collection. Black and Beautiful (2000) [OGG Vorbis|480 Kbps] <Pop, R&B, Hip-Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TLC - Dear Lie (Album Version)
-02. The Roots ft. Erykah Badu - You Got Me
-03. LL Cool J - Hey Lover
-04. Cedric Ceballos with Warren G - La Conecta(   Читать дальше...   )Жанр: Pop, R&B, Hip-HopПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5D1E4340C7EDD48E6A85D5CCD335A17003A1A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

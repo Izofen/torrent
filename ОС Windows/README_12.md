@@ -1,3 +1,56 @@
+###  Публикация: 1397674   (736951) от 23.07.2020
+
+Microsoft Windows 10.0.19041.388 Version 2004 (Updated July 2020) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.388.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FF266F6C587F5E74BAFF3229FA932192380C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283690   (730721) от 19.02.2019
+
+Раздел восстановления (Recovery) для ноутбука HP Pavilion tx2550er (Vista HP x86 SP1) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ снимался программой Acronis True Image 2015. Предназначен для восстановления заводского состояния ноутбука HP Pavilion tx2550er. Содержит раздел восстановления с ОС Vista HP x86 SP1Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1631A0F79A571FCE761557AA12090E7B3FF1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284246   (728386) от 21.02.2019
 
 Microsoft Windows 10.0.17763.316 Version 1809 ( February 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
@@ -638,58 +691,6 @@ Recovery USB-flash for Sony VAIO SVF152A29V (SVF1521H1R) Windows 8 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D87C3D2CE4838C995167EA435E639664CD770F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222958   (680554) от 01.05.2018
-
-Microsoft Windows 10 10.0.17134.1 Business editions Version 1803 (Updated April 2018) - Оригинальные образы от Microsoft [MSDN] [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы Windows 10 April 2018 Update от 30 апреля 2018 года. С обновлением Redstone 4 должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3972DD1A47B0C7CB5CDF83997085A2C1CACD9F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222973   (678684) от 02.05.2018
-
-Microsoft Windows 10 10.0.17134.1 Consumer editions Version 1803 (Updated April 2018) - Оригинальные образы от Microsoft [MSDN] by WZT [Ru/En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы Windows 10 April 2018 Update от 30 апреля 2018 года. С обновлением Redstone 4 должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Русский/Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27445BD9A44A7D3CAF754129AA57830C9A04DB15
 ```
 
 https://mybot314.ru/tekegram_catalog/

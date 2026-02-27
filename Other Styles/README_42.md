@@ -1,3 +1,58 @@
+###  Публикация: 186479   (871440) от 31.03.2010
+
+David Nevue - 10 albums (1991-2007) [MP3|320 kbps]<New Age, Solo pian>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, Solo pianoПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496505   (871397) от 18.09.2021
+
+Sarah Patterson - Buddhasongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, World, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Heart Sutra
+02. Buddha of the Wild and Green
+03. Deer in the Morning (Chenrezig)
+04. Medicine Buddha Healing(   Читать дальше...   )Жанр: New Age, World, MantrasПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A406732959A4E7C5FD8AE63ACF7E6F4EDF772C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106831   (871391) от 20.02.2017
 
 2002 - Celtic Fairy Lullaby (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -732,64 +787,6 @@ Gary Schmidt - A Classical Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83F013CFEDC68C3E96B03478964F1665DB107971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998752   (868516) от 20.03.2016
-
-Corciolli - Lightwalk (2010) [FLAC|Lossless|tracks] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miragea  04:41
-02. Amethysios  05:48
-03. Star  03:55
-04. Pegasus  04:03(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC74E4FEC728E0281A2992A79681BF6874EBB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998577   (868512) от 20.03.2016
-
-Ancient Future - Asian Fusion (1993) [MP3|320 кб/с] <Folk, World, New Age>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude  01:03
-02. Bookenka (The Adventurer)  05:25
-03. The Trader  04:15
-04. Mezgoof  06:23(   Читать дальше...   )Жанр: Folk, World, New AgeПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B729215DA2C3474CF6CCB2E9A8494F7BF616968
 ```
 
 https://mybot314.ru/tekegram_catalog/

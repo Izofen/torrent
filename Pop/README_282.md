@@ -1,3 +1,293 @@
+###  Публикация: 1609569   (208335) от 03.02.2023
+
+VA - Romantic Collection. Volume 2 (1997) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen — Killer Queen
+02. Smokie — What Can I Do
+03. Helloween — I Take That Wasn't Right
+04. Nino Rosso — La Canzone Di Solving(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 01:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFE72866A5D532C2EBAD5D0DD08044CA8E8D01C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648027   (208326) от 21.07.2023
+
+IOWA - Кассиопея (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208326.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. ПАРАД ПЛАНЕТ
+3. ЗЕБРА
+4. Плохая погода(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293870239E1D8237D829C4FA643FE7F0AFE4EAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609517   (208309) от 03.02.2023
+
+VA - Romantic Collection. Volume 1 (1995) [OGG Vorbis|480 Kbps] <Rock, Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animals — House Of The Rising Sun
+02. Scorpions — Wind Of Change
+03. Eagles — Hotel California
+04. Iggi Pop — In The Deathcar(   Читать дальше...   )Жанр: Rock, Pop, FolkПродолжительность: 01:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B6234FF7D9401C21EC726461785D226E2EF768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609768   (208227) от 04.02.2023
+
+VA - Лучшие песни русских сериалов (2003) [MP3|320 Kbps] <Soundtrack>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любэ - Давай За...
+02. О. Газманов - Мои ясные дни
+03. Високосный год - Тихий огонек
+04. Верка Сердючка - Горiлка(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4812A2F22EABB68E6AB4625FE8B3BACE2E52FE87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648870   (208021) от 25.07.2023
+
+Minelli - Silver & Gold - Chapter II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver & Gold (2:40)
+02. Maracatu (2:24)
+03. Think About U (with SICKOTOY) (2:50)
+04. Crazy (2:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE66417F569D9BC3E401402A30B13455A3D4C16D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649351   (207848) от 27.07.2023
+
+Joe Dassin - Les Champs-Elysees / La Fleur Aux Dents (2019) Compilation [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Les Champs-Elysees (1969)
+01. Le Chemin De Papa (2:30)
+02. Le Petit Pain Au Chocolat (3:25)
+03. Les Champs-Elysees (2:40)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20706EAE0E897990F40EE235BC69FAF20D11BBB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610948   (207846) от 09.02.2023
+
+Mylene Farmer - L'amour XXL (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ainsi soit je...
+02. Déshabillez-moi
+03. L'autre
+04. Beyond My Control(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465070AE7C5EE1C7A4848E6A22BAE2A305D7D73A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610469   (207812) от 09.02.2023
+
+VA - Romantic Collection. France (1998) [OGG Vorbis|480 Kbps] <Rock, Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Dassin–	L'Ete Indien
+02. Patricia Kaas–	Mon Mec A Moi
+03. Charles Aznavour–	Il Te Suffisait Que Je T'Aime
+04. Ennio Morricone–	Le Vente, Le Cri (From The Film "Le Professional")(   Читать дальше...   )Жанр: Rock, Pop, VocalПродолжительность: 01:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6735B48CE3B894885D26C3F8BAEB7A5CD107B806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610777   (207796) от 09.02.2023
+
+VA - Romantic Collection. Italian (1999) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toto Cutugno–	L'italiano
+02. Matia Bazar–	Solo Tu
+03. Adriano Celentano–	Il Tempo Se Ne Va
+04. Umberto Tozzi–	Tu(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2DBA55ED06EF06812B6C378200BAF723A5236B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611183   (207734) от 10.02.2023
+
+VA - Romantic Collection. Disco (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris De Burg–	Lady In Red
+02. Chris Norman & Suzie Quatro–	Stumblin' In
+03. F.R. David–	Words
+04. ABBA–	Money, Money, Money(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 02:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193260425A09F9D5887AFA8BE460BC9F4D7BE694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649523   (207704) от 28.07.2023
 
 VA - Трибьют Валерии (2023) [MP3|320 Kbps] <Pop>
@@ -453,296 +743,6 @@ VA - Romantic Collection. Instrumental 2000 (2000) [OGG Vorbis|480 Kbps] <Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BB9C88824BA72517511880989BB785D9948749E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614141   (206816) от 21.02.2023
-
-Bad Boys Blue - 25 (The Long Mixes - Extended Versions) (2022) 2xCD [FLAC|Lossless|image + .cue] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206816.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. You’re A Woman (New Long Version) 6:56
-02. Gimme Gimme Your Lovin’ (New Long Version With Trevor Vocals) 6:02
-03. Lady In Black (New Long Version) 5:09(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80950ECD4549EACFD976676673512CDDA0EB742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652017   (206732) от 09.08.2023
-
-E-Type - Loud Pipes Save Lives (2004) [OGG Vorbis|480 Kbps] <Electronic, Hi NRG, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loud Pipes Save Lives
-02. Paradise (feat. NaNa)
-03. Camilla
-04. The Predator(   Читать дальше...   )Жанр: Electronic, Hi NRG, Euro HouseПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEFA46910AB6412CB995AE685D8A87675FD9B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614610   (206715) от 22.02.2023
-
-Ариэль - 7 Albums, 1 Single (1975-1995) Vinyl Collection [MP3|320 Kbps] <Folk Rock, Pop, Rock>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вокально-инструментальный ансамбль (ВИА) «Ариэль» - советская и российская музыкальная группа из Челябинска, датой основания которой принято считать 17 октября 1967 года. Руководитель ансамбля до 1989 года - Валерий Ярушин. В разное время «Ариэль» работал в разных стилях, однако жанровой основой ансамбля всегда был русский вариант фолк-рока, подразумевавший обработки (   Читать дальше...   )Список альбомов:
-1975 - Ариэль (Зимы и вёсны)
-1977 - Русские картинки
-1980 - Ариэль (На острове Буяне)(   Читать дальше...   )Жанр: Folk Rock, Pop, RockПродолжительность: 04:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15301631AA9F6EDCD3ADFE90453AEABEA7029810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614576   (206685) от 22.02.2023
-
-Silicon Dream - Time Machine (2022) 2 CD 35th Anniversary Delux Expanded Editon, Maschina Records [FLAC|Lossless|tracks + .cue] <Euro-Disco, New Beat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206685.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Time Machine (You Are The Master Of Time-Age)
-02. Jimmy Dean Loved Marilyn-Film Ab (The Hollywood-Age)
-03. Corleone Speaking (The Chicago-Age)(   Читать дальше...   )Жанр: Euro-Disco, New Beat |Продолжительность: 02:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90330EAE952A6E0B2EE087E85F418511043C45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652140   (206645) от 10.08.2023
-
-VA - Now That's What I Call Music 87 (2023) CD, Compilation [MP3|320 Kbps] <Dance, Synthpop, Hip Hop, Post-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miley Cyrus - Flowers
-02. Post Malone - Chemical
-03. NF - Happy
-04. Ed Sheeran - Eyes Closed(   Читать дальше...   )Жанр: Dance, Synthpop, Hip Hop, Post-DiscoПродолжительность: 01:15:48 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D788F208E0BEF6C562D4A30340C1C6864E77BA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652141   (206636) от 10.08.2023
-
-VA - Now That's What I Call 90's Pop (2023) CD, Compilation [MP3|320 Kbps] <Dance, Synthpop, Hip Hop, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spice Girls - Wannabe
-02. Backstreet Boys - Everybody (Backstreet's Back) (Radio Edit)
-03. NSync - I Want You Back (Radio Edit)
-04. Salt-N-Pepa - Shoop(   Читать дальше...   )Жанр: Dance, Synthpop, Hip Hop, DowntempoПродолжительность: 01:08:39 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842CD8CAD698D43F254DFB276BAD79A013728C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652605   (206441) от 12.08.2023
-
-VA - Hottest Pop Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Post Malone - Sunflower (Spider-Man: Into the Spider-Verse) (02:37)
-02. Avicii - Wake Me Up (Radio Edit) (04:06)
-03. The Weeknd - Reminder (03:38)
-04. Imagine Dragons - Demons (02:57)(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F18FB5173D27559CA9400F7B897DADB2B2A814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615515   (206338) от 26.02.2023
-
-VA - Romantic Collection. Ретро (1999) [OGG Vorbis|480 Kbps] <Pop, Stage & Screen, Vocal>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. О. Анофриев-Песня о друге
-02. А. Герман-Надежда
-03. Л. Утесов-Московские окна
-04. Г. Великанова-Ландыши(   Читать дальше...   )Жанр: Pop, Stage & Screen, VocalПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607CEF384EF4AEE22289355C9A694FE63A9BDFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616063   (206192) от 28.02.2023
-
-VA - Romantic Collection. Volume 5 (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mungo Jerry - In The Summertime
-02. Santana - Smooth feat. Rob Thomas
-03. Elton John - A Word In Spanish
-04. Duran Duran - Come Undone(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABDE7E5B2A966D3296D99AFC5FF6CEFF42B2BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615960   (206171) от 28.02.2023
-
-VA - Romantic Collection. Golden 70s (2000) [OGG Vorbis|480 Kbps] <Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Leave Me Now - Chicago
-02. How Deep Is Your Love - Bee Gees
-03. Stumblin In - Smokie
-04. I Do, I Do, I Do - Abba(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D806A0DA4B5822494FF11E84E44A6D236E28C1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

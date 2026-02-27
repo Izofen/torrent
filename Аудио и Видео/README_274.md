@@ -1,25 +1,25 @@
-###  Публикация: 1428344   (180073) от 02.12.2020
+###  Публикация: 968576   (138120) от 31.12.2015
 
-VA - Blues Masters (2020) [AAC|~310 Kbps] <Rock, Blues>
+Yes - Fragile (1971) Remaster, 2015, Atlantic Records [ALAC|2.0 24/88|tracks]<Symphonic Prog>
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180073.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Creedence Clearwater Revival - Fortunate Son (2:20)
-02. S.G. Goodman - The Way I Talk (3:38)
-03. Tom Petty - Runnin' Down A Dream (4:22)
-04. Nathaniel Rateliff & The Night Sweats - I Need Never Get Old (4:14)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:55:25
+01. Roundabout (8:36)
+02. Cans and Brahms (1:43)
+03. We Have Heaven (1:39)
+04. South Side of the Sky (7:56)(   Читать дальше...   )Жанр: Symphonic ProgПродолжительность: 00:41:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB15BD81F6F81D560D86B7FB573B656F582429B0
+magnet:?xt=urn:btih:600456F21BCD987F88FD85BE8BAA97C2C76C6900
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428530   (180062) от 02.12.2020
+###  Публикация: 1521044   (138114) от 31.12.2021
 
-VA - Cinderella, vol. 4 (50 Lovely Lounge Cookies) (2019) [AAC|~324 Kbps] <Lounge, Chillout>
+VA - Steyoyoke Gems Solar 10 (2021) [AAC|~337 Kbps] <Progressive House, Deep House, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180062.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. James Butler - Praia Bossa (Original Mix) (2:53)
-02. Mark Mars - Ship's Lounge (Downtown Slow Mix) (3:23)
-03. Allan Taylor - Moito (On the Beach Edit) (3:48)
-04. Krystian Shek - Blue Marine (Original Mix) (4:06)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 03:21:01
+01. Nick Devon, Grammik - Wanderlust (Original Mix) (6:54)
+02. Soul Button, Clawz SG, Monarke - Implicit Bias (Monarke Remix) (7:03)
+03. Clawz SG - Bloom (Extended Mix) (7:00)
+04. Dahu, Soul Button - Sentient (Original Mix) (6:14)(   Читать дальше...   )Жанр: Progressive House, Deep House, DowntempoПродолжительность: 02:14:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABF51BCD8F108E438EF264BE9CB9BC03B1895D42
+magnet:?xt=urn:btih:F6CF50D0CE81941FA437F0F48B04E2C261B1D8A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428485   (180044) от 02.12.2020
+###  Публикация: 1521048   (138105) от 31.12.2021
 
-VA - Cinderella, vol. 1 (50 Lovely Lounge Cookies) (2019) [AAC|~326 Kbps] <Lounge, Chillout>
+VA - Best Of Piston Recordings 2021 (2021) [AAC|~308 Kbps] <Deep House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180044.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Manyus Joan Eta - Jazz Fisa (Original Mix) (5:16)
-02. Arnold Harris - Look Again (Maximilian Cox's Bar Grooves Mix) (3:33)
-03. Yves Semain - Miracle (Original Mix) (3:17)
-04. Marc Hartman - Out of Control (Original Mix) (4:00)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 03:05:18
+01. ChubaChiki - Jazz Improvisation (Marcus Raute Mallets Mix) (6:29)
+02. kamosoul - Shine (BNinjas Basement Mix) (7:12)
+03. Toni Young - Impossible To Imagine (5:49)
+04. JOFF. - Sunday Picture (5:59)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:26:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19BB1CA60D26A252A6B28ABDEA3CA22F667A3E57
+magnet:?xt=urn:btih:6C346221D00658F6C8378B8ABEB79765E59AFB61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428536   (179992) от 02.12.2020
+###  Публикация: 1521040   (138090) от 31.12.2021
 
-VA - Deezer Best Of: Top Russia 2020 (2020) [AAC|~318 Kbps] <various>
+VA - Organica - Sound Tales 1 (2021) [AAC|~305 Kbps] <Deep House, Dub Techno>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179992.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Weeknd - Blinding Lights (3:20)
-02. Tones and I - Dance Monkey (3:29)
-03. SAINt JHN - Roses (Imanbek Remix) (2:57)
-04. Jony - Комета (2:41)(   Читать дальше...   )Жанр: variousПродолжительность: 02:39:16
+01. Tender H - Between Times (Meek Remix) (6:20)
+02. Meek - Clue (7:00)
+03. Meek - Endes (6:32)
+04. Meek - Noted (5:40)(   Читать дальше...   )Жанр: Deep House, Dub TechnoПродолжительность: 02:43:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9F8788CEA5901C31DB7E1DCD1B6376732CE5329
+magnet:?xt=urn:btih:D5CD5DA15D19DB7AD7E0817A47A97C683A4702EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428598   (179313) от 03.12.2020
+###  Публикация: 1088478   (138045) от 31.12.2016
 
-Александр Маршал - Высота (2020) [AAC|~335 Kbps] <Pop, Chanson>
+Сноуден / Snowden (2016) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179313.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138045.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Высота (4:14)
-02. Второй День Рождения (4:53)
-03. Леха (3:52)
-04. Ноль Восьмой (5:09)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:05:00
+Он мечтал продолжить семейную традицию и посвятить свою жизнь служению Родине. Он безоговорочно верил в правительство США и поддерживал антитеррористическую программу. На заре его карьеры в спецслужбах никто, даже он сам, не мог бы предположить, что именно он, Эдвард Сноуден, совершит самое крупное разоблачение в мировой истории, обнародовав секретные документы, (   Читать дальше...   )Производство: СШАЖанр: Триллер, драма, биографияРежиссер: Оливер СтоунАктеры: Джозеф Гордон-Левитт, Шейлин Вудли, Мелисса Лео, Закари Куинто, Том Уилкинсон, Скотт Иствуд, Рис Иванс, Николас Кейдж, Тимоти Олифант, Джеймс БатлерПеревод: Дублированный (iTunes)Субтитры: Русские,  АнглийскиеПродолжительность: 02:14:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF431FF8CF127D644EA5E28E9D852F109BC1DF9C
+magnet:?xt=urn:btih:1C9EAEC33344BEFBC491E285FFAB9E44E4ED92CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +140,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428600   (179151) от 03.12.2020
+###  Публикация: 970777   (137940) от 31.12.2015
 
-А.Р.М. - Избранное часть 1 (2017) [AAC|~312 Kbps] <Chanson>
+Антиганг / Antigang (2015) BDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179151.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Бизнесмен (3:11)
-02. Ах! Ксюша, Ксения (4:40)
-03. Шальная Любовь (3:49)
-04. Цыгане (4:21)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:12:28
+Серж Бюрен — легендарный полицейский, возглавляющий группу молодых приспешников с нетипичным подходом. И неважно, используют ли они бейсбольные биты или напрочь забывают об уставе во время показательных арестов, результат налицо. В то же время группировка смертоносных грабителей с легкостью обчищает столичные банки и ювелирные магазины. Бюрен и его подразделение (   Читать дальше...   )Производство: ФранцияЖанр: Боевик, драмаРежиссер: Бенжамен РошеАктеры: Жан Рено, Элбан Ленуар, Катерина Мурино, Умар Диау, Стефи Сельма, Себастьен ЛаЛэйнн, Тьерри Нёвик, Жан-Туссен Бернард, Якоб Седергрен, Esther KoziolПеревод: Многоголосый закадровый ("Paradox & Omskbird records")Субтитры: НетПродолжительность: 01:32:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FAB5D716CE6E52A9ED6342D7D2E6CE7B51CA5F2
+magnet:?xt=urn:btih:B8F91F01F843B8449D95D6B0DD90E6D2789288DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +166,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428607   (179143) от 03.12.2020
+###  Публикация: 1195918   (137857) от 31.12.2017
 
-А.Р.М. - Избранное часть 4 (2017) [AAC|~311 Kbps] <Chanson>
+Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip [720p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179143.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Скомканы судьбой глухие дали (4:08)
-02. Городские цветы (3:53)
-03. Форейтор (3:36)
-04. Я воскрес! (4:44)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:03:32
+Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: СШАЖанр: Боевик, комедия, приключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Марк Стронг, Джулианна Мур, Холли Берри, Педро Паскаль, Ченнинг Татум, Джефф Бриджес, Эдвард Холкрофт, Ханна АльстрёмПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Украинские форсированные,  Русские,  Английские,  УкраинскиеПродолжительность: 02:21:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB88E0857B4C0976F3CD970A6F6DED63FFD20A5D
+magnet:?xt=urn:btih:77513E96CC70B0D1D56C75D7C80D1F4D9541B0A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +192,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428606   (179106) от 03.12.2020
+###  Публикация: 1349194   (137806) от 31.12.2019
 
-А.Р.М. - Избранное часть 3 (2017) [AAC|~307 Kbps] <Chanson>
+Перспектива / Prospect (2018) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179106.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Дайте небо попугаю (5:05)
-02. Кто ты такая? (3:55)
-03. Там среди пампасов (4:04)
-04. Эй, моряк (3:15)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:09:07
+Отец с дочерью отправляются на отдалённую планету, где планируют собирать драгоценные камни, сокрытые в глубине лесов. Добыв один, они натыкаются на двух опасных конкурентов. Из-за недопонимания и жадности между ними происходит перестрелка, в результате которой один из встреченных и отец погибают. Теперь, чтобы выжить на враждебной планете с ядовитой атмосферой, (   Читать дальше...   )Производство: Канада, США / Depth of Field, Ground Control, BRON StudiosЖанр: Фантастика, триллер, драмаРежиссер: Кристофер Колдуэлл, Зик ЭрлАктеры: Софи Тэтчер, Джей Дюпласс, Педро Паскаль, Люк Питцрик, Артур Деранло, Андре Ройо, Алекс МакКоли, Даг Доусон, Криста Джонсон, Брайан ГантерПеревод: Дублированный (iTunes)Субтитры: Русские (full), английские (full, SDH)Продолжительность: 01:39:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5DDC8ECD36B2F0B2ABC0ABC988D83586A2F0FE5
+magnet:?xt=urn:btih:02FBDC00A07B595A8E6048B4AB4357E4DACC93FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +218,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428601   (179045) от 03.12.2020
+###  Публикация: 970685   (137787) от 31.12.2015
 
-А.Р.М. - Избранное часть 2 (2017) [AAC|~308 Kbps] <Chanson>
+Монстры на каникулах 2 / Hotel Transylvania 2 (2015) BDRip [480p] iPod
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179045.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Поспели вишни (3:33)
-02. Старенький кабак (3:57)
-03. Я не возвращаюсь (3:40)
-04. Счастье забытое (4:06)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:01:20
+Граф Дракула выдает свою очаровательную дочь замуж за парня из мира людей, и у молодой «смешанной» пары рождается сын. Станет ли этот ребенок человеком или вампиром?Производство: СШАЖанр: Мультфильм, фэнтези, комедия, семейныйРежиссер: Генндий ТартаковскийАктеры: Адам Сэндлер, Энди Сэмберг, Селена Гомес, Кевин Джеймс, Стив Бушеми, Дэвид Спейд, Кигэн-Майкл Ки, Эшер Блинкофф, Фрэн Дрешер, Молли ШеннонПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Русские, Английские, Украинские (полные, отключаемые)Продолжительность: 01:29:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B4CF1D5368A892D3391EDD128E47179E1E285B3
+magnet:?xt=urn:btih:51A31190B2392FAF8AB09A5FD9C88C697FDF86CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +244,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428794   (179016) от 03.12.2020
+###  Публикация: 1273185   (137711) от 31.12.2018
 
-Rammstein - Herzeleid (XXV Anniversary Edition - Remastered) (2020) [AAC|~361 Kbps] <Industrial>
+Антон Текшин | Oldschool (2018) [M4B|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179016.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wollt ihr das Bett in Flammen sehen? (5:16)
-02. Der Meister (4:11)
-03. Weißes Fleisch (3:36)
-04. Asche zu Asche (3:51)(   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:49:37
+«Oldschool» – фантастический роман Антона Текшина, вторая книга цикла «Размороженный», жанр LitRPG, космическая фантастика.
+У вас было такое – вы прикладываете кучу усилий, жертвуете самым дорогим, а у самого финиша узнаёте, что «ваша принцесса в другом замке»? Может, у кого другого опустились бы руки, но Клима Денисова не смогла остановить даже собственная смерть. (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 11:45:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C0E4206568623D07C28C1CFF274335EC82E60F9
+magnet:?xt=urn:btih:F982A5F784BA6D3F9F64F2F6E902B53C996CEC96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +271,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429033   (178520) от 04.12.2020
+###  Публикация: 1088612   (137683) от 31.12.2016
 
-Ad Infinitum - Chapter I: Monarchy (2020) [AAC|~328 Kbps] <Power Metal>
+Шпионы по соседству / Keeping Up with the Joneses (2016) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178520.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Infected Monarchy (5:46)
-02. Marching On Versailles (3:53)
-03. Maleficent (3:51)
-04. See You In Hell (3:50)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:27
+Супружеская пара из пригорода оказывается втянутой в международный шпионский заговор, когда обнаруживает, что их, казалось бы, идеальные новые соседи являются правительственными агентами.Производство: СШАЖанр: Боевик, комедияРежиссер: Грег МоттолаАктеры: Зак Галифианакис, Айла Фишер, Джон Хэмм, Галь Гадот, Пэттон Освальт, Минг Жао, Мэтт Уолш, Мэрибет Монро, Майкл Лью, Кевин ДаннПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Английские форсированные, Русские, Английские, УкраинскиеПродолжительность: 01:45:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EF444DBC217B3090E8CA72A34E527F810AF6DF8
+magnet:?xt=urn:btih:6B0A8E1E1FCD10D9061508A85CBF8A99598FF72D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +297,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429036   (178441) от 04.12.2020
+###  Публикация: 1195911   (137584) от 31.12.2017
 
-Ad Infinitum - Chapter I Revisited (2020) [AAC|~338 Kbps] <Power Metal>
+Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178441.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Infected Monarchy (Acoustic) (5:26)
-02. Marching on Versailles (Acoustic) (3:52)
-03. Maleficent (Acoustic) (3:52)
-04. See You in Hell (Acoustic) (3:49)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:04
+Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: СШАЖанр: Боевик, комедия, приключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Марк Стронг, Джулианна Мур, Холли Берри, Педро Паскаль, Ченнинг Татум, Джефф Бриджес, Эдвард Холкрофт, Ханна АльстрёмПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Украинские форсированные,  Русские,  Английские,  УкраинскиеПродолжительность: 02:21:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90EF941542240F72AA885F406FBF8B14008B0E6E
+magnet:?xt=urn:btih:0F3E0272C3BA86025E6BD5840801208C3A46E1B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +323,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428924   (178402) от 04.12.2020
+###  Публикация: 1273355   (137539) от 31.12.2018
 
-VA - Armada Christmas Dinner Mix (2020) [AAC|~312 Kbps] <Pop, House, Dance>
+Ничего хорошего в отеле «Эль рояль» / Bad Times at the El Royale (2018) BDRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178402.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.01. Clement Leroux, Emma Hoet - U Got My Heart (Mixed) (Christmas Mix) (3:58)
-1.02. AmPm, Michael Kaneko - Best Part Of Us (Mixed) (Acoustic Version) (2:33)
-1.03. Shallou - Heights (Mixed) (3:29)
-1.04. Lost Frequencies - Are You With Me (Mixed) (Christmas Mix) (1:52)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 02:54:32
+1969 год. Группа разношерстных личностей останавливается на ночь в когда-то популярном отеле «Эль Рояль», расположенном на границе штатов Невада и Калифорния. В здании отеля собрались неприветливый священник, певица Дарлин, энергичный продавец пылесосов и подозрительная девушка с Юга. Вместе с ними ночь в отеле проводит молодой консьерж. Каждому из них есть что скрывать, (   Читать дальше...   )Производство: СШАЖанр: Триллер, драма, криминал, детективРежиссер: Дрю ГоддардАктеры: Джефф Бриджес, Синтиа Эриво, Дакота Джонсон, Джон Хэмм, Крис Хемсворт, Кэйли Спэни, Льюис Пуллман, Ник Офферман, Ксавье Долан, Шей УигэмПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 02:21:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDB30E7A289FCC373B0D9611843213A2AF78E049
+magnet:?xt=urn:btih:E35322A83A1E10AA2DF7F9A484A905D2ABC60D2F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +349,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429041   (178362) от 04.12.2020
+###  Публикация: 573880   (132938) от 27.12.2012
 
-Мумий Тролль - После Зла (2020) [AAC|~361 Kbps] <Rock>
+Родина / Чужой среди своих / Homeland (2012) [Сезон: 2. Серии: 1-12 из 12] WEB-DLRip [576p] iPad
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178362.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Солист (4:02)
-02. Собаки (2:04)
-03. Лира (3:06)
-04. Лето без Интернета (3:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:08
+Сержанта морской пехоты Николаса Броуди (Дэмиэн Льюис) считают пропавшим без вести с 2003 года и предположительно погибшим в бою. Тем не менее, сержанта Броуди находят после рейда на террористической конспиративной квартире. Эксперт по Ближнему Востоку ЦРУ Кэрри Мэтисон (Клэр Дэйнс) считает, что в настоящее время сержант Броуди завербован Аль-Каидой и «оставлен» спасшему его отряду спецподразделения Дельта для возвращения в США и проведения террористической атаки на их территории. Руководство страны и общественность верят, что сержант Броуди — герой войны, и это ещё больше усложняет расследование.Жанр: триллер, драма, криминал, детективПродюсер: Майкл Куэста, Алекс Ганса, Ховард ГордонВ ролях: Клэр Дэйнс,Перевод: Многоголосый, закадровый (Формат: *.m4v
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59406759DC7ABBBA97AF9D2C485C479584B5B32F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428918   (178352) от 04.12.2020
+###  Публикация: 1524772   (130352) от 18.01.2022
 
-Алсу - Я хочу одеться в белое (2020) [AAC|~328 Kbps] <Pop>
+Shanti People - Krishna Is Love (2013) [AAC|~287 Kbps] <Folk, EDM>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178352.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130352.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Не молчи (3:59)
-02. Вольтер (4:22)
-03. Я хочу одеться в белое (4:51)
-04. Алсу, Микелла - К тебе (4:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:44
+01. Intro (3:32)
+02. Sri Mangala Gita (4:42)
+03. Sri Radhika Stava (6:26)
+04. Shanti People, Edwud - Bolo Radha Ramana (3:11)(   Читать дальше...   )Жанр: Folk, EDMПродолжительность: 00:37:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BF74C56A2E54EF64B01001FB8EB84F492AEE011
+magnet:?xt=urn:btih:6102A58C4E37F1BABF06D7F6AAEE2F5B342DFF40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429043   (178350) от 04.12.2020
+###  Публикация: 1524931   (130348) от 18.01.2022
 
-Мумий Тролль - Призраки Завтра, часть 2 (2020) [AAC|~349 Kbps] <Rock>
+VA - White Sands (Chill Out And Electronic Collection), Vol. 1 (2022) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178350.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Космические силы (Acoustic) (2:28)
-02. Призраки завтра (Acoustic) (3:39)
-03. Мумий Тролль, Saint Mesa - Ghosts of Tomorrow (3:41)
-04. Charan-Po-Rantan - Cosmic Force (3:33)Жанр: RockПродолжительность: 00:13:21
+01. Five Seasons - Play All Day (3:50)
+02. Jasmon - Hatori (4:19)
+03. Lounge Groove Avenue - Next to the Sun (4:20)
+04. Stargazer, Crystin - First Love (Remastered) (5:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:08:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F8A3FD0CB1AB7936EF40E5A09B2C66DA19BB8B7
+magnet:?xt=urn:btih:751FE6A1FB3C43216DF9A7F42D50A38F2C940E62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429095   (177701) от 05.12.2020
+###  Публикация: 1524739   (130344) от 18.01.2022
 
-VA - Winter Lounge Mood: Chillout Your Mind (2020) [AAC|~308 Kbps] <Lounge, Chillout>
+VA - In The Mood For Love (2022) [AAC|~308 Kbps] <Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177701.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mission Brown - Savage (Original Mix) (6:22)
-02. Marga Sol - Follow You (Original Mix) (4:10)
-03. Chillson, Marc Hartman - For a Time (3:20)
-04. Clelia Felix - Keep Watching the Stars (4:17)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:13:02
+01. Taylor Swift - cardigan (4:00)
+02. Justin Bieber, Chance the Rapper - Holy (3:32)
+03. Mina Okabe - Every Second (3:02)
+04. Shawn Mendes - Fallin' All In You (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:34:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B049B7D9C92335013B396E43A53290EC114E7E6
+magnet:?xt=urn:btih:0F26C4A60220FA4812DE4C45C2EAD9BE62C3CBB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +462,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429097   (177683) от 05.12.2020
+###  Публикация: 1524734   (130340) от 18.01.2022
 
-VA - All Night Jazz: Chillout Your Mind (2020) [AAC|~317 Kbps] <Lounge, Chillout, Jazz>
+DoMi Sakurazawa - Friendship (2022) [AAC|~366 Kbps] <Jazz, Smooth Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177683.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130340.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stefano Micarelli - La Genesi Del Fraseggio: Another Me, Another You (1:01)
-02. Belinha Bossa Duo - Carinhoso (4:34)
-03. Raquel Silva Joly - Estate (4:26)
-04. Lisa Maroni - Eu Sem Voce (Instrumental) (5:15)(   Читать дальше...   )Жанр: Lounge, Chillout, JazzПродолжительность: 01:18:15
+01. Friendship (DoMi Sakurazawa Remix) (6:16)
+02. Searching For You (DoMi Sakurazawa Remix) (4:34)
+03. Signs Of You (DoMi Sakurazawa Remix) (4:53)
+04. Please Wait (DoMi Sakurazawa Remix) (2:56)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:26:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:595E479B65063043E9EEA229679F59D7F4443A77
+magnet:?xt=urn:btih:2517B25271E011B4C93F9663FF70AD994F9085B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,28 +491,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429075   (177632) от 05.12.2020
+###  Публикация: 1524910   (130333) от 18.01.2022
 
-##### - Новые пророки (2020) [AAC|~356 Kbps] <Rock, Alternative>
+VA - Best Restaurant Background Music 2022 (2022) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177632.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Кибер-диктат (0:55)
-02. Новые пророки (3:35)
-03. Холивар (4:42)
-04. Джохацу (2:48)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:22:53
+01. Aqua Mundi - Chuchaqui (5:47)
+02. Kieloval - Space Thoughts (5:53)
+03. The Crispy Galaxy - Cream Soda (6:09)
+04. Eulenspiegel - An Unspoken Thing (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B6E6629914348A4C5A71E97C197A9E08F261078
+magnet:?xt=urn:btih:7C0208A9DB688749C25D211F67E177215641E83E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429378   (176786) от 06.12.2020
+###  Публикация: 1524743   (130323) от 18.01.2022
 
-Ночные Снайперы - Remixes (2020) [AAC|~325 Kbps] <Electro, Pop>
+VA - Moonlight Lounge (Mediterranean Roots), Vol. 2 (2022) [AAC|~336 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176786.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Актриса (remix) (2:55)
-02. Инстаграм (remix) (4:02)
-03. Раскаленные (remix) (3:58)
-04. Нелюбовь (remix) (3:13)(   Читать дальше...   )Жанр: Electro, PopПродолжительность: 00:35:14
+01. Living Room - Yeah Uhhh Oui (3:00)
+02. Weber & Weber - Speaking Without Words (4:49)
+03. Svendaq - Blue Bossa (6:01)
+04. Chillson, Marc Hartman - A Lifetime (4:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:22:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DABCA2726E650CFAB08FF409CC1D831C81192998
+magnet:?xt=urn:btih:C334A7071945C4C8F38830289D2F2AC12C360B28
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +549,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429582   (176772) от 06.12.2020
+###  Публикация: 1524745   (130319) от 18.01.2022
 
-Buddha Bar - Buddha-Bar Elements (2020) [AAC|~324 Kbps] <Electronic>
+VA - Oriental Lounge Affair (Exotic Arabian and Indian Moods) (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Lo-Fi>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176772.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.01. Tebra - Jovano (6:33)
-1.02. Kled Mone - Manastir (6:06)
-1.03. Tebra - Sve na Crno (6:58)
-1.04. Calavera Manya - Mir (6:32)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:58:09
+01. Krishna Singh - The Spirit Of Buddha (Heart Chakra Mix) (4:57)
+02. Ragi - Double Dream (Vocal Mix) (2:43)
+03. Sarod Sapla Glee - Two Spirits (India Radio Cut) (2:39)
+04. Green Taboo - Oriental Vibes (Original Mix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, Lo-FiПродолжительность: 00:38:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2671CDFB6D6FE39CC28BC638C2368BA9704591F4
+magnet:?xt=urn:btih:199452276BFC100B31F7270A9B94683003A9078E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429381   (176760) от 06.12.2020
+###  Публикация: 1524908   (130315) от 18.01.2022
 
-Ани Лорак - Неизданное (2020) [AAC|~254 Kbps] <Pop>
+VA - Pure Deluxe 4 (2014) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176760.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130315.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Бегущая по волнам (2:08)
-02. Бывшая (1:28)
-03. Дождь для нас (3:18)
-04. Мышка (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:18
+01. Oliver Schlolaut, Frank Doberitz - Can't You Hear Me (Enigmatic Vocal Chillout Mix) (5:02)
+02. Artenovum, Emma Laveigh - Cosmic Fade (5:01)
+03. Richard Bonnee - Ma Vie (Short Electronic Deep Mix) (3:25)
+04. Nightzoom - Silence (Ambient Mix) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:16:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E1EE542C70A6ECAF62C4DF2E8095DCED6EFFEE9
+magnet:?xt=urn:btih:E98F00CBECAB742218D18C45131A77CE60119DE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429567   (176664) от 06.12.2020
+###  Публикация: 1524904   (130312) от 18.01.2022
 
-Dua Lipa - Future Nostalgia (2020) [AAC|~311 Kbps] <Pop>
+VA - Pure Deluxe 1 (2014) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176664.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Future Nostalgia (3:05)
-02. Don't Start Now (3:03)
-03. Cool (3:30)
-04. Physical (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:23
+01. Karen Gibson Roc, Johannes Huppertz - Fly Light (4:13)
+02. Marie Therese - Lost Somewhere (4:04)
+03. Ann Grace - Sentimenti (5:31)
+04. Mare et Monti - Sans Soucis (5:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D9115F8EA47DE9EBE55C017470BDF0978B6D56B
+magnet:?xt=urn:btih:F96FFE9240AE24DE30D86FAFC7CED42A1FAB773C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,25 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429571   (176605) от 06.12.2020
+###  Публикация: 1524864   (130310) от 18.01.2022
 
-Dua Lipa, The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [AAC|~299 Kbps] <Electro, Pop>
+VA - Sun & Chill, Vol. 1 (2012) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176605.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Future Nostalgia (Joe Goddard Remix)Жанр: Electro, PopПродолжительность: 00:50:15
+01. Dave Neville - Sun Is Coming (Smooth Jazz Mix) (6:47)
+02. Soundset City - Sweep Along (Groovy Lounge Mix) (4:07)
+03. For Found Future - Drops of the Future (Smooth Ambient Mix) (6:35)
+04. Marie Therese - Call of Sirens (3:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1981D63829B85B67B26C17F5E2478A33F65167F
+magnet:?xt=urn:btih:2E8BBAFF9740FA6E2DB6377E168914A23F6806A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429623   (176052) от 07.12.2020
+###  Публикация: 1524906   (130308) от 18.01.2022
 
-Uniform - Shame (2020) [AAC|~334 Kbps] <Metal>
+VA - Pure Deluxe 2 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176052.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Delco (4:36)
-02. The Shadow of God's Hand (3:54)
-03. Life in Remission (4:26)
-04. Shame (4:02)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:34:24
+01. Frank Doberitz - Sea of Love (Cosmic Model Instrumental Mix) (4:40)
+02. For Found Future - Dreamlands Harmony (Chillout Melody Mix) (4:28)
+03. Bernon - Cool Day of April (Cosmic Chillout Mix) (5:26)
+04. Wallenski - Reise (5:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7D5EC5FFAF7DA96C4D6582EF6087B84DF2B6234
+magnet:?xt=urn:btih:B7F43EEBA90950C06BD59FA24528C2D7229E3C19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -720,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429619   (176046) от 07.12.2020
+###  Публикация: 1524929   (130302) от 18.01.2022
 
-Stvore - One (2020) [AAC|~344 Kbps] <Metal>
+VA - Soul Food Chillout (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176046.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Zamri (3:36)
-02. Znak (4:39)
-03. Podnimaysya (3:52)
-04. Zatmeniye (4:39)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:43:28
+01. Aqua Mundi - Chuchaqui (5:47)
+02. Logophilia - Surfaces (6:03)
+03. Ace Of Duty - Prerogatives (6:13)
+04. Paco Borges Ensemble - Sonido de Madera (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D71379A135753FFE87CD0D680C4567F23B41BDF
+magnet:?xt=urn:btih:C7A7A913535EB446D460FBA34480A98231B4195A
 ```
 
 https://mybot314.ru/tekegram_catalog/

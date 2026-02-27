@@ -1,3 +1,65 @@
+###  Публикация: 577181   (360204) от 18.11.2012
+
+Chris Spheeris - Maya (2012) [FLAC|Lossless]<New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_360204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghali
+02. Lanilei
+03. Sadoor
+04. Narabi
+05. Kradeesh
+06. Soulana
+07. Bata
+08. ShastiЖанр: New Age, WorldПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177759   (359834) от 26.10.2017
+
+Ramin Djawadi - Игра Престолов / Game of Thrones (Season 1-7) (2011-2017) [FLAC|Lossless|tracks + .cue] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title [01:46]
+02. North Of The Wall [03:48]
+03. Goodbye Brother [03:07]
+04. The Kingsroad [02:06](   Читать дальше...   )Жанр: ScoreПродолжительность: 08:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2167130CFED798D80E357F2755599DD1F648ED3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 255054   (359651) от 06.11.2010
 
 Shakta Kaur Khalsa - Women's Yoga Music (2010) [MP3|320 kbps]<New Age, Easy Listening>
@@ -701,64 +763,6 @@ Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8333EBF66518C51E60F091D73F376C489EDEDB5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329023   (356306) от 03.10.2019
-
-Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoyt's Office (01:25)
-02. Defeated Clown (02:39)
-03. Following Sophie (01:33)
-04. Penny in the Hospital (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C64A48B5AF3B33E5D40C8881EA3D90F1E07DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178514   (356119) от 28.10.2017
-
-Davide Brullo - Life (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clary (3:43)
- 02. Fallen Leaves (3:30)
- 03. Sound of the Soul (3:34)
- 04. The Four of Us (3:31)(   Читать дальше...   )Жанр: New Age, Piano Solo, Modern ClassicalПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAEA5F61B7C90D11A26D107BBC2DCEBE28CEE5C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

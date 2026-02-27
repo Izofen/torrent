@@ -1,3 +1,206 @@
+###  Публикация: 1569146   (455565) от 11.08.2022
+
+Shinedown - Studio Albums (7 releases) (2004 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shinedown — американская рок-группа, основанная в Джэксонвилле, штат Флорида в 2001 году Брентом Смитом (вокал), Бредом Стюартом (бас), Джасином Тоддом (гитара) и Барри Керчем (ударные).2004 - Leave A Whisper
+2005 - Us and Them
+2008 - The Sound Of Madness
+2012 - AmaryllisЖанр: Hard Rock, Post-grungeПродолжительность: 06:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D23DD6DAF667EA772FC0C16774500CB38BF9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568954   (455559) от 11.08.2022
+
+Gamma Ray (Helloween, Iron Savior, Unisonic) - Studio Albums (1990 - 2014) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gamma Ray — немецкая метал-группа, созданная в 1989 году Каем Хансеном, бывшим гитаристом и вокалистом группы Helloween.1990 - Heading For Tomorrow
+1991 - Sigh No More
+1993 - Insanity And Genius
+1995 - Land Of The FreeЖанр: Heavy/Power/Speed MetalПродолжительность: 12:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE1918D93BF6902C636FB2CDFD2DE185537AA30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060136   (454809) от 07.10.2016
+
+Richard Clayderman - 7 Albums (1978-1984) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip]<Easy Listening, Instrumental, Piano>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballade Pour Adeline (piano et orchestre)
+02. Secret Of My Life (one)
+03. L'Enfant Et La Mer
+04. Lys River(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 05:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F00D51FEE3F07827505FF8324B11EA85C66953D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163009   (454573) от 03.09.2017
+
+Rockets - Plasteroid (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_454573.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Electric Delight (5:10)
+A2. Astral World (4:26)
+A3. If You Drive (4:50)
+A4. Legion Of Aliens (3:37)(   Читать дальше...   )Производство: Rockland Records - 900.500Жанр: Space RockПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E6D37D98E03BEF65A23D665C2EF3794717E9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569401   (453352) от 12.08.2022
+
+Harumi Nomoto Trio - Another Ordinary Day (2020) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453352.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. My Shining Hour《 H. Arlen 》
+2. Libra Sun《 N. Harumi 》
+3. Blues On Saturday《 N. Harumi 》
+4. Time Table Of Life《 A. Ikeda 》(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FAB8315253F8F88EF067A2D438FC3C18AA7C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060814   (452770) от 08.10.2016
+
+Nazareth - Malice in Wonderland (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452770.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Holiday (3:38)
+A2. Showdown At The Border (4:12)
+A3. Talkin' To One Of The Boys (4:14)
+A4. Heart's Grown Cold (4:15)(   Читать дальше...   )Производство: Vertigo - 6370 432Жанр: Hard RockПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C6F44FF58D39BCDEEF57E41650180BF44B7744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322081   (452297) от 27.08.2019
+
+Robert Miles - Dreamland (1996/2019) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Dream-House, Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452297.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Children (Dream Version) (7:05)
+A2. Fable (Message Version) (6:23)
+A3. Fantasya (5:44)
+B1. Landscape (6:02)(   Читать дальше...   )Жанр: Dream-House, TranceПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBD0D6AA936BE7A0F696B2D053D0E19717B53D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567863   (451350) от 13.08.2022
 
 Sixx: A.M. (58, Brides Of Destruction) - Дискография (2007 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
@@ -549,210 +752,6 @@ A4 Journey To The Centre Of The World = Reise Zum Mittelpunkt Der Erde(   Чит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C268CC30659A4323C4A5E5CB29BE7CE444C5829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410612   (433857) от 22.09.2020
-
-VA - Мы Друг Друга Нашли Песни на стихи В. Харитонова (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Soul, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433857.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ансамбль п/у А. Слизунова - Что Прошло, То Прошло
-A2 Ансамбль п/у А. Слизунова - Бывают В Мае Холода
-A3 Я. Йоала - Что-То Было
-A4 В. Дьяконов - День, В Котором Жил Я(   Читать дальше...   )Жанр: Pop Rock, Soul, SchlagerПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76DB32256656BCB23CFB5E9AEC011DFAAE0C1A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410614   (433750) от 22.09.2020
-
-Wings - Venus And Mars (1994) Recorded 1975 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433750.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Venus And Mars
-A2 Rock Show
-A3 Love In Song
-A4 You Gave Me The Answer(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BDF5DC1E86CB1F425135296872F490FA1598BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959688   (433726) от 21.08.2022
-
-Helen Reddy - Free And Easy (1974) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433726.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Angie Baby
-A2	Raised On Rock
-A3	I've Been Wanting You So Long
-A4	You Have Lived(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A77064A5F4D73D15E37FC4A86E203D5B5C9E2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165600   (432118) от 13.09.2017
-
-VA - 80's Dance Classic (2001) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop Rock, Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Opus - Life Is Life
-02. Status Quo - You're In The Army Now
-03. Desireless - Voyage(   Читать дальше...   )Жанр: Pop Rock, Pop, DiscoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DC71C62A866B850A365E729AE0EBCDF881E4F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165596   (432111) от 13.09.2017
-
-Various Artists – Telarc Jazz Sampler 3 (2004) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <demos/samplers>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zona Desperata – Al Di Meola
-02. Django – Ray Brown, Monty Alexander, Russell Malone
-03. Oh, Mr. Sauter? Yes, Mr. Finegan? – Gerry Mulligan
-04. Papa Was a Rolling Stone – Ray Brown, John Clayton, Christian McBride(   Читать дальше...   )Жанр: jazzПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377349BEC15F3EF49EFFC380EFEDCF3B5375ABF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571469   (431689) от 22.08.2022
-
-Mustasch - Дискография (13 albums) (2001-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Stoner Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mustasch — шведская рок-группа. Сформирована осенью 1998 года Ральфом Джилленхаммаром, Ханнесом Ханссоном, Матсом Ханссоном и Стамом Йоханссоном в Гётеборге.2002 - Above All
-2003 - RatSafari
-2005 - Powerhouse
-2007 - Latest Version of the Truth(   Читать дальше...   )Жанр: Heavy Metal, Stoner MetalПродолжительность: 08:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A572D12A122F07EDC0FB74286296C4D97E3F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571456   (431679) от 22.08.2022
-
-Incubus - Дискография (11 albums) (1995-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Incubus — американская альтернативная рок-группа.
-Группа была создана в калифорнийском городе Калабасасе в 1992 году одноклассниками Брэндоном Бойдом (вокал, перкуссия), Майком Айнзайгером (гитара), Алексом Катуничем, взявшим себе псевдоним «Дирк Лэнс» (бас-гитара), и Хосе Пасийясом (ударные).1995 - Fungus Amongus
-1997 - S.C.I.E.N.C.E.
-1999 - Make Yourself
-2001 - Morning ViewЖанр: Alternative Rock, Funk Rock, Indie RockПродолжительность: 09:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498D7C5238B757291021C5700507A34100F0873D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1554401   (577365) от 30.05.2022
+
+Def Leppard - Diamond Star Halos (2022) 2xLP [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Classic Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577365.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Take What You Want
+A2. Kick
+A3. Fire It Up
+A4. This Guitar(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF43303927AE49C36F90EDDB911E2110F73B111D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303227   (575535) от 19.05.2019
+
+Rammstein - Rammstein (2019) [FLAC|192/24|Lossless|tracks|Vinyl] <Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deutschland
+02. Radio
+03. Zeig Dich
+04. Ausländer(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF67764A229D91956D541E6046AE755E136003E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921490   (575418) от 25.07.2015
+
+Supertramp - ...famous last words... (1982) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575418.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Crazy (4:45)
+A2. Put On Your Old Brown Shoes (4:21)
+A3. It's Raining Again (4:26)
+A4. Bonnie (5:39)(   Читать дальше...   )Производство: A&M RecordsЖанр: Progressive RockПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F840FC44121FF0E328E6774C5C2D9CF99DCE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921097   (575279) от 25.07.2015
+
+Владимир Высоцкий - Vladimir Vissotsky (1977) [APE|image + .cue|2.0 24/192(Vinyl-Rip)]<Авторская песня>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы вращаем Землю [3:31]
+02. Вариации на цыганские темы [4:36]
+03. Тот, который не стрелял [3:03]
+04. Прерванный полёт [4:40](   Читать дальше...   )Жанр: Авторская песняФормат: 24bit/192kHzПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8FA1CF173D7C6736ECED467DDEAEEDEC882BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043285   (574558) от 15.08.2016
+
+Manfred Mann's Earth Band - Chance (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lies (Through The 80's) (4:36)
+02. On The Run (3:53)
+03. For You (5:44)
+04. Adolescent Dream (2:42)(   Читать дальше...   )Производство: Bronze Records - 202 970-320Жанр: Progressive RockПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99E1AEBCB21360BF049A3E2384BB45C9261A1B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554627   (573767) от 01.06.2022
+
+VA - Честно говоря-2 - Советская Эстрада 70-80 гг. (1998) Unofficial Release © Compiled by X-Records [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Группа «Круг» - Кара-кум
+02. ВИА «Лейся песня» - Прощай
+03. Михаил Боярский - Большая медведица(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DEDAF61DEDDF2E9CA07D49D81ED5C191CA1719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303133   (572493) от 21.05.2019
+
+Солисты (ф-но) и Литовский КО, дир. С. Сондецкис - I. S. Bach/И. C. Бах - 12 клавирных концертов для фортепиано с оркестром BWV1052-1065 (1976) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт № 1 Для Фортепиано С Оркестром Ре Минор, BWV 1052
+А1 Allegro
+А2 Adagio
+А3 Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639C17E001100EAA9D34922B9FE87D5F0A9C9387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554979   (572242) от 02.06.2022
 
 Symphony X - Дискография (10 releases) (1994 - 2015) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Power Metal>
@@ -538,210 +741,6 @@ A4. Serious (4:19)(   Читать дальше...   )Производство: 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:264DA506C65C8068ACB34D1128085C8F7FD5F855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306999   (554635) от 11.06.2019
-
-Johnny Cash - The Johnny Cash Collection 1955 - 1971 (1971) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Country Rock, Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554635.jpg" />
-</div>
-
-
-###  Подробнее
-
-RECORD 1:
-PDA 005 A
-01. Folsom Prison Blues
-02. I Can't Help It(   Читать дальше...   )Жанр: Country Rock, Folk RockПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872D0C131A63D2E70D7BDC5143854B1E0BE9E404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040309   (551667) от 27.08.2016
-
-Stars On 45 - Звёзды Дискотек - 2 (1982) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Рок-н-роллы 15:54
-Сторона 2
-2. Stars On Stevie 7:41(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9CA5329AD86F0144704CC5FABBFA6BBBB1679B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040009   (551652) от 27.08.2016
-
-Stars on 45 - Звёзды дискотек (1981) [WAW Pack 2.0|192/32|tracks|Vinyl-Rip] <pop>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Stars On 45 - 1 15:53
-Попурри на темы песен группы "Битлз"
-Сторона 2(   Читать дальше...   )Жанр: popПродолжительность: 00:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED4638E333FDF3BA486F0DB27023564CEB9297C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047254   (549161) от 30.08.2016
-
-Chicago - Chicago 18 (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niagara Falls
-02. Forever
-03. If She Would Have Been Faithful...
-04. 25 Or 6 To 4(   Читать дальше...   )Жанр: Jazz Rock, Pop RockПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59427E2D6D8AFAD4414B3CC395EF1BEDED7202D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047244   (549071) от 30.08.2016
-
-VA - Панорама '86. Фестиваль Молодежной Популярной Музыки (1987) 2LP [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hard Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Круиз - Не падай духом
-02. Здравствуй Песня - Дрянная девчонка
-03. С. Сарычев - Цунами
-04. И. Кезля, А. Моргунов - Долина грёз(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7FFCD0A042F5FA8510E62DDD365E37765DC87C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046569   (548151) от 31.08.2016
-
-Маки - Одесса (1988) Repress 1989 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548151.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1986 году Валерий Чуменко реформировал ВИА "Красные маки" в группу "Маки", которая просуществовала до 1989 года.
-В 88-м на фирме "Мелодия" вышла единственная пластинка коллектива - "Одесса".Сторона 1
-A1. Одесса (В.Матецкий - М.Танич) 3:16
-A2. Так случилось (В.Матецкий - М.Шабров) 4:53
-A3. Когда, когда (В.Добрынин - Л.Дербенев) 3:45(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668C98434947B2A5DC2ED4294112F3D0D13A1CA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238143   (547897) от 28.07.2018
-
-Tin Machine - Tin Machine II (1991) [FLAC 2.0 24/192|image|Vinyl-Rip] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Universal (3:19)
- 02. One Shot (5:12)
- 03. You Belong In Rock N' Roll (4:07)
- 04. If There Is Something (4:45)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DE6718718C36B98A18891D70CD2B82EACFB050
 ```
 
 https://mybot314.ru/tekegram_catalog/

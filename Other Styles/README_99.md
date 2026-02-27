@@ -1,3 +1,61 @@
+###  Публикация: 1037870   (610194) от 26.07.2016
+
+Hennie Bekker - Beyond Dreams - Pathways to Deep Relaxation (2016) [FLAC|Lossless|tracks] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Connect [00:08:49]
+02. Floating to Forever [00:11:04]
+03. Letting Go [00:06:40]
+04. The Calm [00:13:20](   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036D0AE4D761985CB99DE541D8CFA8E33583D401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296657   (610130) от 18.04.2019
+
+Arnaud Rebotini - Curiosa (Bande originale du film) (2019) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curiosa
+02. Le miroir
+03. Noircissement direct
+04. Les egouts(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADACAF335D1A847BEFEEE1FD581D6EA5D4DEBB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296191   (610126) от 18.04.2019
 
 Faun - XV - Best Of (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pagan, Folk, Medieval>
@@ -711,64 +769,6 @@ Jonn serrie - Thousand star (2009) [FLAC|Lossless|tracks + .cue] < New Age, Ambi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46F5A0B05A4FC17596013746F81C5F9A93176754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148497   (603412) от 07.07.2017
-
-Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Funk, Soul>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. The Love I Lost
-02. Satisfaction Guaranteed (Or Take Your Love Back)
-03. Be For Real(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 03:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDD75659B38FC441E7ED8F25AA5584D42A85D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546870   (603350) от 27.04.2022
-
-VA - Borderlands 3 Original Game Soundtrack (2019) [FLAC|Lossless|tracks] <Game OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск 01
-01. Sanctuary 3 - Michael McCann (7 min 18 s)
-02. Landing on Athenas - Michael McCann (4 min 13 s)
-03. Liberating Athenas - Michael McCann (4 min 21 s)(   Читать дальше...   )Жанр: Game OSTПродолжительность: 05:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1B5783847552EB87C0E4693376FC380345A0E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

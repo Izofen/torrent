@@ -1,3 +1,206 @@
+###  Публикация: 1652921   (213671) от 18.08.2023
+
+Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213671.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Golden Age
+A2 Endorama
+A3 Shadowland
+B1 The Chosen Few(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06469C1096A26FC42BB87F979892593406538DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653979   (213667) от 18.08.2023
+
+Asia - Astra (1985) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Prog Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213667.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Go
+A2 Voice Of America
+A3 Hard On Me
+A4 Wishing(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3874243E70F4E3A7B443B1D14C4566ED417DBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514865   (213660) от 05.12.2021
+
+Within Temptation - Shed My Skin (2021) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Symphonic Metal, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shed My Skin (4:30)
+02. The Purge (4:16)
+03. Entertain You (3:31)
+04. Shed My Skin (Instrumental) (4:30)(   Читать дальше...   )Жанр: Symphonic Metal, Alternative MetalПродолжительность: 00:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9211FAC881F4F8591F674156A56E27D452602055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832287   (213540) от 30.10.2025
+
+Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pagan/Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_213540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алконост — российская фолк-метал группа, образованная в Набережных Челнах,  Республика Татарстан в 1995 году.2004 - Between The Worlds
+2006 - Межмирье
+2006 - Путь Непройденный
+2007.1 - Песни Вечного ДреваЖанр: Pagan/Folk MetalПродолжительность: 11:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906218C82AA30C8B47261EEF2C3CEC4C1E1C6E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042647   (213390) от 13.06.2022
+
+Август - Ответный Удар (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213390.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Орел
+A2 Ответный Удар
+A3 Гонка
+A4 Точка Отсчета(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC495827F156A441266CC297CEF0F26BC359F5A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042660   (213384) от 13.06.2022
+
+Master / Мастер (1990) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Thrash, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213384.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Берегись • Watch Out
+А2 Руки Прочь • Hands Off
+А3 Щит И Меч • Shield And Sword
+А4 Еще Раз Ночь • It's Night Once Again(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49ECB2007F2D0C9E059AD1DD6E4C9A45044A0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831027   (212559) от 28.10.2025
+
+Brahms - Piano Quartet No. 1 Op. 25 · Schumann - Fantasiestücke Op. 88 (Martha Argerich, Gidon Kremer, Юрий Башмет / Yuri Bashmet, Миша Майский / Mischa Maisky) (2002) 2025 [DSD64 2.0|1bit/282 ...
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_212559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brahms - Piano Quartet No. 1, Op. 25
+01. 1. Allegro (13:18)
+02. 2. Intermezzo (Allegro ma non troppo) (7:35)
+03. 3. Andante con moto (10:50)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C660166311E5563D4DABB66BFA0E8F67AA48B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638374   (212054) от 08.06.2023
 
 Sweet - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Glam Rock>
@@ -539,202 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C02762DD7A2E305447501C9C4AA8D425D81B0BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604028   (210213) от 12.01.2023
-
-VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210213.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Оркестр Джеймса Ласта – Скокиан
-А2 Оркестр Джеймса Ласта – Звезды В Твоих Глазах
-А3 Оркестр Джеймса Ласта – Жизнь Прекрасна
-А4 Оркестр Поля Мориа – Изадора(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484377A9E695C9E0DEAD36036F3A1CB9490D33BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643235   (210121) от 30.06.2023
-
-Alan Parsons – A Valid Path (2004) 2006 [DTS 5.1 CD-DA|16/44.1|image+.cue|Audio-DVD] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return to Tunguska (featuring Shpongle & David Gilmour)
-02. More Lost Without You (featuring P.J. Olsson)
-03. Mammagamma '04 (featuring Jeremy Parsons)
-04. We Play The Game (featuring The Crystal Method)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3262412E32FDD850A372D6CAF1105A062D682DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643702   (210000) от 02.07.2023
-
-Opus3 - A Selection from Test-records 1,2 & 3 (2008) [DSD64 5.1, 2.0|image(iso)|SACD-R] <demos/samplers>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thérèse Juel - Tiden bara går (R. Rönning)
-02. Stockholm Guitar Quartet - Invention No. 14 (J.S. Bach)
-03. Tomas Örnberg's Blue Five - Buddy Bolden Blus (Morton)
-04. Knoa - Unca's Flight (M. Lingedal)(   Читать дальше...   )Жанр: Jazz, Blues, Classical, Folk, World, & CountryПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3A1BBCC1C3EDA527A9C6DFB92BA2F6707BB187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571642   (209996) от 22.08.2022
-
-Eagles - On The Border (1974) 2022 [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic Rock, Country Rock, Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Already GoneЖанр: Classic Rock, Country Rock, Folk RockПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D77F06C408DA47943BFADF7FE62F4D0F5B9912A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661858   (209828) от 16.01.2023
-
-Azul Y Negro - Digital (1983)  [FLAC|2.0 24/192|image (Vinyl-Rip)<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night 4:03
-02. Isadora 4:03
-03. No Controlo Nada 3:53
-04. Me Estoy Volviendo Loco 3:35(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4BD9E87949CE71FE289F047EAF16A076B29EF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645052   (209478) от 07.07.2023
-
-BluScenes: Gallery Musee (2012) [DTS-ES 6.1 CD-DA|24/44.1|image+.cue|BD-Video] <Lounge, Relax>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Scene 01  00:54:41
-02.  Scene 02  00:33:27Саундтрек видового фильма, представляющего музейные полотна художников-импрессионистов. На мой взгляд, музыка имеет самостоятельную ценность как образец хорошего Релакса. Поэтому, собственно, и сделал данный трансфер))
-О том, как послушать. Обладатели ресиверов, оборудованных декодером DTS-ES, смогут (в добавление к обычному (   Читать дальше...   )Жанр: RelaxПродолжительность: 01:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A09D37DE45CB6B4F0904491A8E2692D5EB91CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606387   (209458) от 21.01.2023
-
-Amanda Marshall - Everybody’s Got A Story (2001) 2002 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень симпатичный альбом певицы с необычно смешанной кровью: ее мать - из Тринидада, отец - канадец. В меру - неторопливый, мелодичный, в меру - энергичный многоканальный микс очень хорош. Великолепно сбалансированный и сведенный звук - образец аудиенс-микса.За образ SACD благодаримЖанр: Pop/RockПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5903D116A54060A647A42F05453FA4818CE39FA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

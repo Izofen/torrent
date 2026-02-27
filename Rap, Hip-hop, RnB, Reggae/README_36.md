@@ -1,3 +1,32 @@
+###  Публикация: 285046   (51779) от 28.06.2024
+
+Бумбокс - 7 Альбомов (2005-2010) [FLAC|Lossless]<Hip-Hop / Funk / Reggae / Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бумбокс — украинская фанки-грув группа. Образована в 2004 году в Киеве вокалистом группы «Графіт» Андреем Хлывнюком и гитаристом группы «Тартак» Андреем «Муха» Самойло. В основном песни группы исполняются на украинском языке с английскими и русскими фразами, но также присутствуют русскоязычные и англоязычные песни.Список альбомов:
+2005 - Меломанія
+2006 - Family Бiзнес
+2007 - Тримай(   Читать дальше...   )Жанр: Hip-Hop / Funk / Reggae / RockПродолжительность: 05:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CAE72B53651518EE7B0BDF4347553DC8CD9422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 291849   (51774) от 28.06.2024
 
 Gang Starr - 6 Albums + 2 Compilations (1989-2006) [FLAC|Lossless]<East Coast Hip-Hop / Jazz Rap / Alternative Hip-Hop>
@@ -744,35 +773,6 @@ VA - Chillhop Essentials Fall (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75981BA15BEFD238B2F8E630A763942D4D3ACBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751799   (42183) от 27.09.2024
-
-Карандаш - Дом невысокой культуры (2024) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42183.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Горд
-2. 21 регион
-3. Зубодробительный саунд
-4. Сам(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC10240E7355B46FA60D42020889EC3EB8446F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

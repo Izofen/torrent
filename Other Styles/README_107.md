@@ -1,3 +1,61 @@
+###  Публикация: 1304603   (561847) от 27.05.2019
+
+Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Godzilla (feat. Serj Tankian) (03:10)
+02. Godzilla Main Title (02:35)
+03. Memories of San Francisco (02:11)
+04. The Larva (04:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA99F830247C60C0155790CBF4349C98906D299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304653   (561840) от 27.05.2019
+
+Alan Menken & VA  - Aladdin / Аладдин (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arabian Nights (2019) (03:13)
+02. One Jump Ahead (02:55)
+03. One Jump Ahead (Reprise) (01:00)
+04. Speechless (Part 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE81FDA6275B3682A45FF6B262A71F5AF2D44A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304604   (561714) от 27.05.2019
 
 Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -680,64 +738,6 @@ Piano Peace - Piano Music for Movies (2018) [FLAC|Lossless|WEB-DL|tracks] <Instr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E87498A5B72068552E2AA6B4E8990A2D2C5981BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045623   (556912) от 25.08.2016
-
-Aythar - The God Particle (2016) [MP3|320 Kbps] <Ambient, Space>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sirens Of Titan (10:46)
-02. The God Particle (8:20)
-03. Return to the Moon (7:57)
-04. REM Phase (5:37)(   Читать дальше...   )Жанр: Ambient, SpaceПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12EBD6B49E82CE980015DFFB160AEDB361C9BE9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046007   (556910) от 25.08.2016
-
-Nick Murray - To the Stars (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light of the World (feat- Merethe Soltvedt)
-02. Hopes & Dreams (feat- Juliet Lyons)
-03. Gift of Life
-04. Beautiful Forever(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC3E779AD1C4ADC7640CCCEE40CD9ABF218FA83
 ```
 
 https://mybot314.ru/tekegram_catalog/

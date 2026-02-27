@@ -1,3 +1,207 @@
+###  Публикация: 1812607   (7691) от 15.08.2025
+
+Maroon 5 - Love Is Like (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hideaway
+02. Love Is Like
+03. All Night
+04. Yes I Did(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22B38D5D0DECB891D2A3B46435A6F18D471A7DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812631   (7668) от 15.08.2025
+
+The Bluesmasters - The Bluesmasters featuring Cassie Taylor (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Downward Road
+02. Nobody’s Fault But Mine
+03. Sit Down Servant
+04. Wade In The Water(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D80B5823B42584CEDF2E663A808DD2EC1B6B006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812528   (7636) от 15.08.2025
+
+Redemption - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Redemption — американская прогрессив-метал-группа, созданная в 2001 году в городе Лос-Анджелес2003 - Redemption
+2005 - The Fullness Of Time
+2007 - The Origins Of Ruin
+2009 - Snowfall on Judgement DayЖанр: Progressive MetalПродолжительность: 10:22:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C991FE5192E0444494B3D78ECF0AC1BFA29E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812608   (7611) от 15.08.2025
+
+Tomarum - Ash in Realms of Stone Icons (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7611.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Introspection I (02:31)
+A2. Condemned to a Life of Grief (10:34)
+B1. In This Empty Space (08:45)
+B2. Introspection II (03:01)(   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EBBE5152FB11D4D0B58FE542DF45A5540CBC627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531020   (7562) от 16.08.2025
+
+Halestorm - Дискография (19 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Heavy Metal, Post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Halestorm — американская хард-рок-группа, образованная в маленьком городке
+ Рэд Лайон округа Йорк (штат Пенсильвания).1999 - Don't Mess With the Time Man
+2001 - Breaking the Silence
+2009 - Halestorm
+2012 - The Strange Case of...Жанр: Hard Rock, Heavy Metal, Post-grungeПродолжительность: 14:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A473361BBB8B32C810BBF4223D057B0C8145849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812771   (7495) от 16.08.2025
+
+Deep Purple - Made in Japan (Steven Wilson Remix) (1972) Reissue, Remaster, Rhino - Warner Records, 2025 [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Highway Star (Live in Osaka, Japan, 8/16/1972) (Steven Wilson Remix) [6:50]
+02 - Child in Time (Live in Osaka, Japan, 8/16/1972) (Steven Wilson Remix) [12:20]
+03 - Smoke on the Water (Live in Osaka, Japan, 8/15/1972) (Steven Wilson Remix) [7:40]
+04 - The Mule (Live in Tokyo, Japan, 8/17/1972) (Steven Wilson Remix) [9:29](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A68350FD51706D167A0C383E45427ABE06D537D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812737   (7457) от 16.08.2025
+
+Mono Inc. - Darkness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Rock, Gothic Metal, Industrial>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In My Darkness (03:26)
+ 02 - Lost in Pain (04:12)
+ 03 - Fly (04:48)
+ 04 - Dein Anker (04:37)(   Читать дальше...   )Жанр: Gothic Rock, Gothic Metal, IndustrialПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38123B411D53645B35E887B38D63276922E80D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812780   (7430) от 16.08.2025
 
 aurorawave - Monument (2025) [FLAC 24/44.1; 24/48|Lossless|WEB-DL|tracks] <Reggaecore, World, Hip-Hop>
@@ -542,209 +746,6 @@ Byzantine — американская метал-группа из Чарльс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:030FD15EB786615F6D0333359BC4EEC8000E4BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813297   (7031) от 18.08.2025
-
-Caden Morland - World Stays the Same (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  World Stays the Same (2:09)
-02.  Out of Place (1:33)
-03.  Full No Bluff (2:47)
-04.  Daisy (2:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186F35BD11CDE0581142936CF00E0EFE9A8FA4FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813327   (7030) от 18.08.2025
-
-Motiff - Heading for the Weekend (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Make My Day (3:27)
-02.  Run for Cover (3:45)
-03.  I Like It (4:47)
-04.  Heading for the Weekend (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3C97812DC90F39A911A72390518CA492F94EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813236   (7028) от 18.08.2025
-
-Thurisaz - Studio Albums (6 releases) (2004-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Atmospheric Death/Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thurisaz - бельгийская метал-группа из Вервика, образовалась в мае 1997 года под названием Modilium и сменила название на Thurisaz в 2000 году.2004 - Scent Of A Dream
-2007 - Circadian Rhythm
-2011 - The Cimmerian Years
-2015 - Live & AcousticЖанр: Atmospheric Death/Black MetalПродолжительность: 05:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B42B41AC13B2F390DE248327652A0150734D2B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813309   (7027) от 18.08.2025
-
-Firstborne - Lucky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Again (3:38)
-02.  Rescue Me (3:46)
-03.  Shine (4:19)
-04.  Wake Up (3:07)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB36DC005A349559FF64C03B842E7CEC5D98A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813314   (7026) от 18.08.2025
-
-Harmonic Tension - Roxy Vaine Yin Yang (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Coco (4:04)
-02.  Talk (4:24)
-03.  We In (Black Hole) (4:39)
-04.  Convenient (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C6BA5974C0633BE6946CFEB6FF5346BD4ACB0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813299   (7025) от 18.08.2025
-
-Colorado Jazz Repertory Orchestra - Golden Lady (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hold Tight (4:59)
-02.  Golden Lady (6:09)
-03.  Side Step (6:32)
-04.  Dreamcatcher (5:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768B122516A2F6BB44442F3911DEEF97CCD141BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813329   (7023) от 18.08.2025
-
-Raz Louk - Knocked Out In Space (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Knocked Out In Space (3:11)
-02.  Hunger For The Light (5:06)
-03.  I Can't Go On Without You (4:49)
-04.  My Time (4:11)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A6F0E69CB419A8D43203D90174BD90F1DF6FAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

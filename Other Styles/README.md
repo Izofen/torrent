@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1855357   (1058063) от 23.02.2026
+
+Mumford & Sons - Prizefighter (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk Rock, Indie Folk>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here (3:11)
+02. Rubber Band Man (3:38)
+03. The Banjo Song (3:50)
+04. Run Together (3:39)(   Читать дальше...   )Жанр: Folk Rock, Indie FolkПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E8039C4A2E6F2F900F5513927FED0ABFC9A851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855318   (1057915) от 22.02.2026
+
+Apparat (Sascha Ring) - 4 Soundtracks (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Experimental, IDM, OST>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Capri-Revolution
+Damonen
+Equals Sessions(   Читать дальше...   )Жанр: Ambient, Experimental, IDM, OSTПродолжительность: 4 CD, 02:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C1A7402CEE9BD8DA022F7E0FE1830E47EB820A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853664   (1057567) от 18.02.2026
 
 Сергей Киреев - Что ж вы, девки, приуныли? (2026) [MP3|320 Kbps] <Russian Folk Pop>
@@ -683,64 +741,6 @@ Ennio Morricone - Love Songs & Romantic Scores (2023) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:585ED2BBA3A8DA9AA9A42A4B1D6476386FB352A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610304   (1041524) от 10.02.2023
-
-Laya Project - Laya Project  (2006)  2CD [FLAC|Lossless|tracks + .cue] <World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041524.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD ONE:
-01. Glorious Sun Remix
-02. Muliya
-03. A New Day(   Читать дальше...   )Жанр: WorldПродолжительность: 45:06 + 50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16382E1975297FA8AC101913413F3F566671ED75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610792   (1041359) от 11.02.2023
-
-Indian Spirit - Discography (2009 - 2020)  6 Releases [MP3|320 Kbps] <Native American, New Age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle Of Fire [05:03]
-02. The Counterclockwise Circle Of Dance [05:46]
-03. Return From River Island [06:11]
-04. Dance Of The Warrior [06:01](   Читать дальше...   )Жанр: Native American, New Age, World musicПродолжительность: 05:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D78D540F1B3ED8BCCD8F0FEED70A650A04DE68E
 ```
 
 https://mybot314.ru/tekegram_catalog/

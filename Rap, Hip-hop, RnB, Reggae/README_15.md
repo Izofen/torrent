@@ -1,3 +1,32 @@
+###  Публикация: 1399974   (719012) от 05.08.2020
+
+Logic - No Pressure (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Pressure Intro [02:55]
+02. Hit My Line [04:25]
+03. GP4 [04:34]
+04. Celebration [03:50](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145368FC3D8766F901B7FA330843070CE9CD5CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400132   (718864) от 05.08.2020
 
 Groove Da Praia - The Groove Girls (2018) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Electro>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B836E521CEB487778FC2E42D9BE14BCDB486A866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289411   (683982) от 17.03.2019
-
-50 Cent - Get Rich or Die Tryin’ (2003) Vinyl [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683982.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Intro
-2 What Up Gangsta
-3 Patiently Waiting feat. Eminem
-4 Many Men (Wish Death)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:254EB8A27E01F81DB9680C0360D0FC1805D5C5FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

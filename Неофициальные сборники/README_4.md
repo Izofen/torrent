@@ -1,3 +1,409 @@
+###  Публикация: 1843780   (1049778) от 23.12.2025
+
+The Black Keys - Compilation (2002-2025) [MP3|320 Kbps] <Garage rock, Blues rock, Indie rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Man Will Do Wrong (& The Arcs) ❂ Electrophonic Chronic 2023
+02. Ain't Nothing Like You (Hoochie Coo) (& Jim Jones & Mos Def) ❂ Blakroc 2009
+03. Behind The Eyes (& The Arcs) ❂ Electrophonic Chronic 2023
+04. Can't Find My Mind (& The Cramps) ❂ OST He Put The Bomp ! In The Bomp 2007(   Читать дальше...   )Жанр: Garage rock, Blues rock, Indie rockПродолжительность: 08:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C260EEFC530264BABFB276673CF0E5D9FD25E1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844089   (1049745) от 24.12.2025
+
+VA - Music News For Forum vol.152 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Simona Nae - De Craciun (02:53)
+ 002. ADDA - Flori In Decembrie (02:49)
+ 003. AGAV - Avis De Tempete (02:30)
+ 004. AGAYAN - Механизм (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D871D95B6BB3F944CB844DAA22C6DCF66ADE3F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843696   (1049547) от 21.12.2025
+
+Dakota Lane - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Déjà Vu
+02 - Lucifer
+03 - I Am Safe Inside Your Heart
+04 - Lonely Satellite(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC503CB1DDEC65ED3066B6DC171B7794B30FA943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843695   (1049546) от 21.12.2025
+
+Dakota Lane - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Crying in the Night
+02 - You Wrote My Life
+03 - In 100 Years
+04 - Samba, Sweet Elena (Samba Mix)(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B4316D071419B0598D377D3010BAFCDF2B514F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843691   (1049545) от 21.12.2025
+
+Dakota Lane - Favorites Collection part 3 country music (2025) [MP3|320 Kbps] <country>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Yeehaw Shenanigans
+02 - Country Nights Alive
+03 - Backroads and Memories
+04 - Hometown Heartbeat(   Читать дальше...   )Жанр: country, AiПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28299F1CA52927CCAA0E2FA0534F23AE2374E62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843303   (1049544) от 21.12.2025
+
+Marius - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Deep Chill House, Ai>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sunset Dance
+02 - Within the Dream (Version)
+03 - Sensual Flare Dub
+04 - A Silent Language We Both Know(   Читать дальше...   )Жанр: Deep Chill House, AiПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558A2D177A145055A93483506096AAB834A02DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843301   (1049543) от 21.12.2025
+
+Marius - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Reggae, Ai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Time of My Life
+02 - The Present of the Past Dub (Version)
+03 - Sensual Flare Dub (Version)
+04 - Tease Me Even More(   Читать дальше...   )Жанр: Reggae, AiПродолжительность: 00:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BCBC25CBCCF7DBABBF5BCDAEC9C8CBB04322EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843298   (1049542) от 21.12.2025
+
+VA - No name compilation part 29 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dj Calma - Hold Me Closer
+02 - Kasimoff - Missed Call
+03 - Mr Salama - Feel Your Love
+04 - Adex - Low Battery(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6B756B1FE1A86B0805252099E9C2C74A7EF54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843294   (1049541) от 21.12.2025
+
+VA - No name compilation part 30 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kbps] <Electronic, Vocal, Other, Ai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ai - Library of Muses
+02 - Marius Feat. the Amazing Ai Machine - Sunset Dance
+03 - Diazza - If You Love
+04 - Hande Ercel - Lightning(   Читать дальше...   )Жанр: Electronic, Vocal, Other, AiПродолжительность: 02:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D40338742392252985BEDB68BA409B956FA2CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843551   (1049316) от 20.12.2025
+
+VA - Дискотека 2026 Dance Club Vol. 231 Новогодний выпуск! (2025) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1049316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+001. Руки Вверх! - Новый год (2:56)
+002. Stefre Roland, Alex van Sanders, Alexara - Last Christmas (2:28)
+003. ABBA - Happy New Year (Ayur Tsyrenov Remix) (4:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 34:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A1A4C61C58D17269ABC564CA44F4020A25C1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843145   (1049145) от 19.12.2025
+
+VA - Midnight Whiskey Blues 2 (2025) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1049145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epi K. Paradox - Love Is A Losing Game (9:55)
+02. Stevie Ray Vaughan - Tin Pan Alley (AKA Roughest Place in Town) (9:11)
+03. Twelve Bar Blues Band - The Blues Has Got Me (9:11)
+04. Lucky Lloyd - I Feel The Pain (8:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 07:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F35BFD356298A3980340C183D170C141D06E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842757   (1048898) от 16.12.2025
+
+VA - Snowflakes And Rhythms (2025) [MP3|320 Kbps] <Pop, Dance, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048898.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi - Despacito (03:50)
+ 002. Cheat Codes - Go To Hell (02:27)
+ 003. Gloria - Parler A La Lune (03:05)
+ 004. Josue Rene - Umbral (03:30)(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 11:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D984B2607ED70C2509F6587A8A2DF4BC0D46F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842755   (1048893) от 16.12.2025
+
+VA - No name compilation Deep Chill Vocal House part 28 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fade Away
+02 - Ocean Eyes
+03 - Falling Apart
+04 - One(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A365BE6C31D76A66B68E6ECE085968648AD9C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842753   (1048892) от 16.12.2025
+
+VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dova Music - Stay Close
+02 - Umideep - Ra-Ta-Ta Love
+03 - Kasimoff - Je Tombe Sans Bruit
+04 - Delih - Dreamlover(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E4AEFF5567F5FFBC95733DE7B139323F211D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842749   (1048891) от 16.12.2025
 
 Anna Zueva - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
@@ -339,412 +745,6 @@ VA - Vocal Trance NNM 6 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2C6EAF9B81DBCA62E47A17F038399CC7026A2EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841729   (1048234) от 12.12.2025
-
-VA - No name compilation part 20 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dova Music - Winter Lonely Love
-02 - Mr Salama - Neon Heart
-03 - Azimov - Stay Tonight
-04 - Delih - Still Loving You(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3CADB5C69C416114CB612F244E8353317CC118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841731   (1048232) от 12.12.2025
-
-VA - No name compilation part 22 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Azimov - Midnight Shadow
-02 - Kasimoff - Cheri Cheri Lady (Instrumental Guitar)
-03 - Umideep - Forgive My Move
-04 - Adex - Inbox(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3704A3BD44FE07249FDDB5EFFB1CC3B4A44AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841726   (1048231) от 12.12.2025
-
-Sardø - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Minha Alegria
-02 - La Bella Luna
-03 - Midnight
-04 - Oh Love(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806076589E1CF502B7E3CA252B868E3E3A60169A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841724   (1048230) от 12.12.2025
-
-Sardø - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Isla De Fuego
-02 - Mi Corazón
-03 - Keep the Beat
-04 - Isadorae(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4FBB102AFE04417FD2157EA8E7EE828AA766BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841722   (1048229) от 12.12.2025
-
-VA - No name compilation part 23 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Blues Ballads>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ruby Sinclair - Sing Me a Song
-02 - Ai - Where the Night Learns My Heart
-03 - Ai - Voodoo Doll of Mine
-04 - Sons of Ashes - Simple Peace(   Читать дальше...   )Жанр: Blues BalladsПродолжительность: 02:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433460D4F48F53610414BF08C71A7DF4D1D570C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841735   (1048223) от 12.12.2025
-
-VA - No name compilation part 21 Instrumental, Other (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Smtve - Tuesday
-02 - Dj Aurm - Woman in Love
-03 - Smtve - Tears Fall
-04 - Aurora Night - In Memory(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AA58CBCBFAB7CF5CE18D7784270E934E72368C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841569   (1048067) от 12.12.2025
-
-VA - Christmas hammond organ (2025) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashley Tappen - Silent Night [02:16]
-02. Gwen Stefani - Jingle Bells [02:58]
-03. Leigh Harline - When You Wish Upon [04:13]
-04. Studio Bandet - Jingle Bells [02:58](   Читать дальше...   )Жанр: Jazz, Blues, InstrumentalПродолжительность: 02:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0060D5DAF2F8DBF557A14483C4844287549E37E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841223   (1047845) от 09.12.2025
-
-VA - About Something Good (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047845.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Akmalov - Only You (04:54)
- 002. Butch U - Enemies (03:47)
- 003. Dj Jedy - Midnight Mirage (02:46)
- 004. DndmDavvi - Te Fuiste (03:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077009C7B9DB8BF00CDEBD028791E88395DB1DCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841040   (1047741) от 08.12.2025
-
-VA - Music News For Forum vol.151 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047741.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elvira T - Всё решено (Index-1 Remix) (02:34)
- 002. 5sta Family - Снова вместе (Index-1 Remix) (02:41)
- 003. ACHE - Монстр (02:17)
- 004. Akamas - Be There With You (01:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB758DD851E0E9FCB628FD12CBC605AAE848A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840941   (1047691) от 08.12.2025
-
-VA - #007 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  John Fogerty - Long As I Can See The Light (John's Version) (3:32)
-02.  Rory Block - High Heel Sneakers (3:39)
-03.  Eric Gales - Something Inside Of Me (5:31)
-04.  Emma Wilson - Good To The Last Drop (4:53)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DB47B72AB61EED599026AEAA13C2491410D1AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840942   (1047690) от 08.12.2025
-
-VA - #008 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Walter Trout - Artificial (4:23)
-02.  Sugaray Rayford - How The Other Half Lives (2:54)
-03.  Whiskey Myers - Midnight Woman (4:12)
-04.  Albert Castiglia - Can’t Be A Prophet (3:41)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41573C795AD7CADB076D6190185B06B15D7736B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840943   (1047689) от 08.12.2025
-
-VA - #009 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Johnny Moeller - Gun Barrel Boogie (4:03)
-02.  Omar And The Howlers - Hideaway (2:58)
-03.  Bywater Call - Everybody Knows (3:53)
-04.  The Matt Swanton Band - Cooking With Fire (3:41)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEB64337ACE2227CE9FF6E1E75E570990A6EBC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840944   (1047688) от 08.12.2025
-
-VA - #010 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Was - I Am The Cool (4:08)
-02.  Eric Johanson - Undertow (Live) (4:17)
-03.  Kirk Fletcher - Every Dog Has Its Day (3:43)
-04.  Shawn Pittman - Low No More (4:07)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C26466DA114FAAB9A1EECE52102A55EDA9650C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840975   (1047659) от 08.12.2025
-
-VA - Christmas Blues for the Evening (2025) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047659.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christmas Blues,Blues Christmas Music,Blues Christmas Instrumentals - Back Door Santa [01:37]
-002. Christmas 2020,Instrumental Christmas,Blues Christmas - Christmas Blues Coffee Shop [04:37]
-003. Blues Christmas - North Pole Midnight Blues [03:44]
-004. Blues Christmas - Sweet Cookies [04:58](   Читать дальше...   )Жанр: Blues, Blues rock, InstrumentalПродолжительность: 05:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F2E8A427C2649B0BE04D1CD2F8D33AA0F0D069
 ```
 
 https://mybot314.ru/tekegram_catalog/

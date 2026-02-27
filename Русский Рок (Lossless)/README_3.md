@@ -1,3 +1,32 @@
+###  Публикация: 1617357   (1035326) от 06.03.2023
+
+Аборт Мозга - Акустика (2023) [FLAC|Lossless|WEB-DL|tracks] <hardcore punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 100 ложечек кофе [00:03:24]
+02. Да, звезда! [00:03:07]
+03. Чердаки-подвалы [00:01:59]
+04. Антихрист [00:02:36](   Читать дальше...   )Жанр: hardcore punkПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE202E5FFBAB18F373D6382251EF46D48EA003C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443708   (1035163) от 30.01.2021
 
 Танцы Минус - 8 (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -711,35 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2750DAD1415949D86F0C62E639FE1B28C5121513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620742   (1031674) от 22.03.2023
-
-Англия - Зимой мне всё равно (2023) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зимой мне всё равно [00:03:13]
-02. На страшные сны [00:03:30]
-03. Никто не знает [00:03:24]
-04. Зависимы [00:03:24](   Читать дальше...   )Жанр: Post Punk, IndieПродолжительность: 00:23:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BD06A61DC9179456DE83D495446F127D94FFCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

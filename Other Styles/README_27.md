@@ -1,3 +1,69 @@
+###  Публикация: 860903   (934637) от 20.01.2015
+
+The Secret Sisters - Put Your Needle Down (2014) [FLAC|Lossless]<Country, Pop-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Rattle My Bones - 03:41
+02. Iuka - 04:42
+03. Dirty Lie - 02:55
+04. The Pocket Knife - 04:34
+05. Let There Be Lonely - 03:10
+06. Black And Blue - 03:31
+07. Lonely Island - 02:32
+08. I Cannot Find A Way - 03:13
+09. If I Don't - 03:53
+10. Good Luck, Good Night, Goodbye - 03:34(   Читать дальше...   )Жанр: Country, Pop-RockПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B3A3D62C4527E359E7ECC852DB3BE2283F0F209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 658275   (934484) от 20.01.2015
+
+Timothy Wenzel - 4 альбома (2011-2014) [MP3|320 кб/с]<New age, Relax, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+2011 - A Coalescence of Dreams
+2012 - Mountains Take Wing
+2013 - River Serene
+2014 - Summon The Wind - добавлен 18.01.2015Жанр: New age, Relax, CelticПродолжительность: 03:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38509A32A7EE3FC48ACA66F2F470AC8882E11C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 233622   (934182) от 20.01.2015
 
 Prem Joshua - 18 альбомов (1991 - 2014) [MP3|160-320 kbps]<World, New age, Ethnic, Fusion>
@@ -747,61 +813,6 @@ Troika (David Arkenstone) - Kingdom of the Sun (2003) [FLAC|Lossless]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00EF78907F4A3E28AB9FC619EA9E9AA22E1E60A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629481   (931349) от 13.03.2013
-
-Tomb Raider 1-5 - Music PS collection +Bonus (1996-2000) [MP3|320 кб/с]<GameRip,Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: GameRip,SoundtrackПродолжительность: 01:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF586AAB92584B6358986A1172ACC0538D2C256C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986480   (931011) от 14.02.2016
-
-MIDIval Punditz - Light (2015) [MP3|320 кб/с] <New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run
-02. Baanwarey
-03. Nadia
-04. Rushing(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C04094EAAEAB9A053EA5C3609F68B06931A1C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

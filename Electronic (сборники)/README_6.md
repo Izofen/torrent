@@ -1,3 +1,32 @@
+###  Публикация: 1455676   (1025394) от 20.03.2021
+
+VA - Remixes 2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025394.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jason Derulo, Adam Levine, David Guetta - Lifestyle (David Guetta Slap House Mix) (2:15)
+002. Dynoro, Outwork, Mr. Gee - Elektro (2:22)
+003. Dynoro, Fumaratto - Me Provocas (2:27)
+004. Halsey, Tiesto - You should be sad - Tiesto Remix (2:25)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFAC978CD42803A54BAAD9CEC937A8F6AA60CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456131   (1025319) от 21.03.2021
 
 VA - Big Room Dance (2021) [MP3|320 Kbps] <House, Dance, Big Room>
@@ -716,35 +745,6 @@ VA - Oceanica (2021) [MP3|320 Kbps] <Ambient, Meditative, Relax, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B2F92A427EA781313D69C78474C74FE8845901D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459845   (1023003) от 03.04.2021
-
-VA - Landscape: Chill Ambient Music (2021) [MP3|320 Kbps] <Ambient, New Age, Chillout, Meditative>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ambient - это не просто музыка, это образ жизни, мышления и восприятия мира. Это самая многогранная музыка, самая непредсказуемая, самая зачаровывающая. Это музыка, которая настраивает человека на позитивный лад и несёт приятные эмоции.001. Weber & Weber - 4x Sample
-002. Ataxy - Air
-003. A Winged Victory - Nothing
-004. Fridrik Karlsson - Chillout Heaven(   Читать дальше...   )Жанр: Ambient, New Age, Chillout, MeditativeПродолжительность: 11:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593E70C6E8EB225586C6EB36B3B4B5DCA9DD044C
 ```
 
 https://mybot314.ru/tekegram_catalog/

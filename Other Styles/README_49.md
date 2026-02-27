@@ -1,3 +1,61 @@
+###  Публикация: 1003509   (841586) от 04.04.2016
+
+Hans Zimmer and Junkie XL - Batman v Superman: Dawn Of Justice (2016) 2CD, Deluxe Edition [FLAC|Lossless|image + .cue] <Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Lie (3:47)
+02. Their War Here (4:36)
+03. The Red Capes Are Coming (3:32)
+04. Day Of The Dead (4:02)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C2576C07FC415500A9321ED2DBB238092BE74E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003894   (841364) от 04.04.2016
+
+Armik - Romantic Spanish Guitar Vol. 1,2,3 (2014-2016) [MP3|320 кб/с] <Instrumental, Nuevo Flamenco, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing In The Clouds (4:19)
+02. Guitarra Poeta (4:21)
+03. Romance De La Luna (4:39)
+04. Lagrimas (4:49)(   Читать дальше...   )Жанр: Instrumental, Nuevo Flamenco |Продолжительность: 02:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4173075C4B5DB9F64AC278ACECCA5630A31723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378705   (840692) от 28.04.2020
 
 Nicholas Gunn - Pacific Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -691,64 +749,6 @@ Katzenjammer - A Kiss Before You Go (2011) [FLAC|Lossless|tracks] <Pop, Folk, Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FCE9563B7547CF03CC8AC8D7B3325BC2E2A38DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004097   (834354) от 08.04.2016
-
-Club 8 - Pleasure (2015) [MP3|320 кб/с] <Pop, Rock, Electronic>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834354.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love Dies 02:44
-2. Skin 02:48
-3. Late Nights 02:57
-4. Kinky Love 02:55(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 00:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8793BBC85F58BAA1EBD1BE842DC3BC7711124D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501567   (833634) от 11.10.2021
-
-Gheorghe Zamfir - Golden Pan Flute Melodies (1988) [FLAC|Lossless|image + .cue] <Instrumental, Folk, World>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флейта Пана (Pan Flute) - общее название многоствольных флейт, древнейшего музыкального инструмента, существовавшего еще до нашей эры. Название связано с мифом о древнегреческом боге Пане, покровителе пастухов. На всех изображениях Пан играет на сиринге (греческое название флейты Пана), а в Помпеях найдена скульптура, на которой Пан обучает Дафниса игре на сиринге. (   Читать дальше...   )01. The Brîu of Oltenie (2:19)
-02. Song of Iancu Jianu (3:16)
-03. An Ill Blackbird (2:34)
-04. Hora Slow (1:57)(   Читать дальше...   )Жанр: Instrumental, Folk, WorldПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344D4EA1D0501B412203BD1E81CA4C3C719359D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

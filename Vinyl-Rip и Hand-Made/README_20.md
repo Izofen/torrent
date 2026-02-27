@@ -1,3 +1,203 @@
+###  Публикация: 1144551   (627358) от 22.06.2017
+
+Slade - The Story Of Slade (1977) 2LP, Compilation [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627358.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Coz I Luv You (3:25)
+A2. Gudbuy T' Jane (3:32)
+A3. Keep On Rocking (6:27)
+A4. Good Time Gals (3:32)(   Читать дальше...   )Производство: Barn Records - 2689 001Жанр: RockПродолжительность: 01:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7DAB0A250EC65959BDBFB98AADF283AA69798F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 802765   (626669) от 06.07.2014
+
+The Who - Who Are You (1978)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626669.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. New Song (4:24)
+A2. Had Enough (4:30)
+A3. 3.905 (3:59)
+A4. Sister Disco (4:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72ECC808B1421C20474771099EF76DE3A25E3751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229482   (626021) от 06.06.2018
+
+The Beatles/Битлз - Российский/Советский Лицензионный Винил {Мелодия/AnTrop/BRS} (1986-1993) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock & Roll, Pop Rock, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Beat, Rock & Roll, Pop Rock, SoundtrackПродолжительность: 09:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7ED6C8ADC89311332E1B354BB15D915C533CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544239   (623574) от 14.04.2022
+
+Joe Satriani - Дискография (26 releases) (1984 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Instrumental Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джозеф «Джо» Сатриани (англ. Joseph "Joe" Satriani; род. 15 июля 1956 года, Вестбери, Нью-Йорк, США) — американский гитарист-виртуоз. Учитель таких гитаристов, как Стив Вай, Кирк Хэммет, Алекс Сколник, Дэвид Брайсон, Чарли Хантер, Ларри ЛаЛондэ и многих других.1986 - Not of This Earth
+1987 - Surfing with the Alien
+1989 - Flying in a Blue Dream
+1992 - The ExtremistЖанр: Instrumental Rock, Hard RockПродолжительность: 29:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9398D67AC129A855AA4B648B1BA340AF247D609B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035218   (622437) от 19.07.2016
+
+Jean-Michel Jarre - Equinoxe (1978/2011) [WavPack 2.0|32/384|image + .cue|Vinyl-Rip] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Equinoxe Part 1 (2:23)
+02. Equinoxe Part 2 (5:04)
+03. Equinoxe Part 3 (4:59)
+04. Equinoxe Part 4 (7:04)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3D940C1100E465E7EA26199BF87072CE37A1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294483   (622364) от 11.04.2019
+
+Blues Company - Ain't Givin' Up [Mastering YMS X] (2019) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Blues, Electric Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Givin' Up (6:19)
+02. Guns (5:17)
+03. The News (4:02)
+04. Waiting For Springtime (6:53)(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49524F38172E15AACA7797FEEB5F2B485DAAAED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544280   (622202) от 15.04.2022
+
+Лариса Долина - Песня Нептуна (из к-ф «Танцплощадка») (1986) Серия: По Вашим Письмам [FLAC 2.0|192/24|tracks+.cue|Vinyl-Rip] <Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622202.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Песня Нептуна
+(Е. Дога - М. Танич)
+B На Последнем Сеансе Кино
+(Е. Дога - М. Танич)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500BF53E0757A5064D6012EAF2F0FF6152D4A9EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059776   (621889) от 15.04.2022
 
 Надежда Чепрага - Только Ты (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
@@ -536,209 +736,6 @@ A4 И. Саруханов - Barbe(   Читать дальше...   )Жанр: P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E02200B0E797239E4C67177E3DBA9B2A5D48BA3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230334   (616977) от 11.06.2018
-
-Enigma - MCMXC a.D. (1990) Virgin, Universal Music | Remastered 2016 [FLAC 2.0|24/44.1|tracks|SACD-Rip] <New Age, Downtempo, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Voice Of Enigma (02:21)
- 02. Principles Of Lust: Sadeness / Find Love / Sadeness (Reprise) - Medley (11:43)
- 03. Callas Went Away (04:29)
- 04. Mea Culpa (05:01)(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9635BD46AD88B3ED4F7584445B60D63AF609020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295809   (616836) от 14.04.2019
-
-Louis Armstrong - Collection (Unofficial Release, Unknown Year) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Do You Know What It Means To
-02. La Vie En Rose
-03. Same Of These Days(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A9651751BD0F69B2327200917F8A558178502F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039511   (616381) от 18.04.2022
-
-VA - Jazz Mix Evening Conversation 1950-2008 (2016) [WavPack|96/32|image+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gene Ammons - Hittin' The Jug (1960)
-02. Billy Holiday - I’m A Fool To Want You (1958)
-03. Wild Bill Davis & Buddy Tate - Memories Of You (1965)
-04. Ernestine Anderson - As Long As I Live (1981)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B83E215337AA6AC61C7C872E52742747E8FD84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022492   (616253) от 18.04.2022
-
-Benny Goodman / Бенни Гудмен - Как Глубок Океан (1940-1950) 1987 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616253.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Каприс
-A2	Как Глубок Океан
-A3	Граф
-A4	Я Здесь(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286D1278B5E58FA18EAE110F4DA4CD4C1B74DEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039203   (616246) от 18.04.2022
-
-Joan Baez/Джоан Баэз - Поёт Джоан Баэз (1970) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616246.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Деревья Растут Высоко
-A2 Лилия Запада
-A3 Паровоз 143
-A4 Я Встретил Хорошенькую Девушку(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B9E59F118EF7B632CE1AF1F64A4F467A8367D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036658   (615584) от 23.07.2016
-
-Kenny Rogers/Кенни Роджерс - Поёт Кенни Роджерс (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Люсиль (Lucille)
-02. Игрок (The Gambler)
-03. Я согласен опять страдать (I Wish Could Hurt  That Way Again)
-04. Король Дубовой улицы (The King Of Oak Street)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835C9AA4685820D3B914CC84B12EAA58E1E9DD1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804420   (615337) от 12.07.2014
-
-The Who - Quadrophenia (1979) 2LP Original Motion Picture Soundtrack [FLAC 2.0 24/192|image (Vinyl-Rip)]<Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615337.jpg" />
-</div>
-
-
-###  Подробнее
-
-C1. The High Numbers - Zoot Suit (2:01)
-C2. Cross Section - Hi Heel Sneakers (2:49)
-C3. The Who - Get Out And Stay Out (2:29)
-C4. The Who - Four Faces (3:22)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216118641C6255AA039B60457075F694C7E236FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

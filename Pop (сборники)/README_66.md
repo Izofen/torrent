@@ -1,3 +1,148 @@
+###  Публикация: 1042259   (578393) от 13.08.2016
+
+VA - Русское радио. Убойное лето №3 (2016) [MP3|~192-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. T1one - Девочка Поверь
+002. Город 312 - Многоточие
+003. Бьянка - Алле Танзен
+004. Нюша - Буду Рада(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451F1577DB1DA0409C0A0A85C705FD59DB91A4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042611   (578389) от 13.08.2016
+
+VA - German Top 100 Single Charts (22.08.) (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578389.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mike Perry feat. Shy Martin  -  The Ocean  3:03
+002. Major Lazer & Justin Bieber & MO  -  Cold Water  3:05
+003. Alan Walker  -  Sing Me To Sleep  3:09
+004. Shawn Mendes  -  Treat You Better  3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671B218A096DD74D3FD8588F143B59C0DBA62882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042629   (578318) от 13.08.2016
+
+VA - Русское радио. Бархатный сезон (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578318.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Макс Барских - Последний Летний День
+002. Дима Билан - Неделимые
+003. Григорий Лепс - Одиноко
+004. Homie - Птица Рай(   Читать дальше...   )Жанр: PopПродолжительность: 05:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D043DAAB03EF2D3D4B17C94B46B196B3FBA89E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233593   (578175) от 01.07.2018
+
+VA - German Top 50 Official Dance Charts 29.06.2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Profesor - Bella Ciao (HUGEL Remix)
+02. Purple Disco Machine - Dished (Male Stripper)
+03. Calvin Harris, Dua Lipa - One Kiss
+04. Shakedown - At Night (Purple Disco Machine Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0640727ED6617148BD7FA8CDC1E5C3E1627372E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554184   (577622) от 30.05.2022
+
+Claudia Mori - Compilation (2022) [MP3|320 Kbps] <Pop, Italo Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un'altra volta chiudi la porta (Chiudi la porta)
+02. E' amore
+03. Nata per me
+04. Dal dire al fare(   Читать дальше...   )Жанр: Pop, Italo PopПродолжительность: 00:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF199904D6EE6ED5FBEE25FCAA1B5CEE8F32F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361357   (577432) от 10.07.2011
 
 VA - Летний попсовый рай (2011) [MP3|256 kbps]<Pop>
@@ -588,151 +733,6 @@ VA - VIP Абсолютно Танцевальный (2011) [MP3|256 kbps]<Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22407C47F9447448CE4A276E198BCE90A9BB9938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043319   (572983) от 16.08.2016
-
-VA - Муз обоз №5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572983.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fifth Harmony - No Way
-002. Интонация - Давление
-003. The Dollyrots - Little Medusa
-004. Sasha - Всего Лишь Три Слова(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B83038C055D5814F38F4467622AAD5B9FB23DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043323   (572841) от 16.08.2016
-
-VA - Зажги Под Летние Хиты 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Аркадиас - Здравствуй Любовь Моя
-002. Slider & Magnit Feat. Penny Foster - Another Day In Paradise
-003. Агонь - Отпусти
-004. Karen Туз Feat. Gaya Khan - Сеньорита(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE5AA5FC35BCA0664A2A363C4FE6F1ACED119D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043312   (572832) от 16.08.2016
-
-VA - Turbo mix World Hits №6 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572832.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - Flash Point - Peace (Extended Mix)
-002 - Remundo - Gliding Flute (Club Mix)
-003 - Alexdoparis - House Beat (Radio Mix)
-004 - Robbert Simmons - Deep Tekker (Club Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 07:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C4E042D4ED938C03A866D73D3A0D72F2AE22F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043380   (572825) от 16.08.2016
-
-VA - Наша летняя соточка №1 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572825.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мила Нитич - Верни Мою Любовь
-002. Саша Санта - Наверное
-003. Елена Есенина - Мой Нежный Мальчик
-004. Людмила Соколова - Сердце, Как Стекло(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05CE783F2943C13135B7C9BAA0F7A4822B056D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043327   (572824) от 16.08.2016
-
-VA - Super Dance Party Vol.4 (2016) [MP3|320 Kbps] <Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Balan - Lendo Calendo (Slider & Magnit Radio Record Edit)
-02. Lalla - Season Of Love (Astero Remix)
-03. Catrine - Зажигай (DJ HiTretz Remix)
-04. Mia Martina vs Saxattack - Tu Me Manques (DJ Kapuzen & DJ Micky Rossa Mashup)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 05:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B56A2A13A62527C6E3C873283344AE9508E0B91
 ```
 
 https://mybot314.ru/tekegram_catalog/

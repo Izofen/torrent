@@ -1,61 +1,3 @@
-###  Публикация: 1480227   (1009128) от 27.06.2021
-
-VA - The Best 2000s Album In The World… Ever! (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - The Nights (2:56)
-02. Plain White T's - Hey There Delilah (3:52)
-03. Zedd, Foxes - Clarity (4:31)
-04. Norah Jones - Don't Know Why (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC4B07E9497DC29ECE008786667CDFD5A059A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481201   (1008448) от 02.07.2021
-
-Frank Duval - Lonesome Fighter (2021) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonesome Fighter Prologue
-02. Lonesome Fighter
-03. Om Mani Padme Hum
-04. Mysterious Call(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8425F2D37E86CEB138B0611D659C99848512CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481439   (1008304) от 03.07.2021
 
 Richard Marx - Stories To Tell (2021) 2CD [FLAC|Lossless|image + .cue] <Pop, Pop-Rock>
@@ -746,6 +688,64 @@ VA - 100 Greatest Singalong Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4D4B813A1D01EFC3A750F43A63570CCB04D191B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352480   (1000721) от 15.01.2020
+
+VA - Acoustic Pop Songs 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Someone You Loved 3:19
+02. Nora & Will - Late Night Feelings 3:57
+03. Shannon & Keast - We Found Love 3:05
+04. Custom 7 - What We Need (Acoustic Version) 2:41(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B20DC252288CF0C177538C886A1AC0E75264B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353075   (993320) от 16.01.2020
+
+Veronique Jannot - Le Meilleur De Veronique Jannot (2002) [FLAC|Lossless|image + .cue] <Synth-pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993320.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Désir, Désir (Part 1) 4:55
+2 L'Atlantique 3:30
+3 Aviateur 4:27
+4 Si T'as Pas Compris 3:57(   Читать дальше...   )Жанр: Synth-pop, ChansonПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3EAC496B1E5A0FFEE4EB24DCEB4673A957414E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1341800   (228780) от 29.11.2019
+
+White String Orchestra - Aktuelle Hits im modernen Streichersound Vol. 2 (1996) [FLAC|Lossless|image + .cue] <Instrumental, Classical Crossover, Cover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Me Softly (4:14)
+02. I Cant Help Myself (3:17)
+03. Where Do You Go (4:17)
+04. My Love (4:06)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, CoverПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2E3A66FA537C9433430E07B0658444A54EAADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341804   (228730) от 29.11.2019
+
+White String Orchestra - Traumhafte Balladen im modernen Streichersound - Vol.3 (1997) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Believe I Can Fly (4:18)
+02. Lonely (3:51)
+03. Time To Say Goodbye (4:05)
+04. When I Die (4:34)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2DE4D18573BEC545054E8B6888B149057DAA0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 735230   (228458) от 18.12.2013
 
 Paul Mauriat - The best of Paul Mauriat Vol.1 (2013)/K2HD Mastering, Japan/ [FLAC|Lossless]<Instrumental>
@@ -760,64 +818,6 @@ Gente de Zona - En Letra de Otro (2018) [MP3|320 Kbps] <Reggaeton, Cubaton>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37D6BD0FE63B82B64EBB6342DF3CA93A82653A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965272   (225799) от 14.12.2015
-
-Goran Bregovic - Music Inspired And Taken From Underground (1995) [FLAC|Lossless|tracks + .cue] <Gypsy Jazz, Tango, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kalasnjikov (3:22)
-02. Goran Bregovi feat. Cesria vora - Ausncia (3:48)
-03. Meseina / Moonlight (3:59)
-04. Ya Ya (Ringe Ringe Raja) (2:30)(   Читать дальше...   )Жанр: Gypsy Jazz, Tango, SoundtrackПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E60BD2054B1726D2D7B15428A7118D0BE3E26D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513194   (225393) от 28.11.2021
-
-Georg Philipp Telemann, Markus Kuikka - Fantasias For Viola Da Gamba (2021) [FLAC|Lossless|image + .cue] <Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantasia I in C minor - I. Adagio - Allegro - Adagio - Allegro
-02. Fantasia I in C minor - II. Allegro
-03. Fantasia II in D major - I. Vivace
-04. Fantasia II in D major - II. Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72620AC933A17BCCC220DFAFCFC860AAE6B7619A
 ```
 
 https://mybot314.ru/tekegram_catalog/

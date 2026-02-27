@@ -1,3 +1,61 @@
+###  Публикация: 1103631   (885959) от 12.02.2017
+
+Lagoon West - Yoga (2005) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885959.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Source to Sea 7:29
+2. Island Moon 7:34
+3. Kama 8:35
+4. Undertow 2:42(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B33A898C68C94F781C4447141FB095F7D53082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494476   (885955) от 09.09.2021
+
+Tina Guo - Dies Irae (2021) [MP3|320 Kbps] <New Age, Instrumental, Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight Sonata [00:04:30]
+02. Moonheart [00:04:31]
+03. Double Cello Concerto  MVT.1 [00:04:08]
+04. Rivers Flows In Youy [00:03:55](   Читать дальше...   )Жанр: New Age, Instrumental, ClassicalПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14144A716AD853F027F69E763DE2C03C37B85C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494721   (885936) от 09.09.2021
 
 Atom Music Audio - Crime Life (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -724,66 +782,6 @@ Jason Graves - The Order: 1886 (Original Video Game Soundtrack) (2015) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25306BD04CB7650F827D4555683C71DFCA9F406A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870895   (882511) от 20.02.2015
-
-Disasterpeace - Оно следует за тобой / It Follows (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Heels (02:48)
-02. Title (02:18)
-03. Jay (01:29)
-04. Anyone (01:49)
-05. Old Maid (02:33)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663E364E7A79AB7C2D69B714BAE3E25298493B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870852   (882478) от 20.02.2015
-
-Ricky King - The Best World Instrumental Hits (2009) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Laguna Romantica
-02. The House Of The Rising Sun
-03. Apache
-04. Delilah
-05. Strangers In The Night(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74EA1E0352973E15D095053D744FBACFA475C5A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

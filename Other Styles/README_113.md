@@ -1,3 +1,61 @@
+###  Публикация: 1312180   (530825) от 05.07.2019
+
+Bear McCreary - Child's Play / Детские игры (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Track 1 (02:15)
+02. Theme from Child's Play (04:25)
+03. Birth of Chucky (02:41)
+04. Karen and Andy (02:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66442FE165D161662163CBFA8FFCB3FD8DBE7E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312331   (530821) от 05.07.2019
+
+Joseph Bishara - Annabelle Comes Home / Проклятие Аннабель 3 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doll Opening (00:49)
+02. cemetery pulls (01:16)
+03. it's the Doll (02:23)
+04. Doll container (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A478A203E43DC9F5DB3D0FA3F1D5D6D0863DD09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312205   (530816) от 05.07.2019
 
 Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -691,64 +749,6 @@ VA - Sirtaki Dance (2003) [MP3|192-320 kbps] <Instrumental, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C001EAB5322988446FC975CD06C48A5135FB13B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156546   (527004) от 08.08.2017
-
-Tatanka - Vol 4 (2006) [MP3|256 Kbps] <Native american, Ethnic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mi Negrita   [4:23]
-02. Night Bird    [3:51]
-03. Rain Dance  [3:59]
-04. Wayrapa - Muspuynin [6:26](   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 01:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDA46DE663BBE9A08A0BE4E0D8A61C45F9CEA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052938   (526692) от 16.09.2016
-
-Liam Bradbury - Pagan Earth (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Initiation Ritual [00:02:11]
-02. The Wind Speaks My Name [00:03:08]
-03. The Triple Goddess [00:02:54]
-04. Raise the Fire [00:02:31](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE09780271A085A1BB1A0596B65E1A92058642FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

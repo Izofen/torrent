@@ -1,22 +1,23 @@
-###  Публикация: 1816376   (4421) от 04.09.2025
+###  Публикация: 1815738   (4798) от 01.09.2025
 
-Дэвид Раффл | Шерлок Холмс и ужас Лайм-Реджиса (2022) [MP3, Юрий Тенман]
+Лучшие годы нашей жизни / The Best Years of Our Lives (1946) BDRip [H.264]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4421.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новые расследования Шерлока Холмса.Жанр: ДетективИздательство: Аудиокнига своими руками / неофициальное издание профессионального актёраПродолжительность: 07:24:30
+Экранизация романа Маккинли Кантора «Прославление меня» (Glory for Me)...
+Фильм рассказывает о трёх офицерах американской армии, которые с войны вернулись домой. у Эла дома жена и двое уже подросших детей, которые как раз вступают во взрослую жизнь, он пытается наверстать упущенное, узнать их заваново и вновь завоевать семейную любовь и доверие, по возвращению его (   Читать дальше...   )Производство: США / Samuel Goldwyn CompanyЖанр: драма, мелодрама, военныйРежиссер: Уильям УайлерАктеры: Мирна Лой, Фредрик Марч, Дэна Эндрюс, Тереза Райт, Вирджиния Майо, Кэти О`Доннелл, Хоаги Кармайкл, Харольд Расселл, Глэдис Джордж, Роман Бонен, Рэй Коллинз, Минна Гомбелл, Уолтер Болдуин, Стив Кокран, Дороти Адамс (I)Перевод: дублированный (Мосфильм), профессиональный двухголосый ( HTB+), авторский (Алексей Медведев)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:50:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EACC370E954CB33ED6247167CC00FD53C9AFC89E
+magnet:?xt=urn:btih:F4776EB8069887786101A365E5747FEBE8F3F135
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,283 +25,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816411   (4420) от 04.09.2025
+###  Публикация: 1815806   (4797) от 01.09.2025
 
-Slimus - Спокойной ночи, малыши, Часть 3 (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4420.jpg" />
-</div>
-
-
-###  Подробнее
-
-02 - SLIMUS - Выплывем [00:02:31]
-03 - SLIMUS - Центровые замесы [00:02:43]
-04 - SLIMUS - Ковёр-самолёт [00:02:50]
-05 - SLIMUSБилли Ногами - Блинг [00:03:36](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31403455C3D2FB020D922A73DAC147228E1783EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816169   (4419) от 04.09.2025
-
-De Profundis, Eamonn Dougan - Morales: Requiem a 5 & Officium defunctorum (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circumdederunt me [00:02:23]
-02. Regem, cui omnia vivunt – Venite, exsultemus [00:08:45]
-03. Parce mihi, Domine [00:03:39]
-04. Credo quod redemptor meus vivit [00:03:03](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB6104A756604486508CD5D6ABA655276E7D715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816294   (4418) от 04.09.2025
-
-Чарли / В погоне за тенью / Charlie (2015) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тесса, молодая художница и весьма эксцентричная особа, сбегает из дома, где мать чуть было не выдала её замуж, и переезжает в Кочи. Наводя порядок в квартире, в которой остались вещи предыдущего жильца, Тесса случайно находит альбом с его рисунками. Из этих рисунков складывается довольно причудливая история, которая обрывается на самом интересном месте. Пытаясь разузнать (   Читать дальше...   )Производство: Индия / Finding CinemaЖанр: мюзикл, драмаРежиссер: Мартин ПраккатАктеры: Дулкар Салман, Парвати Менон, Апарна Гопинатх, Недумуди Вену, Калпана, Товино Томас, Нассер, К.П.А.С. Лалитха, Ситха Партхибан, Соубин Шахир, Чимбан Винод ДжозеПеревод: профессиональный многоголосый (SDI Media)Язык озвучки: русский, малаяламСубтитры: русские (Lauri), английскиеПродолжительность: 02:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0473270645095C307AD4066A7B835C0EDEDCB6DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816342   (4417) от 04.09.2025
-
-Joris Voorn - Serotonin (2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rose (Extended Mix) [00:05:43]
-02. Flora (Extended Mix) [00:06:11]
-03. Horizon (Extended Mix) [00:05:47]
-04. Your Love (Extended Mix) [00:06:21](   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01023069F4AC277F36895A0985F1B376279E9523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816021   (4416) от 04.09.2025
-
-Laufey - A Matter of Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz, Vocal Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clockwork [00:02:30]
-02. Lover Girl [00:02:44]
-03. Snow White [00:03:13]
-04. Castle in Hollywood [00:02:33](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847596AEFB22E97BCEACF43C56F0540B58A4A005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816273   (4415) от 04.09.2025
-
-Dj Cult Music - Blues Rock Cult Songs (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bourbon Powered Blues (3:24)
-02.  Chrome Heart Shuffle (3:59)
-03.  Echoes in Leather Boots (3:30)
-04.  Gravel Voice Lullaby (3:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7A6EE7640362E98276612A661D5153B27F4EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816047   (4414) от 04.09.2025
-
-Pola & Bryson - Fabriclive presents Pola & Bryson (2025) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Worlds Apart [00:04:41]
-02 - The Certified Bubbler [00:03:06]
-03 - Not Far To Go [00:06:25]
-04 - Lies [00:03:04](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B337648107A3A40F516CA1BE97328DCBA5DDD699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816036   (4413) от 04.09.2025
-
-Halle Choir, BBC Philharmonic and John Storgards - Shostakovich: Symphonies Nos. 1 & 3 "The First of May" & Scherzos, Opp. 1 & 7 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] &lt ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scherzo in F-Sharp Minor, Op. 1 [00:05:00]
-02. Scherzo in E-Flat Major, Op. 7 [00:04:02]
-03. Symphony No. 1 in F Minor, Op. 10: I. Allegretto [00:09:13]
-04. Symphony No. 1 in F Minor, Op. 10: II. Allegro [00:05:01](   Читать дальше...   )Жанр: ClasicaПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0721BEDE1BDE584847722C2891432E4D8198478C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816371   (4412) от 04.09.2025
-
-AI Talking - Mega Collection Vol. 4 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Send Me An Angel Now (3:49)
-02. The Night's Embrace (3:17)
-03. Stop And Connect (3:17)
-04. Feel The Beat, Dance Till Dawn (3:16)(   Читать дальше...   )Жанр: Euro-Disco, EuropopПродолжительность: 01:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8724E19FC047E8AFE44C3DDC4796FC2882B3ED08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816399   (4411) от 04.09.2025
-
-Уильям Тенн | Фауст (2021) [MP3, Puffin Сafe]
+Макс Фрай | Ловцы книг (Книга 3). Замечательный предел (2025) [MP3, Владимир Овуор]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4411.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В офис к торговцу Берни ввалился какой-то оборванный и измазанный грязью бродяга, предложивший купить ему двадцать долларов за пять. Сперва Берни отнесся к предложению скептически, выгнал бродягу, но тот успел оставить ему визитную карточку, что очень странно для бездомного. Профессиональное любопытство заставило Берни найти своего «коллегу» по указанному адресу (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:51:00
+Завершите трилогию, чтобы начать собственную - эта книга не ставит точку, а становится зеркалом, в котором ваша жизнь обретает силу неувядающего сюжета.
+Что мы знаем об этой книге?
+Что это последняя, третья часть. Хотя продолжение, конечно же, следует. Но книгой оно не станет. Продолжение этой истории нам предстоит не писать и читать, а жить. Потому что наилучший (   Читать дальше...   )Жанр: фэнтезиИздательство: Аудиокнига (АСТ)Продолжительность: 15:33:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE8C1067815C6AA8FB67F87F4DEEC751C3F8FE3A
+magnet:?xt=urn:btih:1F1FF8A7D415BEB8BBB3D6688716C90F6831FFF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816335   (4410) от 04.09.2025
+###  Публикация: 1815897   (4796) от 01.09.2025
 
-VA - A State of Trance - Classics Top 10, Vol. 7 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Рудольф Распе | Приключения барона Мюнхгаузена (2025) [FB2]
 
->>Electronic
->>Trance
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4410.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Binary Finary - 1998 (Matt Darey Extended Remix) [7:18]
-02. Signum - Solar Level (Extended Mix) [9:30]
-03. Olmec Heads - Lift Off (Extended Mix) [7:49]
-04. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (12" Vocal Mix) [8:32](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:22:39
+Первый перевод этой книги на русский язык, сделанный в 1791 году, назывался «Не любо – не слушай, а врать не мешай». Но если бы барон Карл Фридрих Иероним фон Мюнхгаузен об этом узнал, он наверняка вызвал бы переводчика на дуэль. Ведь всем на свете известно, что никто из Мюнхгаузенов никогда не врал и врать не будет! И какими бы невероятными ни выглядели приключения (   Читать дальше...   )Жанр: Художественная, приключения, детскоеИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A2FC9CE77326309D6E21DBCB0ECB03FCBA0EA85
+magnet:?xt=urn:btih:D7DFBD1B66CAB529CC5EBE8F0AD5C4C2FE8D285E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,28 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816372   (4409) от 04.09.2025
+###  Публикация: 1815813   (4795) от 01.09.2025
 
-AI Talking - Mega Collection Vol. 5 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
+Шрифты - Behance - Михаил Шмат - Massivertical Font - 189995129 [TTF, OTF, WOFF, WOFF2]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4409.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kiss Of Love (3:16)
-02. Innocent Heart (3:16)
-03. Moment Of Love (3:17)
-04. Finest Painter (3:16)(   Читать дальше...   )Жанр: Euro-Disco, EuropopПродолжительность: 01:55:50
+Шрифт без засечек. Строгий, минималистичный, геометрический, вертикальный.
+Подходит для использования в плакатах, заголовках, логотипах и т.д.
+Бесплатно для личного и коммерческого использования.
+Материал раздается с официальной документацией.Формат: TTF, OTF, WOFF, WOFF2Поддержка кириллицы: Есть
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB72C41531B7A283C63F760E0FD8A5736738562A
+magnet:?xt=urn:btih:F539F301AFBAF126201A009A9BA2DA4F335D5361
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,28 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816370   (4408) от 04.09.2025
+###  Публикация: 1815821   (4794) от 01.09.2025
 
-AI Talking - Mega Collection Vol. 3 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
+Алексей Вязовский, Сергей Линник | Столичный доктор (Книга 4). Испытание врача (2025) [MP3, Пожилой Ксеноморф]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4408.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Undercover Love (3:49)
-02. Satisfy My Soul (3:16)
-03. Anything For Love, Anything For You (3:16)
-04. Diamond Flower (3:17)(   Читать дальше...   )Жанр: Euro-Disco, EuropopПродолжительность: 01:57:31
+Четвертая аудиокнига в популярной серии «Столичный доктор».
+Давка, ставшая трагедией…
+Хирург Евгений Баталов не может пройти мимо боли.
+На фоне контрастной Москвы разворачивается история человека, для которого спасать жизни важнее всего.(   Читать дальше...   )Жанр: Фантастика, приключения, попаданцыИздательство: Аудиокнига (АСТ)Продолжительность: 07:18:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10595C59B9EBB0F4264442141D867AB95401DD3D
+magnet:?xt=urn:btih:0ACFEB9794E9EFB08D143B03562BF323EEDBA55A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,28 +137,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816237   (4407) от 04.09.2025
+###  Публикация: 1815819   (4793) от 01.09.2025
 
-AI Talking - Mega Collection Vol. 2 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
+Шрифты - Behance - Ilya Zakharov - Obrazec 2.0 - 106304557 [ TTF, WOFF, WOFF2 ]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4407.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stereo Heartbeat (3:16)
-02. Gran Canaria (3:17)
-03. Sunshine Calling (3:17)
-04. Mirror Of Truth (3:16)(   Читать дальше...   )Жанр: Euro-Disco, EuropopПродолжительность: 01:56:54
+Obrazec 2.0 - это модернизированная версия шрифта Obrazec. Это промышленный шрифт без засечек с обрезанными частями букв. Он включает латинские и кириллические символы. Шрифт бесплатный как для личного, так и для коммерческого использования.
+Материал раздается с официальной документацией.Формат: TTF, WOFF, WOFF2Поддержка кириллицы: Есть
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C836598B21DF8B7A83715279798D3CBE98BD3C5
+magnet:?xt=urn:btih:875D86169E3E259E5B62776A19588ACEE5513829
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,28 +164,311 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816263   (4406) от 04.09.2025
+###  Публикация: 1815878   (4792) от 01.09.2025
 
-Queen - Acoustic (2025) Remastered, 2011, UME - Global Clearing House [MP3|320 Kbps] <Rock>
+VA - Trance In Motion Vol.390 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grande Piano - Euphoria (Intro Mix)
+02. Ashley Wallbridge & Christina Novelli & Pulse Gate - Impossible (Extended Mix)
+03. Steve Allen - Epicurean (Extended Mix)
+04. Darren Porter & Arctic Barbers - The Rise Of Arkanus (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1407264BFF3CC2A732146C53BF98104D9995A4A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815932   (4791) от 01.09.2025
+
+Nick Manzer - Through The Veil (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Crystal Clear (2:34)
+02.  She's Got Fire (2:11)
+03.  Guess I Can Be Fine (3:54)
+04.  The Night Goes On (1:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677164087D6AC0990DF20684ABF335E8F26DDCF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815928   (4790) от 01.09.2025
+
+Nelson Bragg - Melodie de Nelson: A Pop Anthology (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  We're Gonna Laugh About It (3:00)
+02.  No One's Home In Hollywood (4:20)
+03.  Tell Me I'm Wrong (3:35)
+04.  Lived This Life Too Long (3:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8DA1893A45DC07B3D626298C738EE3AEF3C754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815926   (4789) от 01.09.2025
+
+Mr. Creatovsky - Braincity Blues EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Braincity Blues (5:32)
+02.  Heartbreak Hotel (3:43)
+03.  Behind the Door (4:26)
+04.  Sanctuary (7:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D801C0941A8FC242DCB389B9074611804AC70D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815862   (4788) от 01.09.2025
+
+Huntress - Studio Albums (4 releases) (2010-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Huntress - американская хэви-метал группа из Хайленд-Парка, Калифорния, создана в 2009 году.2010 - Off With Her Head (EP)
+2012 - Spell Eater
+2013 - Starbound Beast
+2015 - StaticЖанр: Heavy MetalПродолжительность: 02:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6504B50137E67CCD3A7C1A2688B8532F592CB7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815936   (4787) от 01.09.2025
+
+Slant KX - Endless Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Endless Love (2:55)
+02.  Jangle My Frame (3:33)
+03.  Back in Your Youth (2:16)
+04.  Wasting Hours (4:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C4805DEF4C0E06EF928D5814418D33F94B796E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815924   (4786) от 01.09.2025
+
+Аста Нильсен. Азбука любви / Das Liebes-ABC (1916) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лис и Филипп были обручены, но никогда не видели друг друга. И вот наступил тот день, когда Филипп отправился в поход за своим счастьем. Но девушка была, как сейчас говорят, продвинутой, втайне покуривала, читала взрослые книжки из папиной библиотеки и мечтала о страстной любви с мужественным красавцем, а к ней приехал домашний мальчик, воспитанный тетушками, укутанный (   Читать дальше...   )Производство: Германия / Saturn-FilmЖанр: комедия, немое киноРежиссер: Магнус ШтифтерАктеры: Аста Нильсен, Людвиг Траутмэнн, Магнус ШтифтерПеревод: немой с интертитрамиЯзык озвучки: немойСубтитры: датские, немецкие (интертитры), русскиеПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A551AA29383080DD652EFFE5D6E976B0324DE7BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815938   (4785) от 01.09.2025
+
+Steve Fair - Play Fair (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Play Fair (3:33)
+02.  Blown Away (3:25)
+03.  Bench Seat (4:58)
+04.  Who's Truck We Takin' (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7F137FDBE9DBF74C0566F6FE97C4E6009ED18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815865   (4784) от 01.09.2025
+
+Иоганн Вольфганг Гёте | Итальянское путешествие (2018) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Кофе с мудрецами».
+Иоганн Вольфганг Гёте (1749–1832) – величайший немецкий поэт и мыслитель, автор бессмертного «Фауста».
+Документальное произведение «Итальянское путешествие» (1817). Более полутора лет Гёте путешествовал по городам и весям Италии. Столь продолжительное путешествие произвело неизгладимое впечатление на него самого и оказало сильнейшее (   Читать дальше...   )Жанр: Зарубежная литература, классика, прозаИздательство: Эвербук. StorytelПродолжительность: 12:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EC9F00820E1AD283CBEEFA8CE77060E9807875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815951   (4783) от 01.09.2025
+
+Шрифты - MyFonts - Jouter Sans [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jouter Sans — семейство шрифтов без засечек, представленное в 18 начертаниях (9 прямых и 9 курсивных), вдохновлённое американскими гротесками начала XX века. Опираясь на это богатое типографское наследие, Jouter Sans щедро переосмысливает жанр, сочетая исторический характер с современным подходом к дизайну шрифтов, основанным на лучших практиках цифровой печати.Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:341D0356BB747B8A296C28B21204B7FF4A29CE03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815939   (4782) от 01.09.2025
+
+Chimpan A - M.I.A. Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4406.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Calling All Girls (Remastered 2011) [03:52]
-02. The Night Comes Down (2024 Mix) [04:22]
-03. Funny How Love Is (Remastered 2011) [02:50]
-04. '39 (Remastered 2011) [03:31](   Читать дальше...   )Жанр: RockПродолжительность: 00:33:32
+01. Wolves (05:53)
+ 02. I Will Wait For You (10:05)
+ 03. Saviour (03:50)
+ 04. Karl's Song (03:49)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:28:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB1050CCDF90F8B7E74D32D040B61DB9E85D75D3
+magnet:?xt=urn:btih:43EA6324DBB77D49341C314DA53499E7FA21084F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,109 +476,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816328   (4405) от 04.09.2025
+###  Публикация: 1815925   (4781) от 01.09.2025
 
-VA - The Orient Collective: Tibetan Spirits (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
-02. Project Blue Sun, Tibetania - Ad Astra Per Aspera (Original Mix) (5:10)
-03. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)
-04. Tibetania, Summer Department - Sub Rosa (Original Mix) (5:44)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1B98CD1C032C375B2D02CF4987705AD82653D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816353   (4404) от 04.09.2025
-
-Whisker Wanderlust: The Wondrous Journey (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый уровень - это путешествие в сказочный мир. Наша визитная карточка - уникальный пастозный стиль ручной росписи: каждый кадр достоин стать обоями, создавая истинный визуальный символ игры. Иммерсивную атмосферу дополняют эксклюзивные саундтреки для каждого уровня, позволяющие полностью погрузиться в игру!Тип издания: RepackРазработчик: MEOW STORE GAMEЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A533357BED678B0DF74A6526AF5117BFD2A7B257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816333   (4403) от 04.09.2025
-
-Трансформеры 3: Тёмная сторона Луны / Transformers: Dark of the Moon (2011) BDRip [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американское правительство долго скрывало тайну первой высадки человека на Луну. Оказывается, 20 июля 1969 года совершив посадку на Луне, американские астронавты обнаружили разбившийся корабль автоботов и останки роботов. Программу засекретили, но спустя сорок лет она вновь всплыла, как камень преткновения в отношениях людей и автоботов. Сем Уитвики и его новая подружка (   Читать дальше...   )Производство: США / Di Bonaventura Pictures, Hasbro Inc., Paramount PicturesЖанр: фантастика, боевик, приключенияРежиссер: Майкл БэйАктеры: Шайа ЛаБаф, Роузи Хантингтон-Уайтли, Джош Дюамель, Джон Туртурро, Патрик Демпси, Фрэнсис МакДорманд, Кен Жонг, Алан Тьюдик, Джон Малкович, Тайриз ГибсонПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57708ABB4E6237D9526EBB8E40EDBF01254E2AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816019   (4402) от 04.09.2025
-
-Pendulum - Inertia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass, Electronic Rock>
+Maria Oswen - Nu Woman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4402.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Driver [00:03:27]
-02. Come Alive [00:03:53]
-03. Save The Cat [00:02:52]
-04. Archangel [00:04:03](   Читать дальше...   )Жанр: Drum & Bass, Electronic RockПродолжительность: 00:54:26
+01.  Be the Woman You Deserve to Be (3:05)
+02.  Did I Just Seduce You (4:00)
+03.  Give Me Your Energy (3:12)
+04.  Tantra (3:12)(   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:47:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11E7A826EB980E3DDA6BEBA57F0DDC28ABF925B2
+magnet:?xt=urn:btih:BEF4D38999E02385AA33DBF456649BA2B448CB51
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,28 +505,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816281   (4401) от 04.09.2025
+###  Публикация: 1815953   (4780) от 01.09.2025
 
-Rick White - Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Антон Чехов | Егерь. Последняя могиканша. Герой-барыня (2025) [MP3, Вадим Бочанов и др.]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4401.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Still A Radio (3:01)
-02.  Life In The Maze (2:10)
-03.  Contact (2:48)
-04.  The Cat (2:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:02
+Серия/Цикл: Театр у вас дома.
+Антон Павлович Чехов (1860–1904) – один из величайших писателей и драматургов русской литературы, тончайший психолог, ироничный юморист.
+Инсценировка рассказов «Егерь». «Последняя могиканша». «Герой-барыня» из сборника «Пёстрые рассказы» (1886).
+(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:38:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5276CD52D299E7B4EE350A13BA6150BA094DEB52
+magnet:?xt=urn:btih:86F50226C2612BEAE16B1E0C3F648C60C65A1590
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,28 +534,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816275   (4400) от 04.09.2025
+###  Публикация: 1815874   (4779) от 01.09.2025
 
-Honeybear the Band - I Was Wrong (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Шрифты - MyFonts - Byker [TTF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4400.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Devotion (3:39)
-02.  Work In Progress (2:52)
-03.  If You Were Mine (3:09)
-04.  Everyone's Invited (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:03
+Byker — геометрический гротеск, сочетающий в себе технологии и формы, созданные вручную. Символы создаются цифровым способом на основе технической сетки и накладываются на них вручную созданными кривыми. Сочетание этих процессов создаёт мощный и органичный шрифт, точный, с тонкими движениями и индивидуальностью, но без излишней строгости.Формат: TTFПоддержка кириллицы: Отсутствует
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBF8B573B9B8EC2B1CA1351F3EBFC53B288C488F
+magnet:?xt=urn:btih:C098016457ABB659F4FF85E2EB81FB794D7A1BB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,28 +560,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816282   (4399) от 04.09.2025
+###  Публикация: 1815837   (4778) от 01.09.2025
 
-Sebastian Rider - Gonna Know My Name (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Николай Леонов, Алексей Макеев | Черная кошка. Усадьба заложников. Алмазная невидимка (2025) [MP3, Дмитрий Чепусов]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4399.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  I've Been Bad (2:46)
-02.  I Got Mine (3:14)
-03.  Soul Train (3:05)
-04.  Don't Want No Trouble (4:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:29
+Легендарный детективный тандем Леонов – Макеев.
+Миллионер Петр Вершинин удачлив во всем: у него прибыльный бизнес, молодая красивая жена, надежные друзья, редкая картинная галерея в собственном особняке под Сочи. Неожиданно для миллионера наступает черная полоса. В усадьбе случается пожар, гибнет часть коллекции, неизвестный стреляет в окно дома, покушаясь на жену (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 11:54:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1740CE5ACB760BF236CB25195A142DB48100CCA
+magnet:?xt=urn:btih:44AD48ADAEDEC7E3C872D8CE48D52937E5172C2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,28 +587,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816270   (4398) от 04.09.2025
+###  Публикация: 1815933   (4777) от 01.09.2025
 
-Bluebirds - You Take My Blues Away (The original live recordings) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+No Bull - Rock N Roll Remains Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4398.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Keep On Loving Me Baby (The original live recordings) (3:38)
-02.  You Take My Blues Away (The original live recordings) (2:46)
-03.  She's Tough (The original live recordings) (3:09)
-04.  Just Because (The original live recordings) (3:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:02
+01.  Overdrive (3:25)
+02.  Straight up Rough (3:17)
+03.  Rock Away Your Ills (4:20)
+04.  Blown a Fuze (5:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4751372EF869907630D13416134B9D9D9924C2D
+magnet:?xt=urn:btih:0F4ECE4C34D914EEF7E66E3B477E8553DFCE425A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,28 +616,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816286   (4397) от 04.09.2025
+###  Публикация: 1815863   (4776) от 01.09.2025
 
-The Bonnevilles - Age Of Monsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Шрифты - MyFonts - Quickpen [OTF, TTF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4397.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Not a Penny for the Earl (3:25)
-02.  Age of Monsters (5:00)
-03.  Two Big Fizzies (2:26)
-04.  The Bais (2:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:51
+Quickpen — непринуждённый и лёгкий шрифт, созданный для воссоздания уверенного, быстро набросанного почерка фломастером или кистью. В OpenType лигатуры и контекстные альтернативы строчным буквам придают естественность рукописному, а росчерки добавляют немного изящества. Идеальный шрифт для любого дизайна, который не воспринимает себя слишком серьёзно.Формат: OTF, TTFПоддержка кириллицы: Отсутствует
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5E763B703ABE599D9B6D3883CFB71A08E3F34CF
+magnet:?xt=urn:btih:FC72D3F6329802C29F785C55BD4A943F6577FA0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,28 +642,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816289   (4396) от 04.09.2025
+###  Публикация: 1815868   (4775) от 01.09.2025
 
-Tim Erickson - Waiting On The Light (Artist's Cut) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Иоганн Вольфганг Гёте | Фауст (Сделка) (Радиоспектакль) (1986) [MP3, Михаил Козаков и др.]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4396.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Fly Away (4:01)
-02.  Waiting On The Light (4:39)
-03.  Too Many Ghosts (2:58)
-04.  Stranger Things Have Happened (4:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:35
+Серия/Цикл: Из архива «Фирма Мелодия».
+Иоганн Вольфганг Гёте (1749–1832) – величайший немецкий поэт и мыслитель, автор бессмертного «Фауста».
+Фауст за исполнение всех своих желаний продает душу дьяволу, сделка с чертом для философа Фауста – героя трагедии, умудренного опытом и разочаровавшегося в науке старца, – возможность пройти заново круг жизни, понять ее вечно (   Читать дальше...   )Жанр: Зарубежная литература, классика, трагедияИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:48:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC55D010DCECE45B6D26AE49E76D9934C8D4445B
+magnet:?xt=urn:btih:1E0A8EA2D84820EC77D473D95981F95DF58C504B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815855   (4774) от 01.09.2025
+
+Анатолий Уреевский | Аквариум (1958) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4774.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли 8 коротких поучительных рассказов для детей младшего школьного возраста.
+Иллюстрации П.П. Давыдова.Жанр: РассказИздательство: Новосибирское книжное издательствоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10AE29558840BF6449729F69FF990C3D70ECDD05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815829   (4773) от 01.09.2025
+
+Linkin Park - From Zero (Deluxe Edition) (2024) U.S., 093624834908, 2025, 2xCD [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Up From The Bottom * (3:03)
+02. Unshatter * (3:16)
+03. Let You Fade * (3:29)
+04. The Emptiness Machine (Live) * (3:18)(   Читать дальше...   )Тип издания: Digisleeve, Deluxe EditionЖанр: Alternative / Nu-Metal; Alternative RockПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F182A36F89F53F7FD89E303F4E164551A666A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

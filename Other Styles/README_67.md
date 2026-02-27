@@ -1,3 +1,61 @@
+###  Публикация: 1015473   (774982) от 10.05.2016
+
+Gandalf - All is One - One is All (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Prelude - The Secret Inside
+02.	From The Depth Of The Earth
+03.	Starshine Of Ever
+04.	Interlude - One Thought(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E9C92ADE8B4EF4A6A2789414F9C6BA61F074A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212862   (774460) от 14.03.2018
+
+Magick Numbers - Dreaming of Oceans (2018) [MP3|320 Kbps] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:10)
+02. Zero-X (04:00)
+03. Fading From View (01:33)
+04. Respire (03:49)(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8AD5F41AA5170AE70B97351FEFABD1A11133A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 659765   (774419) от 23.05.2013
 
 VA - Лучшие песни из кинофильмов (2003 - 2004) 4 CD [APE|Lossless|image+.cue] <Soundtrack>
@@ -687,64 +745,6 @@ Nadama - Waves of Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1284F39925C436E563572C3528F3B21F060B6A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392124   (769371) от 25.06.2020
-
-Khruangbin - Mordechai (2020) [FLAC|Lossless|tracks + .cue] <Reggae, Funk, Neo-psychedelia, World>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Class (04:47)
-02. Time (You And I) (05:42)
-03. Connaissais De Face (04:21)
-04. Father Bird, Mother Bird (03:05)(   Читать дальше...   )Жанр: Reggae, Funk, Neo-psychedelia, WorldПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6F4C3F2B78E37D13A06E5C2F225C3DE080FFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125272   (768808) от 14.04.2017
-
-Caroline Reese and the Drifting Fifth - Tenderfoot (2017) [FLAC|Lossless|tracks] <Country,Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Unlocked (3:48)
-02 - Airshow (3:35)
-03 - New Tricks (2:31)
-04 - Snake Eyes (3:06)(   Читать дальше...   )Жанр: Country,FolkПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F5447EAFF0C709E1DA3525325FD2CDABDC509A
 ```
 
 https://mybot314.ru/tekegram_catalog/

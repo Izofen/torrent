@@ -1,3 +1,67 @@
+###  Публикация: 1562044   (512509) от 07.07.2022
+
+Black Mango - Quicksand (2022) [FLAC|Lossless|WEB-DL|tracks] <African Blues Rock, Trip-Hop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bakeina's Dream (00:04:45)
+02 - Golden Cage (00:04:22)
+03 - Quicksand Blues (00:05:29)
+04 - Mad Girl Lament (00:04:46)(   Читать дальше...   )Жанр: African Blues Rock, Trip-HopПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00952DF2E4E6A694C49814C3CEB7297494F30038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536792   (512278) от 20.08.2012
+
+Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, Darkwave, Alternative, Female vocalists>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fight Like A Girl (5:24)
+02.Time For Tea (4:02)
+03.4 O'Clock Reprise (1:21)
+04.What Will I Remember? (2:54)
+05.Take The Pill (5:17)
+06.Girls! Girls! Girls! (6:14)
+07.I Don't Understand (2:12)
+08.We Want Them Young (2:47)
+09.If I Burn (5:31)
+10.Scavenger (6:59)(   Читать дальше...   )Жанр: Dark Cabaret, Gothic, Darkwave, Alternative, Female vocalistsПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 537626   (511469) от 21.08.2012
 
 Various artists - The Muppets Original Motion Picture Soundtrack (2011) [MP3|320 кб/с]<Soundtrack>
@@ -721,68 +785,6 @@ VA - Sacred Ground - A Tribute To Mother Earth (2005) [MP3|320 кб/с]<Native A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FA3F30A0A8C6B3D3A041E558DB36B1D33A3D960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539369   (504867) от 28.08.2012
-
-Mandala - 3 albums (2003-2009) [MP3|160-320 кб/с]<Relax, Meditative, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504867.jpg" />
-</div>
-
-
-###  Подробнее
-
-(30:03) 1. Raga Jhinjhoti
-(27:30) 2. Raga DarbariЖанр: Relax, Meditative, InstrumentalПродолжительность: 00:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9AE7003FFBB5955B30AB2D377EFB9579781A1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538375   (504856) от 28.08.2012
-
-Red Indian Chill - Shaman (2007) [MP3|~245 кб/с (V0)]<Native American, Ethno, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Medicine Power
-2. Wilderness
-3. Chief White Bears Trance Dance
-4. Red Indians Right To Live
-5. Wolfsong
-6. Choctaw Shadownese Song
-7. Medicine Energy PowWow
-8. Mother Earths Tartaruga Song
-9. Medicine Mans Other Room
-10. Hinayana Vision(   Читать дальше...   )Жанр: Native American, Ethno, Ambient, New AgeПродолжительность: 01:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF78188E3092BF3BC1A6537B68EB49CE7B57820F
 ```
 
 https://mybot314.ru/tekegram_catalog/

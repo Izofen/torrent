@@ -1,104 +1,22 @@
-###  Публикация: 574455   (375453) от 12.11.2012
+###  Публикация: 1415496   (376686) от 12.10.2020
 
-Илья Мельников, Александр Ханников | Разведение и выращивание раков [2012] [PDF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375453.jpg" />
-</div>
-
-
-###  Подробнее
-
-В дачных и приусадебных прудах можно успешно разводить раков быстрорастущих видов, как широкопалый и длиннопалый. Обыкновенные речные раки обитают в реках, озерах, прудах, поймах, ручейках с чистой мягкой водой, на глинистом, песчаном, торфяном, но не каменистом дне. Благоприятная температура воды для рака не ниже 12 градусов Цельсия.
-
-Глубина водоема – от 1,5 до 6 – 15 м. Наилучшей средой для обитания раков является береговая линия водоема с затоками, где хорошо произрастает водная растительность.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:428FCFC9330FAFBC9276D0D29F410679EE043E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573948   (375452) от 12.11.2012
-
-Лента 407 / Tape 407 (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выжившие пассажиры самолета, следовавшие рейсом из Нью-Йорка в Лос-Анджелес, потерпевшие авиакатастрофу, попадают в так называемую Зону 407, где под покровительством правительства проводятся различные тайные эксперименты. Героям предстоит столкнуться с результатами одного из таких экспериментов и заснять весь произошедший с ними кровавый ужас на бытовую видеокамеру.Жанр: Ужасы, Фантастика, ТриллерРежиссер: Дейл Фабригар, Эвертт ВалиннАктеры: Эбигейл Шрайдер, Саманта Лестер, Джимми Лайонс, Мелани Мунт, Брендан Патрик Коннор, Кеннет Гарсиа, Саманта Слойан, Джуд Прест, Саванна УордПеревод: Любительский (одноголосый)Продолжительность: 01:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F30BEEC60226CC3A91DC9FE4EC1E5974B130266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574042   (375451) от 12.11.2012
-
-Artworks by Angelo Batti [Графика]
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artworks by Angelo Batti
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86DAB8E3C1CFCB7C624B38BA8D5A75F4293FBB12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573716   (375450) от 12.11.2012
-
-Питер Пэн 2: Возвращение в Нетландию / Return to Never Land (2002) [1080p] Blu-Ray
+PrivaZer 4.0.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Мультфильмов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375450.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Венди выросла, теперь у неё свои собственные дети и каждый вечер она рассказывает им истории про Питера Пэна, мальчика, отказавшегося становиться взрослым. Упрямая 12-летняя дочь Венди, Джейн, не имеет ни малейшего желания слушать всю эту ерунду.
-Именно поэтому Капитан Крюк использует девочку в качестве заложника в войне против своего главного врага. Питер Пэн, Тинкер Белл и Потерянные Мальчики прибывают к ней на помощь; однако, даже они не могут заставить поверить Джейн в волшебный мир. Если она не верит, то значит она не может летать, а другого пути для возвращения домой нет.
-Всё усугубляется тем, что без веры Джейн в фей, Тинкер Белл может умереть. Когда фея медленно начинает исчезать, Питер предпринимает всё возможное, чтобы спасти девочку от безжалостного Капитана Крюка и доказать ей, что с верой в волшебство и крепкой дружбой нет ничего невозможного.Жанр: Рисованная анимацияРежиссер: Робин Бадд / Донован КукПерсонажи: Харриет Оуэн, Блэйн Уивер, Кори Бертон, Джефф Беннетт, Кэт Сауси, Эндрю МакДана, Роджер Рис, Спенсер Бреслин, Брэдли Пирс, Куинн БесвикПеревод: ДублированныйЯзык субтитров: Английские, Русские, Украинские, Польские, Чешские, Венгерские, Румынские, Греческие, Словацкие, АрабскиеПродолжительность: 01:12:32
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7090FA07A6DE2842DC6290AC9A6B568EC3506ADC
+magnet:?xt=urn:btih:ECEF2B205B10CBE53536EE44B5A8C439C15BA227
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 573883   (375448) от 12.11.2012
+###  Публикация: 1415407   (376685) от 12.10.2020
 
-Никос Зервас | Цикл "Наука побеждать": Дети против волшебников / Кадеты точка RU / Греческий огонь [2012] [MP3]
+VA - Italo Disco - The Lost Legends Vol. 29 (2019) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375448.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В основу бестселлера известного греческого писателя Никоса Зерваса легла невыдуманная история о детях, одержавших победу над Всемирной лигой колдунов. За напряженными схватками, погонями и сюжетной остротой этого, по признанию экспертов авторитетной Европейской книжной выставки "Месогиа-логотехниа", "лучшего подросткового боевика последнего десятилетия", открывается извечная тема противостояния Добра и Света злу и тьме.Жанр: Фэнтези
+01. Christina M. - Mirror Of My Soul [00:05:57]
+02. Maurizio Serafini - Oha...Oha... [00:04:05]
+03. Jimmy Mc Foy - I Can't Stay Without You [00:08:00]
+04. C.O.M.A. - Speed Up [00:03:41](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A339D784CF7CC60D99FD75E75AAFFE090CE4672E
+magnet:?xt=urn:btih:252643EAC943931029B6050231E5726A2C6779F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,26 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 574334   (375447) от 12.11.2012
+###  Публикация: 1415379   (376684) от 12.10.2020
 
-Ненависть / La Haine (1995) BDRip [H.264/1080p]
+VA - The Waiting Time (2020) [MP3|320 Kbps] <Funk, Soul, Blues, Jazz>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_375447.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм, шокирующий своей откровенностью в изображении жизни современной молодежи. Что делать, когда полиция жестоко расправляется с твоим другом? Что делать, когда ненависть разрывает тебя на части? Что делать, когда в душе лишь жажда мести, а в твоих руках пистолет? Ненависть порождает ненависть.
- Мальчишка-араб по имени Абдель сильно пострадал от парижского полицейского (   Читать дальше...   )Производство: Франция / Canal+, Cofinergie 6, Egg PicturesЖанр: Драма, КриминалРежиссер: Матьё КассовицАктеры: Венсан Кассель, Юбер Кунде, Саид Тагмауи, Карим Бельхадра, Франсуа Леванталь, Эдуард Монтут, Бенуа Мажимель, Венсан Линдон, Карин Виар, Петер КассовицПеревод: Многоголосый закадровый, Одноголосый закадровыйСубтитры: Русский, АнглийскийПродолжительность: 01:37:31
+001. Kelly Finnigan - I'll Never Love Again
+002. Joshua Morse - You Got Me
+003. The Jacksonians - Don't Be A Fool
+004. Bloodstone - Who Has The Last Laugh Now(   Читать дальше...   )Жанр: Funk, Soul, Blues, JazzПродолжительность: 07:55:30
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A798BFD1361518E6A2298D280B8706BEF013459A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -159,25 +82,205 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 573927   (375445) от 12.11.2012
+###  Публикация: 1415530   (376683) от 12.10.2020
 
-[Wallpapers] Обои для Рабочего стола - Маша и медведь (Часть 2)
+File & Image Uploader 8.0.2 + Skins [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376683.jpg" />
+</div>
+
+
+###  Подробнее
+
+File & Image Uploader - удобная и просто незаменимая программа для тех, кто часто загружает файлы, картинки и видео на файловые и онлайновые хранилища. В базе данных программы более 250 самых известных файлообменных ресурсов. Поддерживается работа с прокси, премиум аккаунтами, есть возможность параллельной загрузки, ограничение скорости и многие другие функции.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592915E78F76F214C67070C5E7E4E9966BDF8E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415459   (376682) от 12.10.2020
+
+Цвета Вьетнама / Colors of Vietnam (2019) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вьетнам - одна из самых ярких стран, в которых я когда-либо был. От жёлтых рисовых полей Сапы до синих рыбацких лодок в Дананге и красных палок инцеза в Хюэ. От одежды этнических меньшинств в горах до огромного разнообразия фруктов на городских рынках и ярких фонарей Хойана. Этот фильм представляет собой краткое изложение моей 21-дневной поездки по северному и центральному (   Читать дальше...   )Производство: ВьетнамЖанр: Документальный, видовойРежиссер: Пау Гарсия ЛайтаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252E47964684E099A3FD130A623A0AD0E40BE92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415668   (376681) от 12.10.2020
+
+Эль Йерро / El Hierro (2019) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это 12-дневное путешествие по самому неизвестному острову Канарских островов и одному из самых красивых островов. Задуманный как 24-часовой тур, начинается с восхода солнца над вулканом Тейде на Тенерифе и проходит через самые характерные анклавы Эль-Йерро, заканчивая серией ночных сцен, где вы видите ясный Млечный Путь без светового загрязнения. Эль Йерро - это (   Читать дальше...   )Производство: ИспанияЖанр: Документальный, видовойРежиссер: Хуан Карлос КортинаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7640535990A053C729B58CAD110052CC66351E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574386   (376679) от 12.11.2012
+
+VA - New Club-11 (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Becker feat. Selecta - In My Dreams (Original Mix)
+02. Euphoria DJ's - I Am Free (Original Mix)
+03. Movetown feat. Ray Horton - Here Comes The Sun (Club Edit)
+04. Tosch feat. Pit Bailay - Can`t Touch You Adrienne (Club Mix)
+05. Andrew Rayel feat. Jano - How Do I Know (Original Mix)
+06. Exostate feat. Jeza - Easily I Fell (Ferry Tayle 'The Wizard' Remix)
+07. Movetown feat. Ray Horton - Here Comes The Sun (Norman Netro Edit)
+08. TyDi feat. Kerli - Glow In The Dark (Ryan Mendoza Remix)
+09. Francesco Diaz & Shena Winchester & Young Rebels - Addicted To My Dreams (Club Mix)
+10. Andrew Rayel feat. Jano - How Do I Know (Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:4034
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:235FB40355A7C0DA055FACA546DC2492EAA3950A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573995   (376675) от 12.11.2012
+
+VA - Destination Ibiza: Deep House Selection (2012) [MP3|320 кб/с]<Deep House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376675.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Patrick Le Blanque - Paloma Alta - Fashion Night Mix (3:58)
+2. Le Marquise - Marquise (3:46)
+3. Gray Led - Equalixet - V6 Mix (3:46)
+4. Disko Deep - Miracle Sac Beat (3:36)
+5. 6th Floor Groove - Incontrade (3:46)
+6. Philippe La Croix - Cryps and Crime - Le Maison Mix (3:50)
+7. Deep Rhythm Bass - Jungle Percussionist - Deep Mix (3:43)
+8. Deep Lovers - Compass Deep (3:42)
+9. Wonny Jalker - J Walker - Percussive Mix (3:56)
+10. Mondial Groove - Muscle Storm (3:50)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E126532C702A27261CE3CD2C5506CA316AC21245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574267   (376674) от 12.11.2012
+
+VA - Sense of Vocal Trance Volume 10 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376674.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Sense of Vocal Trance Volume 10 (2012)
+Год: 2012
+Жанр: Vocal Trance
+Продолжительность: 02:58:52Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Maksim Palmaxs feat. Simon Latham - Falling (Original Mix)
+002. Mike Koglin feat. LCK - Varana (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67403E65B30D060AFB15E35F1CF96557EFE71A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574490   (376672) от 12.11.2012
+
+Best HD Wallpapers Pack (12.11.12) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375445.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для Рабочего стола - Маша и медведьРазрешение файлов: 1920х1080
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20AABAE30F76D15AEC0FFF4F3027EDF31255B0FB
+magnet:?xt=urn:btih:57C31115A0631E2EED57F6E528EFB11C696D441A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,34 +288,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 574301   (375443) от 12.11.2012
+###  Публикация: 574437   (376671) от 12.11.2012
 
-Amy Winehouse - At The BBC (2012) [FLAC (tracks+cue)|Lossless]<Jazz, Soul>
+Truth - Machine (2008) [MP3|320 кб/с]<Hard Rock | Blues-Rock>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_375443.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Know You Now (Live At Leicester Summer Sundae 2004)
-02. Fuck Me Pumps (Live At T In The Park 2004)
-03. In My Bed (Live At T In The Park 2004)
-04. October Song (Live At T In The Park 2004)
-05. Rehab (Live At Pete Mitchell 2006)
-06. You Know I'm No Good (Live At Jo Whiley Live Lounge 2007)
-07. Just Friends (Live At Big Band Special 2009)
-08. Love Is A Losing Game (Live At Jools Holland 2009)
-09. Tears Dry On Their Own (Live At Jo Whiley Live Lounge 2007)
-10. Best Friends, Right? (Live At Leicester Summer Sundae 2004)(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 00:48:15
+01. Freedom
+02. Respect
+03. Over And Over
+04. Generation Stupid
+05. Machine
+06. Hold Out
+07. Stand In Line
+08. Angel
+09. Can I Be Forgiven
+10. Big Al(   Читать дальше...   )Жанр: Hard Rock | Blues-RockПродолжительность: 00:59:58
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:FCFA019B9ACD9E73EFBFAB599C2AAD232C72AF37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,25 +323,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 251452   (375421) от 30.10.2010
+###  Публикация: 574263   (376669) от 12.11.2012
 
-Шведская история любви / En kärlekshistoria (1970) [H.264] DVDRip
+VA - Vocal Trance Temptation Volume 10 (2012) [MP3|320 кб/с]<Vocal Trance>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375421.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Романтическая драма о возвышенной первой любви двух подростков-идеалистов и противоречии с миром взрослых, погрязших в ежедневных проблемах и разуверившихся в жизни. Он подрабатывает в гараже помощником механика и ездит на мопеде. Она ничего не делает, только красит губы и прочее. Они курят до посинения и боятся заговорить друг с другом. Но, пройдя через мордобой, (   Читать дальше...   )Жанр: Мелодрама, ДрамаРежиссер: Рой Андерссон / Roy AnderssonАктеры: Анн - Софи Килин Рольф, Сольман Анита, Линдблом Бертиль, Норстрём Леннарт, Теллфельдт Маргрет, Вейверс Арни, Андерссон Maud, Backéus, Verner Edberg, Элси ХолмПеревод: Многоголосый закадровый + Оригинальный шведскийЯзык субтитров: РусскиеПродолжительность: 01:54:18
+VA - Vocal Trance Temptation Volume 10 (2012)
+Год: 2012
+Жанр: Vocal Trance
+Продолжительность: 02:59:21Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
+002. Masoud feat. Nicole McKenna - Fix The Broken (Original Mix)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:516D79B4730752071A8381678153AE158604C0CD
+magnet:?xt=urn:btih:05B62498D290A85C7500E8E4876F72F0A06BAD66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,28 +355,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 251575   (375410) от 30.10.2010
+###  Публикация: 574403   (376665) от 12.11.2012
 
-Юрий Антонов - Платиновая коллекция (2002) 2CD [APE|image + .cue] <Поп, эстрада>
+VA - Soul of Ibiza Volume 46 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 
->>Pop
->>Советская эстрада, Ретро (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375410.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.От печали до радости (04:09)
-02.Крыша дома твоего (02:35)
-03.Двадцать лет спустя (03:35)
-04.Вот как бывает (03:20)(   Читать дальше...   )Жанр: Поп, эстрадаПродолжительность: 02:40:51
+001. Pillow & Oen Bearen - Until Hell Freezes Over (Original Mix)
+002. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
+003. Rafael Frost - Channel 4 (Original Mix)
+004. Ralphie B - Icarus
+005. Rave Channel - Illusion (Original Mix)
+006. Ronski Speed, Stoneface & Terminal - I Didn`t Know I Was Looking For Love (Club Mix)
+007. Ruben De Ronde & Aelyn - She's Already Gone (ProgressiveR Remix)
+008. Santerna feat. Vadim Kapustin - I Believe In Life (Solis & Sean Truby Remix)
+009. Sergey Nevone & Simon O'Shine - Balearic Island (Original Mix)
+010. Simone Anes feat. Abigail Bailey - Love Is A Battlefield (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:55:12
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:8EADA4311FBC0E37C0FFCA2D4A036E697FEB49B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -275,26 +390,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575690   (375408) от 10.09.2022
+###  Публикация: 720262   (376659) от 09.11.2013
 
-Живая еда с Сергеем Малозёмовым (10.09.2022) SATRip [H.264]
+Реаниматор, Невеста реаниматора, Возвращение реаниматора / Re-Animator, Bride of Re-Animator, Beyond Re-Animator (1985/1989/2003) 2*DVD9 + 2*DVD5
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375408.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376659.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Заготовки на зиму: сколько соли и сахара содержится в этих банках и какие рецепты используют диетологи? Зачем огурцы опускают в колодцы и речки и какие на вкус те, что приготовлены в тыкве? Можно ли сделать пастилу из шпината и стоит ли замораживать целые пироги?
-Как нежный десерт — пирожное «Павлова» — стал яблоком раздора между странами, правда ли воздушное лакомство (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:40:52
+Производство: Испания, Fantastic Factory (Filmax), FilmaxЖанр: Ужасы, фантастика, комедияРежиссер: Брайан Юзна/Brian YuznaАктеры: Джеффри Комбс, Томми Дин Мюссе, Джейсон Бэрри, Барбара Элоррьета, Эльза Патаки, Анхель Плана, Хавьер Сандоваль, Сантьяго Сегура, Лоло Эрреро, Энрике Арсе, Нико Байксас, Симон Андреу, Хоакин Ортега, Ракель Гриблер, Даниэль Ортис и др.Перевод: Профессиональный (многоголосный, закадровый)Язык субтитров: РусскийФормат: DVD5Продолжительность: 01:32:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D473E26C5953977A3270A70BE5074493D9E07DB
+magnet:?xt=urn:btih:AFB317AF174F24F47C971D7CC6067234F403447F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,202 +416,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575576   (375407) от 10.09.2022
+###  Публикация: 720432   (376643) от 09.11.2013
 
-Zachary Breaux - Uptown Groove (1997) Zebra Records [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakfast at the Epiphany [0:16]
-02. Cafe Reggio [6:06]
-03. I Told You [4:30]
-04. Never Can Say Goodbye [5:06](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1C65F12C24033E95D61034F699318654297D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575267   (375406) от 10.09.2022
-
-Bloodbath - Survival Of The Sickest (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zombie Inferno (04:07)
-02. Putrefying Corpse (feat. Barney Greenway of Napalm Death) (03:52)
-03. Dead Parade (04:39)
-04. Malignant Maggot Therapy (03:05)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94580E6AA922BB5837B12B3A7F79C7939B99EE26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575259   (375405) от 10.09.2022
-
-Fallujah - Empyrean (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Technical Deathcore, Progressive Death Metal, Atmospheric>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bitter Taste Of Clarity (4:50)
-02. Radiant Ascension (4:03)
-03. Embrace Oblivion (5:55)
-04. Into The Eventide (6:02)(   Читать дальше...   )Жанр: Technical Deathcore, Progressive Death Metal, AtmosphericПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F1B01B4C64E47A33C26B54385FA7658AF25D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575461   (375404) от 10.09.2022
-
-Miami - Sexy, Wet & Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Радио (Скит) [00:00:17]
-02. Оверсайз [00:02:59]
-03. Домой [00:02:22]
-04. Ведомый [00:02:22](   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF9B8C78D437D976F59F607CFE53F985E6DCA90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575439   (375403) от 10.09.2022
-
-Catherine Russell - Send For Me (2022) Dot Time Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Did I Remember [3:27]
-02. Send for Me [4:44]
-03. At the Swing Cats Ball [3:04]
-04. Make It Last [4:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFFEC2C85CFA7586D6FB652048F9CDEB0EEC6FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575502   (375402) от 10.09.2022
-
-Smash Into Pieces - Disconnect (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disconnect (3:02)
-02. Reckoning (3:58)
-03. Valhalla (3:22)
-04. Freight Train (3:05)(   Читать дальше...   )Жанр: Alternative Rock, Modern Rock, ElectronicПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01AC7CDCAF23C827C21E20B350AC38C4F681537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834707   (375401) от 26.10.2014
-
-VideoHive - Dual Reality - 180162 [AEP]
+VideoHive - UnitedMotions - 748436 [AEP]
 
 >>Проекты
->>Слайдшоу (проекты)
+>>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375401.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376643.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Двойная реальность" - проект в духе "Шизофрения".
-Превью, файл помощи и муз. трек - в раздаче.
-
-От автора проекта: "Dual Reality" is created to be really easy customized. The flares and particles comes from Videocopilot’s Optical flares and Trapcode Particular but I included the pre-rendered version in the file so YOU DON ’T NEED ANY (   Читать дальше...   )Формат: AEP
+Формат: AEP
+Проект промо ночного клуба/дискотеки/вечеринки.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB60E0862BAF2A5961C57802D7AAB030811C597B
+magnet:?xt=urn:btih:8BCE760198815214B5D31979C318665DAF5AEE18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,27 +443,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575654   (375400) от 10.09.2022
+###  Публикация: 1175611   (376640) от 19.10.2017
 
-Сара Блэдэль | Зеленая пыль (2022) [MP3, Юлия Яблонская]
+Rainforest - Motion (2016) EP [MP3|320 kbps] <Drum'n'Bass>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375400.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376640.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Всем любителям увлекательных скандинавских детективов, сильных героинь и подробных производственных романов, приоткрывающих тайны работы полиции: «Зелёная пыль», первый роман датской писательницы Сары Блэдель в целой серии детективов о приключениях Луизы Рик.
-
-В парке находят труп молодой женщины – она была задушена. На задворках роскошной гостиницы Копенгагена убивают (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:35:22
+01. Beloved (6:15)
+02. Canton Dub (4:36)
+03. Once (5:55)
+04. Slow Motion (6:45)(   Читать дальше...   )Жанр: Drum'n'BassПродолжительность: 00:28:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E76690E0B4A644583079F6A13D5A589ED16655B5
+magnet:?xt=urn:btih:884EF9FB3663A2F1063D483374D86707079CF91B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,28 +472,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575552   (375398) от 10.09.2022
+###  Публикация: 1175631   (376639) от 19.10.2017
 
-Slade - The Hucknall Miners' Welfare Club (2022) Live [MP3|320 Kbps] <Rock>
+VA - Luxury Brazilian Cafe: Cream of Latino Lounge (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vinicious - Ipanema 03:16
+02. Sofia - Alegria 02:53
+03. Gilberto Santos - Que Tal 03:09
+04. Jolly Paco - Copacabana 02:53(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A90045375BF83D8F9EF303CF39F0FBAE4B1D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175735   (376638) от 19.10.2017
+
+CoolUtils Total Audio Converter 5.2.0.157 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Audio Converter - мощный конвертор всех музыкальных форматов файлов и возможностью CD-риппинга. Программа поддерживает теги ID3 и CUE файлы, преобразовывает аудиотреки без создания промежуточного WAV файла, работает в пакетном режиме, имеет высокую скорость работы, по завершении процесса позволяет проиграть файл, а наличие понятного русскоязычного двупанельного (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171155D0AF23BCA59C4CD5EF91B38B77A07870CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175658   (376637) от 19.10.2017
+
+Triosphere - 3 альбома (2006-2014) [MP3|320 кб/с]<Power/Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375398.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376637.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dizzy Mamma (Live at the Hucknall Miners' Welfare Club) [05:15]
-02. Night Starvation (Live at the Hucknall Miners' Welfare Club) [03:52]
-03. Take Me Bak 'Ome (Live at the Hucknall Miners' Welfare Club) [05:16]
-04. Wheels Ain't Coming Down (Live at the Hucknall Miners' Welfare Club) [04:11](   Читать дальше...   )Жанр: RockПродолжительность: 01:10:33
+Список альбомов:
+2006 - Onwards (Japanese Edition)
+2010 - The Road Less Travelled (Japanese Edition)
+2014 - The Heart Of The MatterЖанр: Power/Progressive MetalПродолжительность: 02:54:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:330B5BA5463804C61CEF263FD295377307670114
+magnet:?xt=urn:btih:B2AB01274055FB9018A4C071A18CCB807A479F92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,28 +556,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575504   (375394) от 10.09.2022
+###  Публикация: 1175601   (376636) от 19.10.2017
 
-Taboo - Taboo (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Hard Rock>
+VA - Radio ParadokS – Vocal Trance (2017) [MP3|256-320 Kbps] <Trance, Vocal Trance>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375394.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376636.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Flames (4:19)
-02. Bleeding (3:35)
-03. Learning to Breathe (4:35)
-04. Demons (3:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:58
+01. Cosmic Gate & JES – If Not Now (Album Mix)
+02. Somna – Believer (Extended Mix)
+03. Sunlounger & Eden Iris – Dancing With a Ghost (Club Mix)
+04. Carl Daylim feat. Rita Raga – Not Here To Stay (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 10:12:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E64AF95C49E26D4A622FC245F0C781B98DB9F23
+magnet:?xt=urn:btih:C1D71C06531B26A0DF140DC12D70DA57B0CD44D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -591,27 +585,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575689   (375393) от 10.09.2022
+###  Публикация: 1175714   (376635) от 19.10.2017
 
-Главная дорога (10.09.2022) SATRip [H.264]
+VA - Jazz Ladies (2006) 3CD, Weton-Wesgram [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376635.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Dinah Washington - Mad About the Boy [02:49]
+02.Nina Simone - Ain't Got No,I Got Life [04:38]
+03.Billie Holiday - Carelessly [03:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DBAC9566B5408E25726765C1BE8C85BF1B782A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175603   (376634) от 19.10.2017
+
+Pennygiles - Momentary Switch/Attack Of The Jazzy Goth (2012) [MP3|320 kbps] <Drum'n'Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Momentary Switch (5:57)
+02. Attack Of The Jazzy Goth (7:19)Жанр: Drum'n'BassПродолжительность: 00:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05FC3197BEF4CA220AA74D30534BC5D19D8AF9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175652   (376633) от 19.10.2017
+
+Джованни Гуайта | Шейх Файез эль-Гусейн о геноциде армян: «Ислам непричастен к их деяниям!» (2007) [FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые публикуемая на русском языке книга «Резня в Армении» написана бедуином, арабом из Сирии Файезом эль-Гусейном. Очевидец геноцида армян во время Первой мировой войны в Османской империи, Файез эль-Гусейн записал свои воспоминания в 1916 г., когда еще свежи были в памяти подробности увиденной им трагедии.
+Как гуманист он считал своим гражданским долгом свидетельствовать (   Читать дальше...   )Жанр: История, этнографияФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B2E593CD746BD5557085C0E0CED556C7F58DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175740   (376632) от 19.10.2017
+
+Джованни Гуайта | 1700 лет верности. История Армении и ее Церкви (2002) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга рассказывает об истории Армянской Апостольской Церкви, показывая ее через призму истории армянского народа. Она охватывает период от возникновения армян и до наших дней. Автор дает понять, насколько христианская судьба Армении сплелась в единую нить с судьбой исторической.
+По словам автора: «Большая книга истории Армении насчитывает много страниц страдания. (   Читать дальше...   )Жанр: История Церкви в АрменииФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A0032054F980BF2CCB30EB735AB6FDF5FAC17A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175649   (376631) от 19.10.2017
+
+Вечерний Ургант (2017.10.18) SATRip
 
 >>Документалистика и Телепередачи
->>За рулем
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375393.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376631.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Главной дороге» — 17 лет! Ведущие Андрей Федорцов и Денис Юченков вспомнили, как все начиналось.
-Дочь лишили прав за мать. В ГАИ не признают ошибку. Кто за это ответит?
-Гипертоники и гипотоники на дороге! Андрей Федорцов и Денис Юченков проверили, почему водителям стоит регулярно следить не только за артериальным давлением, но и за давлением в шинах. Какое колесо (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:46
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:29:36Реклама: Присутствуют вставки текстовой рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5E557ED789D444818AA0349FE81F0C6472748A2
+magnet:?xt=urn:btih:4DF0E749E8A448F9C621918CD7860CB5F395FCC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,113 +721,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575650   (375391) от 10.09.2022
+###  Публикация: 1175599   (376630) от 19.10.2017
 
-Van Hinton - Remember Me (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+Mitekiss - Some People (2017) EP [MP3|320 kbps] <Drum'n'Bass>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375391.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376630.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Come On Down And Rock Me (7:03)
-02. Stay With Me (4:29)
-03. Search Find (5:25)
-04. We're Gonna Work It Out (4:02)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:33:09
+01. Empire ft. Mr Porter (5:09)
+02. Forma (5:20)
+03. Some People (4:34)
+04. Who's There ft. Jerome Thomas & Mr Porter (5:30)Жанр: Electronic, Drum'n'BassПродолжительность: 00:20:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D1174CEA26E0BA88591C229518A8D4FF1FAEB55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575691   (375389) от 10.09.2022
-
-Мацист / Maciste (1915) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Своеобразная фабула сюжета. Связь с другим фильмом, актер, играющий сам себя...
-… Поздний вечер. По узким улочкам флорентийского предместья мечется, пытаясь спастись от преследователей, молодая девушка. Случайность приводит ее в кинотеатр «Эксцельсиор», где с феерическим успехом «крутят» эпическую «Кабирию». Видя, какие подвиги совершает могучий Мацист ради спасения (   Читать дальше...   )Производство: Италия, Itala FilmЖанр: приключения, детектив, немое киноРежиссер: Луиджи Романо Борньето, Винсенцо ДеницотАктеры: Бартоломео Пагано, Леоне Папа, Клементина Гай, Amelia Chellini, Didaco Chellini, Ада МараньониПеревод: Немой с интертитрамиСубтитры: Итальянские интертитры, русские отдельным файломПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DB1262D4BB4809F74341A3D31F1AB883B4EF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575551   (375387) от 10.09.2022
-
-Slade - Alive! At Reading (2022) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Bak 'Ome (Alive! At Reading;Live) [04:51]
-02. When I'm Dancin' I Ain't Fightin' (Alive! At Reading;Live) [04:07]
-03. Wheels Ain't Coming Down (Alive! At Reading;Live) [04:26]
-04. (Medley) Somethin' Else, Pistol Packin' Mama, Instrumental Jam, Keep It rockin' (Alive! At Reading;Live) [06:22](   Читать дальше...   )Жанр: RockПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCCAFDD63EE1999D02CA4685B96D975E8CB33A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575255   (375385) от 10.09.2022
-
-Allen/Olzon - Army Of Dreamers (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Army of Dreamers 04:30
-02. So Quiet Here 04:47
-03. Out of Nowhere 04:31
-04. A Million Skies 05:19(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA2D0713D4DFBF8A1FEF1E7863A521624C5072B
+magnet:?xt=urn:btih:507EB617F3EA0FF702BF326B662DC50300ABF575
 ```
 
 https://mybot314.ru/tekegram_catalog/

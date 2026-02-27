@@ -1,3 +1,67 @@
+###  Публикация: 519981   (635203) от 07.07.2012
+
+VA - Cossacks-Songs and dances of the Don and Cuban Cossacks / Казаки-песни и танцы Донских и Кубанских казаков - 3 Альбома (2008) [MP3|320 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635203.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vocal ensemble from Leningradskaya stanitsa - Zazhurilis chernomortsy (5:55)
+ 2. Bayda (4:45)
+ 3. A vzhe lit bilsh dvesti (3:57)
+ 4. Vy, kubantsy, brattsy-molodtsy (2:49)
+ 5. I ne pyut, ne yedyat koni voronye (3:23)
+ 6. Zelyonoe zhito, zelene (3:07)
+ 7. Cholovik propiv indika (1:49)
+ 8. Stradaniya (0:33)
+ 9. Korobeyniki (1:14)
+ 10. Vocal ensemble from Chelbasskaya stanitsa - Oy, vechora - izvechora (3:49)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CFB6CB16596B59B0B7E3C1DFE2D6B39418F890E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033914   (634360) от 13.07.2016
+
+Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image + .cue] <New age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Will I Be Faithful? (radio edit)    04:06
+02.  Will I Be Faithful? (forever mix)    04:36
+03.  Will I Be Faithful? (heaven cut)    04:37
+04.  Jonas Song    05:16Жанр: New age, EnigmaticПродолжительность: 00:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531B21B12BADD057382F81A92BC70EDDF9928E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033884   (634311) от 13.07.2016
 
 The Nines - Night Surfer and the Cassette Kids (2015) [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock, Power Pop>
@@ -708,70 +772,6 @@ Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E7CC80107C8CF2AA2D3415802A0EC47091AA3A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520904   (629093) от 10.07.2012
-
-Wonder - Far Off the Beaten Path (2012) [MP3|192 кб/с]<New age,Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrival
-02. Night Sky Song
-03. Village Child
-04. Traveler's Story
-05. Edge of the World
-06. Faces in the Smoke
-07. Dance for the Gods
-08. Longing Heart
-09. Message from the Past
-10. Secret Love(   Читать дальше...   )Жанр: New age,EnigmaticПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502ECBD17C8B788117FD76EC92573866D3CC7FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035199   (628637) от 16.07.2016
-
-Elise Lebec - Heart Song (2014) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silence (3:34)
-02. Lullaby (3:29)
-03. Heart Song (4:57)
-04. Pirates And Poets (3:53)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B491C9588D7248210D23B3AD2C0C17A62319CA79
 ```
 
 https://mybot314.ru/tekegram_catalog/

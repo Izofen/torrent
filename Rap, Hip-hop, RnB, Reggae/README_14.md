@@ -1,3 +1,32 @@
+###  Публикация: 1215806   (754473) от 28.03.2018
+
+Элджей - Sayonara Boy X (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Chat
+02. Suzuki
+03. ZEF 2.0
+04. LEGO(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E3BD07D80499942196F4FDFF3F88DEF7FD5BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215869   (754467) от 28.03.2018
 
 Многоточие Band - Реквием по реальности (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -714,35 +743,6 @@ ST1M x Black Bros. - King Is Back 3 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABE6DEE1C797489180230F921A426511DFE7756C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399974   (719012) от 05.08.2020
-
-Logic - No Pressure (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Pressure Intro [02:55]
-02. Hit My Line [04:25]
-03. GP4 [04:34]
-04. Celebration [03:50](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145368FC3D8766F901B7FA330843070CE9CD5CF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

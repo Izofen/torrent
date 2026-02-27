@@ -1,3 +1,67 @@
+###  Публикация: 1241643   (519197) от 18.08.2018
+
+Atom Music Audio - Urban Warfare: Action Sci-Fi Epic Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Urban Warfare [02:19]
+02. Chaotic Dream [02:06]
+03. Champion [02:48]
+04. Ready to Launch [04:00](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209B01B71DB8E78245AF4D0DA86FB294FCDE551D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534897   (518695) от 14.08.2012
+
+Wayra Nan - Music Zum Traumen (2012) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518695.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:29) 01. Sounds of Silence
+(5:05) 02. Hey Jude
+(5:28) 03. Chiquitita
+(5:09) 04. Tornero
+(4:24) 05. The Chrildren of Kosovo
+(4:59) 06. My heart will go on
+(4:22) 07. Tranen lugen nicht
+(5:10) 08. Wind of Change
+(4:47) 09. Der Einsame Hirte
+(4:19) 10. Tema para jovenes enamorados(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1ACBEECF6B928C6A3C26129EE0D17562F61105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241485   (518410) от 19.08.2018
 
 Lisa Mitts - Heart Song (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
@@ -690,70 +754,6 @@ Cliff Martinez - Too Old To Die Young (2019) Original Series Soundtrack  2CD [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E99CBC2B2FA69BF8849508937207CDDC00942A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562044   (512509) от 07.07.2022
-
-Black Mango - Quicksand (2022) [FLAC|Lossless|WEB-DL|tracks] <African Blues Rock, Trip-Hop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bakeina's Dream (00:04:45)
-02 - Golden Cage (00:04:22)
-03 - Quicksand Blues (00:05:29)
-04 - Mad Girl Lament (00:04:46)(   Читать дальше...   )Жанр: African Blues Rock, Trip-HopПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00952DF2E4E6A694C49814C3CEB7297494F30038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536792   (512278) от 20.08.2012
-
-Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, Darkwave, Alternative, Female vocalists>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fight Like A Girl (5:24)
-02.Time For Tea (4:02)
-03.4 O'Clock Reprise (1:21)
-04.What Will I Remember? (2:54)
-05.Take The Pill (5:17)
-06.Girls! Girls! Girls! (6:14)
-07.I Don't Understand (2:12)
-08.We Want Them Young (2:47)
-09.If I Burn (5:31)
-10.Scavenger (6:59)(   Читать дальше...   )Жанр: Dark Cabaret, Gothic, Darkwave, Alternative, Female vocalistsПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

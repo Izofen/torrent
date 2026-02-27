@@ -1,3 +1,64 @@
+###  Публикация: 434927   (985265) от 11.01.2012
+
+Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005) [FLAC|Lossless]<Indian Classical, Bansuri Flute, Meditation, Relax>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Indian Classical, Meditation, RelaxПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 434033   (985257) от 11.01.2012
+
+Cat Power - The Greatest (2006) [FLAC|Lossless]<Country Rock, Indie Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Greatest :: 03:22
+02. Living Proof :: 03:11
+03. Lived In Bars :: 03:44
+04. Could We :: 02:21
+05. Empty Shell :: 03:04
+06. Willie :: 05:57
+07. Where Is My Love :: 02:53
+08. The Moon :: 03:45
+09. Islands :: 01:44
+10. After It All :: 03:31(   Читать дальше...   )2006      |Жанр: Country Rock, Indie Rock      |Продолжительность: 00:44:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355261   (984976) от 25.01.2020
 
 Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
@@ -760,67 +821,6 @@ Kevin Laliberte - Siesta: Soothing Spanish Guitar (2005) [FLAC|Lossless]<Acousti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:224E8CC7EBE414668A6EF6591A6542AF3BD25993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 164052   (981529) от 11.01.2010
-
-Eric Serra - The Fifth Element / Пятый элемент (Complete Score) (2CD) (1997) [MP3|192 kbps]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 02:14:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165531   (981439) от 11.01.2010
-
-VA- Охотники за привидениями / Ghostbusters (1984) [FLAC|Lossless]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ray Parker Jr - Ghostbusters (4:07)
-02. The Bus Boys - Cleanin' Up The Town (3:00)
-03. Alessi - Savin' The Day (3:24)
-04. Thompson Twins - In The Name Of Love (3:20)
-05. Air Supply - I Can Wait Forever (5:09)
-06. Laura Branigan - Hot Night (3:23)
-07. Mick Smiley - Magic (4:21)
-08. Elmer Bernstein - Main Title Theme (3:01)
-09. Elmer Bernstein - Dana's Theme (3:32)
-10. Ray Parker Jr - Ghostbusters (Instr. Version) (4:47)1984Жанр: OSTПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

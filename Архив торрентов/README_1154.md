@@ -1,336 +1,3 @@
-###  Публикация: 1101286   (896207) от 06.02.2017
-
-Roland Romanelli (ex. Space) - Amour: Romantishe Melodien aus Paris (1986) [FLAC|Lossless|image + .cue] <Easy listening, Synth-pop, Accordion>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Einen Herzschlang Lang
-02. Julias Traum
-03. Sonnenaufgang
-04. Sirenengesang(   Читать дальше...   )Жанр: Easy listening, Synth-pop, AccordionПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9901E93B3CD248B088DBDDC94B62CAE85BE14A88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101404   (896163) от 06.02.2017
-
-TagScanner 6.0.19 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896163.jpg" />
-</div>
-
-
-###  Подробнее
-
-TagScanner - мощная программа для организации и управления музыкальными архивами. TagScanner переименовывает музыкальные файлы различных форматов так, чтобы в их имени содержалось информация из тэгов. Также программа позволяет сгенерировать тэг по имени файла/директории или изменить значения необходимых полей в пакетном режиме. Программа имеет широкие возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4ADF7E2A1FDF9E326AFD61C3F4AF05D8F26E38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101172   (896159) от 06.02.2017
-
-Anonymous Various Artists - Covert II EP (2017) Touched [FLAC|Lossless|WEB-DL|tracks] <Acid, IDM, Experimental, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ? -Sharp As Usual (04:41)
-02. ? -Filmed Lipear (04:44)
-03. ? -S O…L Ar.. Skies (04:23)
-04. ? -Song In Song (05:03)(   Читать дальше...   )Жанр: Acid, IDM, Experimental, AmbientПродолжительность: 00:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041725536BFD5270A934CC995D6C86C6CC044EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101313   (896153) от 06.02.2017
-
-EZ CD Audio Converter 5.1.1.1 Ultimate Portable by PortableAppZ  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896153.jpg" />
-</div>
-
-
-###  Подробнее
-
-EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4741C1B5697F887EE50FF0BA0216EF8CD92E181E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101357   (896144) от 06.02.2017
-
-Журнал | Авиаколлекция №7 (2016) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение к журналу «Моделист-конструктор». Специализированный журнал для любителей истории авиации и авиамоделистов. Каждый выпуск - это мини-монография об отечественной или иностранной конструкции летательных аппаратах. Каждый выпуск содержит информацию об истории создания самолета или вертолета, его серийном производстве, модификациях, эксплуатации, боевом применении (   Читать дальше...   )Жанр: История авиации и мини-монографииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66CCAF5F9664E864560E805380EB525A62B13D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 183452   (896141) от 16.03.2010
-
-VA - House Vip (14.03.10) [MP3|128-320 kbps]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bart - The Piano (Total Sound Da Freek Remix) (6:33)
-02. Deadmau5 ft. W.Gartner - Dr. Funkenstein (DJ JUMPER Mash-Up Mix) (6:01)
-03. Geometry - Nerd (3:32)
-04. Jason Derulo - In My Head (Jake Walmsley 2010 Remix) (4:48)
-05. Kaoma - Lambada 3000 (DJ Shlykov & DJ Step1 Dirty Dutch Edit) (6:21)
-06. Lazersonic & Zak Frost - Levels (Shadow Dancer Bonus Round Remix) (6:25)
-07. Midaz - Party Tonight (4:07)
-08. Miko Minded & Funkk Frikz - Start Again (Bream Closer The Sun Remix) (7:04)
-09. Motor - Pitch123 (7:30)
-10. Paul Johns & Anper - Summer Night (Original Mix) (6:22)(   Читать дальше...)Жанр: Electro House
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101251   (896115) от 06.02.2017
-
-Interactive Noise - Rewire (2010) [FLAC|Lossless|tracks + .cue] <Psytrance,Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interactive Noise - When I Go (06:58)
-02. Interactive Noise - Energy (07:16)
-03. Interactive Noise - Feel It (07:04)
-04. Interactive Noise - Level Four (08:01)(   Читать дальше...   )Жанр: Psytrance,Progressive TranceПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61457158804D5E35D875C972AFDD17A2110B40E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101432   (896105) от 06.02.2017
-
-PowerISO 6.8 RePacK by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896105.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerISO - программа позволяет создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1494CCA0BFFC242EEABBCCC7F0BCCFEC73240B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101192   (896100) от 06.02.2017
-
-EZ CD Audio Converter 5.1.1.1 Ultimate RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896100.jpg" />
-</div>
-
-
-###  Подробнее
-
-EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1850FAC4D339129757A61D99AA6D095BEF2FC2B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101396   (896096) от 06.02.2017
-
-Money Pro 1.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Money Pro - Деньги, Бюджет, Учет расходов, Финансы
-Управляйте деньгами. Money Pro является следующим поколением программы Money - Мои деньги (более 2 миллионов скачиваний по всему миру).
-
-Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Удобная синхронизация (iPhone, iPad, Mac). Money Pro (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06 февраля 2017Разработчик: iBear LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43BA0288F4D848DBBB636BCF71835093F24FEAA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101303   (896071) от 06.02.2017
-
-Bulk Crap Uninstaller 3.7.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор программ, который позволит удалить без следов и остатков любое приложение на Вашем компьютере. Как известно, любая программа в процессе работы заполняет ПК некими данными: записи в реестре, созданные папки, файлы и т.д. Если Вы просто удаляете потом такое приложение, то некий мусор все равно остается в системе, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F03F774717E62186D5B67BD7367ECC54F9756E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993345   (896048) от 05.03.2016
-
-Футбол. Чемпионат Испании 2015-2016. 27 тур. Обзор матчей. (04.03.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей очередного тура.Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAB595A96DA28F2AE4DC4D9738C7314A4C80987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101466   (896046) от 06.02.2017
 
 PowerISO 6.8 RePack by cuta [Multi/Ru]
@@ -707,6 +374,337 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E7605AB50890D4870B351D0D793EB7E4C2D71DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993626   (895871) от 05.03.2016
+
+Не спать! Выпуск №76 (2016.03.04) WEB-DLRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895871.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 апреля в 00.30 на телеканале ТНТ состоится премьера нового шоу «Не спать!» Это будут настоящие, жесткие юмористические бои без правил с возрастным рейтингом «18+». В роли ведущего выступит резидент Comedy Club Сергей Гореликов. А судить и определять победителей будут три рефери. Среди судей можно будет увидеть Павла Волю, Вадима Галыгина, Тимура Батрутдинова, (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Вадим Галыгин, Тимур БатрутдиновСубтитры: ОтсутствуютПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3523E6E3D6FF86B4F817320171530DB88DA22EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101196   (895851) от 06.02.2017
+
+pdfFactory Pro 6.05 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895851.jpg" />
+</div>
+
+
+###  Подробнее
+
+pdfFactory Pro - удобное приложение, представляющее из себя драйвер виртуального принтера, создающий документы в формате PDF. Поддерживает создание PDF-проектов из нескольких документов или файлов, имеет режим предварительного просмотра. Возможна установка запрета на редактирование документа, его шифрование и установка пароля на открытие. В профессиональной версии, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA9B1811AAA46418889E59B5F9DBC6AB97C02A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101070   (895844) от 06.02.2017
+
+AIMP 4.12 Build 1880 Final RePack by вовава [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895844.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3645CFE6A9C121E52281A43F8F48CE7DBF879DFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993446   (895830) от 05.03.2016
+
+Prof - Liability (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galore (3:17)
+02. Ghost (feat. Tech N9ne) (4:15)
+03. King (feat. Petey Pablo) (4:36)
+04. Standout (3:44)(   Читать дальше...   )Производство: Rhymesayers Entertainment – RYMS70205CDЖанр: Hip HopПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E011C71F858FB77C60D60DBFEB60CA8266C1AFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993405   (895808) от 05.03.2016
+
+Короб - Следопыт (2016) [MP3|320 кб/с] <Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зиг заги
+02. Б.П.В.
+03. Космос с Ксенией Фау
+04. Не унываем с Comme-il-faut(   Читать дальше...   )Жанр: RapПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF87554E9799210FF5B0F415F1793FD679875445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993453   (895797) от 05.03.2016
+
+Fashawn - The Ecology (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guess Who's Back (4:03)
+02. Confess (3:14)
+03. Something To Believe In (feat. Aloe Blacc & Nas) (4:05)
+04. Higher (4:25)(   Читать дальше...   )Производство: Mass Appeal – MSAP0004Жанр: Hip HopПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1225852BAC289136A5FBEC8AA67EB165CF7E62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993375   (895784) от 05.03.2016
+
+Hans Zimmer ‎– Kung Fu Panda 3 (Music From The Motion Picture) (2016) [MP3|320 кб/с] <Score, Soundtrack>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Vamps - Kung Fu Fighting (03:02)
+02. Jay Chou, Patrick Brasca - Try (04:01)
+03. Hans Zimmer feat. Lang Lang - Portrait of Mom (01:49)
+04. Hans Zimmer feat. Lang Lang - Po Belongs (02:53)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13957A8431FF89E3A3D4E80BB4E811EC37FE74D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761627   (895783) от 28.02.2014
+
+Recovery Partition for Acer Aspire 5253G / Windows 7 Home Basic (х64) SP1 [Russian]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895783.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ раздела Recovery жесткого диска ноутбука Acer Aspire 5253G
+Образы Acer_Aspire 5253G_full_b1_s1_v*.tib содержат в себе оригинальный MBR и скрытый раздел восстановления
+Образ создан программой Acronis True Image Home 2014.Язык интерфейса: русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:288D90954AA17FBA5F6FE2DFC1C2F02C6BA06E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 183843   (895776) от 16.03.2010
+
+Uninstall Tool v2.9.6 build 5106 [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Uninstall Tool - ультра маленькая программа, заменяющая неудобную и тяжеловестную стандартную программу установки и удаления программ Windows. Имеет множество опций, настроек и возможностей, которых нет в стандартном аналоге от Microsoft!
+
+Make your Computer Work Faster Now by using Uninstall Tool! It's a fast, secure and convenient way to remove unneeded applications and system components. Great, powerful and reliable alternative to standard Windows Add/Remove program. Uninstall Tool does its job great and performs a clean uninstall of the programs. During our testing on both XP and Vista, the software behaved as it should and did not try to pull anything on us. Softpedia ReviewЯзык интерфейса: Multi
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 181890   (895751) от 16.03.2010
+
+VA - Весенний Радио Хит (2010) [MP3|256 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626782   (895750) от 02.04.2013
+
+Виталька / Віталька (Сезон 2, серии 21-45) (2013) SATRip [UKR]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал описывает историю молодого парня Виталия, у которого за невзрачной внешностью скрывается мощное либидо. Он способен понравиться любой красавице, но с ней сначала необходимо познакомиться. Герой живет с мамой, Мариной Францевной, которая видит в тридцатилетнем мужчине маленького карапуза, требующего заботы и опеки. А Виталька мечтает о реальных женщинах, красивых (   Читать дальше...   )Жанр: КомедияРежиссер: Иван Ясной, Дмитрий КарпенкоАктеры: Гарик Бирча, Анна Лев, Вячеслав Комаров, Олеся ЧечельницкаяПродолжительность: 25 x ~ 00:16:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182696   (895747) от 16.03.2010
+
+VA - Bar Classics Late Night Classics and Jazz (2008) 3CD [MP3|128-320 Kbps] <Classical Music, Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895747.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Miles Davis — Au Bar Du Petit Bac  02:56
+02. Roby Lakatos — Two For The Road  05:29
+03. Werner Haas — Prelude Nr. 2 — Andante  03:33(   Читать дальше...   )Жанр: Classical Music, JazzПродолжительность: 03:26:21
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

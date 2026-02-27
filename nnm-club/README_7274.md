@@ -1,25 +1,365 @@
-###  Публикация: 1394629   (762300) от 06.07.2020
+###  Публикация: 1521805   (763665) от 04.01.2022
 
-VA - Beatport Chillout: Electro Sound Pack #122 (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+Phil Woods - Sugan & Round Trip (1957, 1969) 2000, Universal [APE|Lossless|image + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Au Privave [7:03]
+02. Steeplechase [7:33]
+03. Last Fling [6:38]
+04. Sugan [9:31](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F747AD856551E5372106C1F7F5FBE7D6819044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521807   (763664) от 04.01.2022
+
+Stephane Grappelli - Nuages (1978, 1981) 1991, Jazz Archives [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Give You Anything [4:49]
+02. As Time Goes By [4:12]
+03. Crazy Rhythm [5:40]
+04. Golden Green [3:09](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Violin JazzПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3563429BCB36D167897FDF6629FADD25B56CDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521839   (763663) от 04.01.2022
+
+VA - Best Of Cause Org 2021 (2022) [AAC|~313 Kbps] <Deep House, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlo Daudt - Esfera (4:34)
+02. Carlo Daudt - Marimba (5:16)
+03. Carlos Pires - Odyssey (7:25)
+04. Modern Brothers - She Knows (4:26)(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 02:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4797A7AF9A1F9172C4800D00C98A451A0E3BD10B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521780   (763662) от 04.01.2022
+
+VA - Feel the Rhythm & Chill, Vol. 2 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Butterfly (5:37)
+02. MBmusic - To Touch On (4:02)
+03. Alex Cortiz - Glow (5:57)
+04. Living Room - Ginja (3:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB988FC8291CEDE931953F7C9A0FB4C820140E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521936   (763661) от 04.01.2022
+
+Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 4 (2019) [AAC|~349 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impatient (Original Mix) (8:40)
+02. DJ Artak, Angel Falls - I'm Trapped in You (Rayan Myers Remix) (7:48)
+03. Rayan Myers, Alaera - Closed Your Door (Original Mix) (7:11)
+04. Borrowing (Original Mix) (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47C796ABCD4706AF8570640E8CDA9159071EE0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521931   (763660) от 04.01.2022
+
+Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 2 (2018) [AAC|~350 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Equilibrium (Original Mix) (6:45)
+02. Found Tranquillity (Rework) (7:22)
+03. Amorousness (Original Mix) (6:40)
+04. Yearning (Original Mix) (5:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24FF2DF9E1D0F9A41BB661C9F97626055959592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521768   (763659) от 04.01.2022
+
+bcalm, Banks - Feelings (2021) [AAC|~286 Kbps] <Lounge, Chill Out, Lo Fi>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Peace (2:22)
+02. bcalm, Banks, Purrple Cat - Firelight (2:24)
+03. bcalm, Banks, Fletcher Reed - Comfort (2:18)
+04. bcalm, Banks, Fletcher Reed - Sleep Patterns (2:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, Lo FiПродолжительность: 00:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A435D9ACD5347950F0FB31B3764E9A35D6DC78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521929   (763658) от 04.01.2022
+
+Rayan Myers - Collection of the Best Tracks From: Rayan Myers, Pt. 1 (2018) [AAC|~350 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exalted to God (Original Mix) (5:25)
+02. Warm Heart (Original Mix) (6:37)
+03. Iris Dee Jay, Maria Opale - For You (Rayan Myers Remix) (4:12)
+04. Pleasant Calmness (Original Mix) (6:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34CAFE0B2B1AFC0DFBADAA79702AE206D6F6E534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279682   (763657) от 01.02.2019
+
+Шон Иган | David Bowie: встречи и интервью (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возрастное ограничение: 16+
+
+В этой книге собраны лучшие интервью с Дэвидом Боуи, которые он давал на протяжении почти всего своего творческого пути. Каждое из них – это один из этапов его невероятного путешествия через эпохи, образы, альбомы, хиты, каждое – возможность заглянуть через плечо гения поп-музыки. И во всех он невероятно точен и внимателен к собеседникам.Жанр: Биографии и мемуары, Зарубежная литература о культуре и искусстве, МузыкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673CF8E57B3C5588DC610743E3CC128D5353707F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279679   (763656) от 01.02.2019
+
+Крис Хит | Robbie Williams: Откровение (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Хит работал в тесном сотрудничестве с Робби Уильямсом в течение многих лет и в этой книге Робби выставляет свою жизнь в самом неприглядном виде, беспощадно перечисляя все свои промахи, недостатки и разочарования.Жанр: Биографии и мемуары, МузыкаПеревод: Александр БеляевФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234477FF13092AACA6291D32BEDC99AC254F94B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280128   (763655) от 01.02.2019
+
+Telegram Desktop 1.5.10 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram — это приложение для обмена сообщениями. Почти как SMS, однако помимо отправки простых текстовых сообщений, можно также отправлять фото, видео и любые другие файлы. Ещё можно создавать конференции для группового чата.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44182B95FC47A11CCE6CDD74BF5A47E97ED9C54C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279945   (763654) от 01.02.2019
+
+Desktop Curtain 3.0.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Desktop Curtain - это простой инструмент, чтобы скрыть беспорядок на рабочем столе и помочь вам сосредоточиться на основной задаче. Это идеальный вариант для преподавателей, ведущих, писателей, разработчиков и кого-либо еще, кто ненавидит беспорядок и/или тем, кому необходимо делать скриншоты с чистых фоновых изображений.
+
+Зачем тратить время на перемещение файлов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2019Разработчик: Many TricksПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA11EF5AAE1AA2DFFC44B4A2B33E7844BD35F93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280144   (763653) от 01.02.2019
+
+VA - Absolute Dance Winter 2019 [MP3|320 Kbps] <Funky, Club House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762300.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dismantlists - Somewhere Always Ever
-002. Reid Willis - Canopy Care
-003. Landhouse - Unknown Melody
-004. Fejkб - Skye(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:14:37
+001. Teknova - Katyusha 2K19 (Melbourne Bounce Mix) 3:16
+002. Adam K & Soha - Need To Feel Loved (Extended Mix) 5:32
+003. Triplo Max - Shadow 2:57
+004. Scooter - Move Your Ass! (Noisecontrollers Remix) 3:27(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:18:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E670DF04FC2C50215820CD9363F300A8AC39BBA2
+magnet:?xt=urn:btih:836D1D0445EE56B9E5D2F0DAB507F846CC55052F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +367,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394731   (762299) от 06.07.2020
+###  Публикация: 1280072   (763652) от 01.02.2019
 
-Виктория Ледерман | Всего одиннадцать! или Шуры-муры в пятом «Д» (2019) [MP3]
+Ian Brown - Ripples (2019) [MP3|320 Kbps] <Indie, Alternative>
 
->>
->>
+>>Electronic
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_762299.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763652.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ради любви – первой в жизни! – Егор и Никита готовы на всё. Купить на скопленные деньги огромный букет цветов, осыпать единственную и неповторимую подарками, чудом достать билет на желанный для неё концерт – пожалуйста! Вот только влюбились друзья в одну и ту же девочку – Ангелину, новенькую в их пятом «Д». Да что там билеты и цветы! Вопрос так стоит: кто из них (   Читать дальше...   )Жанр: Детская прозаПродолжительность: 03:56:19
+01. First World Problems 05:57
+02. Black Roses 02:38
+03. Breathe And Breathe Easy (The Everness Of Now) 03:27
+04. The Dream And The Dreamer 05:37(   Читать дальше...   )Жанр: Indie, AlternativeПродолжительность: 00:42:50
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:27DD3CE4884AD5CEB23CE7934A15879C908EEEE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +396,194 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394665   (762298) от 06.07.2020
+###  Публикация: 1280065   (763651) от 01.02.2019
 
-Ravenlight - Project Genesis (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal, Female Vocal>
+Privacy Eraser Free 4.47.0 Build 2768 + portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1F3692A67C01F6ED880F136F349E3FCE95A14B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280082   (763650) от 01.02.2019
+
+НЕСОЛНЦЕ - Восход (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Рай
+02 - Проснись
+03 - Ау
+04 - Сладкая тоска(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B985490D856C7EC46FDE5B8706582053926805C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280099   (763649) от 01.02.2019
+
+Керри Борзилло | Nirvana: со слов очевидцев (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга отделит факты от домыслов и прояснит мифы и ложь, которые наросли на группе и ее членах, а также на беспокойной жизни ее вокалиста при помощи простой и прямой хроники, поденной фиксации их карьер и жизней.Жанр: Биографии и мемуары, МузыкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:254BFB75BFEFA2BB30553B24493C39D457CBDF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280127   (763648) от 01.02.2019
+
+VA - Best Aerobic Remixes 2019 [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Minds - Broken (Fitness Version 135 BPM)
+02. Morgana - Ruin My Life (Fitness Version 135 BPM)
+03. Kyria - Party for One (Fitness Version 135 BPM)
+04. Kino - Money (Fitness Version 135 BPM)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89EAFF7A029FEC1EF88CE2BE0858E735E05062CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280140   (763647) от 01.02.2019
+
+VA - Kontor Top Of The Clubs Vol.81 (2019) [MP3|320 Kbps] <Trance,House,Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prince Karma - Later Bitches 3:16
+02. Max David - Vibez 2:38
+03. Achtabahn - Boten Anna 2:50
+04. Calvin Harris & Sam Smith - Promises 3:31(   Читать дальше...   )Жанр: Trance,House,Club, DanceПродолжительность: 05:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3215621407BDC6937FDABEC2741E805D2E0C367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280007   (763646) от 01.02.2019
+
+Greed 3: Old Enemies Returning (2017) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дочь Гудвина Сара снова связывается с вами, и у нее есть плохие новости. Чудотворное исцеление ее отца снова находится под угрозой. Похоже, что старые враги доктора Гудвина вернулись в лабораторию понтонов, и на этот раз они даже готовы убить, чтобы взять на руки чудо-лекарство, которое лежит в стенах ныне покинутой лаборатории. С помощью Сары вам нужно найти правду (   Читать дальше...   )Тип издания: UnofficialРазработчик: Urchin GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0D2C20FD98723A5F66934D8E3FEBEC8F825C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279989   (763645) от 01.02.2019
+
+Beirut - Gallipoli (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762298.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763645.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Circle (04:57)
- 02. The End of the World (03:54)
- 03. Sanctuary (03:51)
- 04. Echoes (03:34)(   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, Female VocalПродолжительность: 00:45:41
+01. When I Die (03:16)
+02. Gallipoli (04:06)
+03. Varieties of Exile (05:27)
+04. On Mainau Island (02:13)(   Читать дальше...   )Жанр: Indie Folk, Alternative RockПродолжительность: 00:44:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B80324B89A4B305FF6E0C13F3A403E8B0DF8F764
+magnet:?xt=urn:btih:EDE0DBC23BF656C3D9334D3E26ABF06EE119D217
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +591,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394605   (762297) от 06.07.2020
+###  Публикация: 1280001   (763644) от 01.02.2019
 
-VA - Late Night Mood (2020) [MP3|320 Kbps] <Pop, R&B, House>
+VA - Elements Trance: Extended Mix (2019) [MP3|320 Kbps] <Trance, Electro>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762297.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Naji - Might Just (2:52)
-2. H.E.R. - Could've Been (4:08)
-3. Tora - Escape Room (3:21)
-4. The Internet - Girl (6:55)(   Читать дальше...   )Жанр: Pop, R&B, HouseПродолжительность: 03:41:04
+001. Alex Kunnari - This Fire
+002. Fuenka - Lanesra (Original Mix)
+003. Adnane Touzani - Raikiri (Extended Mix)
+004. Mr. Greidor - Trancestation(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 09:45:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67BBAFF0E79E2855CF8E5D371FEA5ACEC2F344E7
+magnet:?xt=urn:btih:35D3D70995219E34250871D2F5F7D77E759D9C54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,439 +620,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394714   (762296) от 06.07.2020
+###  Публикация: 1279919   (763643) от 01.02.2019
 
-Серия Кубков NASCAR-2020. 16-й Этап. Индианаполис 400. Гонка / NASCAR Cup Series 2020. Round 16. Big Machine Hand Sanitizer 400 Powered By Big Machine Records. Race (2020) WEB-DL [H.264/720p-LQ]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_762296.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 этап Nascar Cup Series, Big Machine Hand Sanitizer 400 Powered By Big Machine Records, Indianapolis Motor Speedway (160 Laps, 400 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 04:56:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394708   (762295) от 06.07.2020
-
-Opera 69.0.3686.49 Portable by Cento8 [Ru/En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_762295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394699   (762294) от 06.07.2020
-
-Серия Кубков NASCAR 2020. 16-й Этап. Индианаполис 400. Гонка / NASCAR Cup Series 2020. Round 16. Big Machine Hand Sanitizer 400. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-05 июля 2020 года. Спидвей (штат Индиана, США).
-16-й Этап. Индианаполис 400 (Big Machine Hand Sanitizer 400)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801F53115F0A9D59C760B7D1C8A892142ACA5412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394631   (762293) от 06.07.2020
-
-Валентина Осеева | Васек Трубачев и его товарищи [Трилогия] (2020) [MP3, Александр Бордуков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три закадычных друга-четвероклассника: Васёк Трубачёв, Коля Одинцов и Саша Булгаков жили, учились, ссорились и мирились, так же, как и миллионы их сегодняшних сверстников, с той лишь разницей, что все это происходило в теперь уже далеком 1941 году. И пусть кто-то скажет, что события давно минувших дней не могут быть интересны современным школьникам, но скажите, разве (   Читать дальше...   )Жанр: Детская литература, детские приключенияПродолжительность: 30:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A253A96CECFA4DB80FA159EE000BF455AD94ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394630   (762292) от 06.07.2020
-
-Формула-3. Сезон 2020. 1-й Этап. Гран-при Австрии. Гонка 2 (05.07.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762292.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-й чемпионат ФИА Формула-3. Сезон 2020 года
-05 июля 2020, воскресенье. 10:45 МСК
-1-й Этап. Гран-при Австрии. Шпильберг (Австрия)
-Гонка 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: Качество видео:        HDTVRip
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C54A9116E0D23467A8BFCB5A2AC51AD0D83A88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394737   (762291) от 06.07.2020
-
-Виктория Ледерман | Календарь ма(й)я (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просыпаться утром и обнаруживать, что проживаешь дни в обратном порядке, – штука посерьезней «Дня сурка»! Шестиклассник Глеб Елизаров всего лишь нацарапал на древней стене дату «23.05.2013» – и отправился с парой одноклассников сначала в 22 мая, а затем в 21-е, 20-е, 19-е… Недавно перешедший в новую школу Глеб, увалень-отличник Юра Карасев и погрязшая в домашних (   Читать дальше...   )Жанр: Детская литература. АудиоспектакльПродолжительность: 06:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD71CDAB24587D4E2D4E65D4271C9C0C7A336091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394661   (762290) от 06.07.2020
-
-Skyfall - Sleeping Forest (2020) [MP3|320 Kbps] <Symphonic Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Awakening (05:16)
- 02. Gloomy Horizon (05:43)
- 03. Obscure Memories (07:26)
- 04. Decadence (05:41)(   Читать дальше...   )Жанр: Symphonic Metal, InstrumentalПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7E682C42251876270F7AEF9146995E95FF464B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394645   (762289) от 06.07.2020
-
-Fonograf - FG-4 (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Roc>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762289.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Prelude
-A2 Co-Ordinates
-A3 Bright Sky
-A4 FG-4(   Читать дальше...   )Жанр: Pop RocПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64ACA1696805481EE1B2777631F7653EDB5CF05B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394659   (762288) от 06.07.2020
-
-Как стать большим (1967) WEBRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762288.jpg" />
-</div>
-
-
-###  Подробнее
-
-О котенке, который хотел поскорее вырасти.Производство: СССР / СоюзмультфильмЖанр: Кукольный, детскийРежиссер: Владимир ДегтяревСубтитры: ОтсутствуютПродолжительность: 00:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B59F16EF154DB62597CC761494BBADBF497F433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394768   (762287) от 06.07.2020
-
-ScreenToGif 2.26.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762287.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScreenToGif — удобный бесплатный инструмент, с помощью которого можно записывать действия на экране и сохранять в формат анимированного .gif-файла (в народе называют гифками). После запуска нужно выбрать необходимую область захвата: весь экран, окно или вручную заданный размер и положение рамки захвата. Также можно указать количество FPS от 1 до 60 кадров в секунду. (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2232ECC1113E71A9E6A443F35179B13CC5F2DACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394730   (762286) от 06.07.2020
-
-Журнал | Billboard №50 (декабрь 2019) [PDF] [En]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Billboard Magazine - еженедельный музыкальный журнал из США, в котором публикуются обзоры, новости и информация о графике в каждом выпуске. Ежедневные музыкальные новости, чарты, интервью с артистами рока, поп, кантри, ритма и блюза, джаза, и хип-хопа.Жанр: Музыкальный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E778564F732AFDE921B2FB32443367BF97BEAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280236   (762285) от 02.02.2019
-
-Geraldine Laurent - Around Gigi (2010) Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black And Tan Fantasy [5:53]
-02. Kerry Dance [5:21]
-03. Cordova Is Dancing [4:17]
-04. Minority [5:40](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48C7BF0980672C601E18E4B170E5894AE83B62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280241   (762284) от 02.02.2019
-
-Art Blakey & The Jazz Messengers - Live in Scheveningen 1958 (2018) 2CD, Devialet [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762284.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Introduction by Art Blakey [3:24]
-02. Moanin' [15:23]
-03. Announcement by Art Blakey [1:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97380A5A59C6CAD5122B13DF073400769456EAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280233   (762283) от 02.02.2019
-
-Johnny Hodges - 1951 - 1952 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Queen Bess [3:05]
-02. Jeep's Blues [2:59]
-03. Solitude [2:56]
-04. The Jeep Is Jumping [2:50](   Читать дальше...   )Жанр: SwingПродолжительность: 01:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E5B9A0F1C761D08EC2252B1528D662B9BB363C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280346   (762282) от 02.02.2019
-
-Bixiga 70 - Quebra Cabeсa (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Afrobeat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quebra Cabeca (04:59)
-02. Ilha Vizinha (05:49)
-03. Pedra de Raio (05:34)
-04. 4 Cantos (05:22)(   Читать дальше...   )Жанр: Fusion, AfrobeatПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05367F7D7FC53DA0BBC6AC0A530147496D38BD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280368   (762281) от 02.02.2019
-
-iFinance 4.5.5 [Multi/Ru]
+Wondershare DVD Creator 5 v5.5.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762281.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763643.jpg" />
 </div>
 
 
 ###  Подробнее
 
-iFinance 4 позволяет вам отслеживать доходы и расходы наиболее удобным и быстрым способом. Быстрый взгляд на диаграммы позволяет оценить на что вы тратите деньги и откуда поступает доход. Оптимизация ваших финансов - оказывается это интересно! Автоматическиое назначение категорий, ключевые слова, бюджеты и анализ данные превратят ваш банковский счёт в нечто большее, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2019Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+Wondershare DVD Creator - программа для создания нового DVD из всех популярных видео-форматов.
+Основные возможности: создание DVD с полноценными меню и субтитрами; выбор из имеющихся пред настроек или собственная настройка параметров видео - битрейта, фреймрейда, качества и других параметров DVD, поддержка NTSC и PAL, поддержка соотношений картинки 4:3 и 16:9, предварительный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2019Разработчик: Wondershare Software Co., LtdПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E0FD58C8DFF16E44E4D1BC6F47F200BDB9C54BC
+magnet:?xt=urn:btih:2716E55E9B74CA433B955474E0C334E98E7DAAB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -551,25 +647,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280089   (762280) от 02.02.2019
+###  Публикация: 1280162   (763642) от 01.02.2019
 
-PullTube 1.0 [Multi/Ru]
+VA - Bravo Hits,Vol.104 (2019) [MP3|320 Kbps] <Pop, Dance, R&B>
 
->>Архив торрентов
->>Архив 4Apple
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762280.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763642.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Загрузка видео размещенном на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2019Разработчик: MyMixAppsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
+CD 1:
+01. Ava Max - Sweet But Psycho 3:08
+02. HUGEL feat. Amber Van Day - WTF 2:41
+03. Rita Ora - Let You Love Me 3:10(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 02:29:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD1DB3227A4E7E4FB5BE6DCF3A2A4DFC6DE0DCDF
+magnet:?xt=urn:btih:A766D1C3267B491E760FE8BA2FA21A914DC8345C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,51 +676,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 887115   (762278) от 10.04.2015
+###  Публикация: 1280093   (763641) от 01.02.2019
 
-CyberLink PowerDVD Ultra 15.0.1510.58 RePack by qazwsxe [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762278.jpg" />
-</div>
-
-
-###  Подробнее
-
-CyberLink PowerDVD - один из самых мощных на данный момент программных проигрывателей, позволяющий просматривать DVD-Video и Video-CD на вашем компьютере. Главными преимуществами этого проигрывателя можно назвать высокое качество изображения, удобный интерфейс с возможностью смены скинов и лёгкую настройку. Кроме просмотра фильмов с компакт-дисков (DVD и Video-CD), PowerDVD может проигрывать файлы форматов, поддерживаемых Windows Media Player, а также MPEG1 и MPEG2. В приложении также имеются функции захвата (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4305D19C65D189150844D46612E4A0B900739CB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887138   (762276) от 10.04.2015
-
-Start Menu X 5.40 Free [Multi/Ru]
+BestReminder v2019.02.01.11 Final [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762276.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763641.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Start Menu X - усовершенствованный вариант меню "Пуск" для  Windows Vista, Windows 7, Windows 8, Windows 8.1 и Windows 10. Главное отличие от стандартного меню заключается в том, что ярлыки приложений, которые установлены в системе, не изменяют свое положение и постоянно находятся на одном и том же месте, располагаясь при этом по алфавиту. В случае, если пользователь удаляет одну из программ, положение других не изменяется, а на месте удаленной программы образуется пустое пространство. Когда же пользователь (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
+Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
+А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
+Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, английский, украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B11B35F2FDC304C443E40D42F4C6979EDAF0731
+magnet:?xt=urn:btih:513B83CF719D426A3D6DB89E6831838683745635
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,79 +705,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 52465   (762273) от 10.04.2015
+###  Публикация: 1279952   (763640) от 01.02.2019
 
-Под знаком Козерога / Under Capricorn (1949) DVDRip
+Mozilla Thunderbird 60.5.0 Portable by PortableApps [Ru]
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762273.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763640.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Австралия, 19 век. Сэм, отсидевший срок за убийство, возвращается домой, к своей жене и пытается начать новую жизнь. Сэм усердно работает и вскоре становится богатым, но общество его не принимает — у Сэма небезупречное прошлое.
-Их гость Чарльз влюбляется в хозяйку дома и, пытаясь узнать о ней как можно больше, начинает понимать, что у семьи немало страшных тайн и (   Читать дальше...   )Производство: Великобритания / Transatlantic PicturesЖанр: Драма, Мелодрама, КриминалРежиссер: Альфред ХичкокАктеры: Ингрид Бергман, Джозеф Коттен, Майкл Уайлдинг, Маргарет Лейтон, Сесил Паркер, Денис О’Ди, Джек Уотлинг, Харкорт Уильямс, Джон Руддок, Билл ШайнПеревод: Многоголосый закадровыйПродолжительность: 01:57:03
+Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 886884   (762268) от 10.04.2015
-
-Поворот / U Turn (1997) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бобби Купер, мелкий картежник с полными карманами денег и огромными долгами в Лас-Вегасе, снова на пустынной дороге в погоне за своим счастьем. Поломка заставляет его свернуть в маленький город, где он встречает Грейс, коварную красотку, задумавшую убийство своего богатого мужа.
-Они оба стремятся выбраться из города. И если вы познакомитесь с его жителями, то поймете (   Читать дальше...   )Производство: Франция, США / Canal+ Droits Audiovisuels, Clyde Is Hungry Films, Illusion Entertainment Group, Phoenix PicturesЖанр: Триллер, Драма, Комедия, КриминалРежиссер: Оливер СтоунАктеры: Шон Пенн, Дженнифер Лопез, Ник Нолти, Билли Боб Торнтон, Джон Войт, Хоакин Феникс, Пауэрс Бут, Клэр Дэйнс, Валерий Николаев, Джули ХэгертиПеревод: Дублированный (Лицензия «R5»), Многоголосый закадровый, профессиональный (Лицензия «R5»), Одноголосый закадровый, авторский (А.Гаврилов), (Ю.Живов)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Full), Английский (Full, SDH, SDH-Colored)Продолжительность: 02:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A56DE76EEA067C65E1858E5BBA9CA49AE27978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887112   (762265) от 10.04.2015
-
-Проекты - Проект ProShow Producer - Art Gallery [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю ещё один проект автораФормат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7543D1123F89BCF73407555453A98EDFBD3AB201
+magnet:?xt=urn:btih:73A440266B88B1D292C44816B8EFFF5419B2D9EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

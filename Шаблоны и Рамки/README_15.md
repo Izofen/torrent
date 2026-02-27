@@ -1,3 +1,29 @@
+###  Публикация: 1029752   (678078) от 28.06.2016
+
+Шаблоны - GraphicRiver - Animated Ink Portrait Template - 16658230 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Animated Ink Portrait - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 30002000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE82C19D08FC4B26FE683A0474138C696FD0722A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029820   (678011) от 28.06.2016
 
 Шаблоны - GraphicRiver - Photo Templates [PSD]
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:610083CC120AE7C14DDEBD0C6FD3B43F5F5F8744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032122   (647513) от 06.07.2016
-
-Шаблоны - CreativeMarket - Urban Poster Mock-up VOL.4 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртый том сборника "городского постера". Оригинальное и довольно своеобразное представление ваших фоторабот широкой аудитории.Формат: PSDРазрешение файлов: 2500 Х 1667 px
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150139A1728F07A6B2937A0259432CB7AC2A0D6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

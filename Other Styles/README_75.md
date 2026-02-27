@@ -1,3 +1,61 @@
+###  Публикация: 1284987   (724600) от 24.02.2019
+
+VA - Image d'Amour (2001) [MP3|320 Kbps] <Instrumental, Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ennio Morricone - Cinema Paradiso (Love Theme) (3:14)
+02. Taro Hakase - Between Calm and Passion (5:18)
+03. Jazztronik feat. Jadranka - Moon River (3:53)
+04. Utollo Teshikai feat. Miyamoto Fumiaki - Dream (5:14)(   Читать дальше...   )Жанр: Instrumental, ClassicalПродолжительность: 01:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F0A8D4DAA83BCA419D261CCF74F20A4307272D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023231   (724545) от 05.06.2016
+
+Kyle Landry - 4 альбома (2009-2014) [MP3|196-320 kbps] <Solo piano, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Passion to Sorrow (07:33)
+02 - Lonely (04:40)
+03 - Cheerfulness (01:18)
+04 - Island of Dreams (06:19)(   Читать дальше...   )Жанр: Solo piano, New AgeПродолжительность: 04:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF126D80015DE1F03F025E152AC85AC35B390998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284589   (724458) от 24.02.2019
 
 Lady Gaga, Bradley Cooper - A Star Is Born Soundtrack (2018) Explicit [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
@@ -678,64 +736,6 @@ At The Movies - The Soundtrack Of Your Life - Vol.1 (2020) Reissue, 2022, Atomic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40B19E0FDBCE5B7EE70E0F3F5DDE99421ABF2CF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129654   (720439) от 29.04.2017
-
-Deuter - Immortelle (2016) [FLAC|Lossless|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720439.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Monarda
- 2. Sonnenbraut
- 3. Traubensilberkerze
- 4. Lily of the Valley(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F802343E703FDC1BFD7257E6653BB79D8499E883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129235   (720326) от 29.04.2017
-
-Conjure One [Fake Enigma] - Sleep (2003) [APE|Lossless|image + .cue] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damascus 1:59
-02. Center Of The Sun 5:06
-03. Tears From The Moon 4:18
-04. Tidal Pool 6:51(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE16ABB3B499C60364A9648F89CE1AF79DCABDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1243641   (490100) от 28.08.2018
+
+VA - The Music Band: Oasis Jazz (2018) [MP3|206-320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490100.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paris Combo - Bonne Nouvelle
+002. Iiro Rantala - Candide
+003. Trillo De Angelis Quartet - Lysergic Wedding
+004. Gloria Turrini & Meco Guidi - Don't Go(   Читать дальше...   )Жанр: JazzПродолжительность: 09:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFD120A0E43C3722DFA30A75DAD9EB7E3FF2751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243425   (489978) от 28.08.2018
 
 VA - Golden Hour (2018) [MP3|320 Kbps] <Swing, Jazz>
@@ -713,35 +742,6 @@ Chris Rea - Collection (от ALEXnROCK) (2017) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23C14B6B9AB77AB093748919FC74A03012CEBE8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325306   (414327) от 14.09.2019
-
-VA - New Electro Swing: Jazz Review (2019) [MP3|320 Kbps] <Jazz, Swing Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arthur Pochon - Catch The Groove
-02. Big Papa And The Tcb - Get Yo Self Together
-03. Caravan Palace - Lone Digger
-04. Lyre Le Temps - The Mask(   Читать дальше...   )Жанр: Jazz, Swing JazzПродолжительность: 03:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F9903F83BEC7D891C15424B6E97BED1C90C538
 ```
 
 https://mybot314.ru/tekegram_catalog/

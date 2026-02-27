@@ -1,3 +1,61 @@
+###  Публикация: 1443006   (1036015) от 27.01.2021
+
+VA - Roger Shah - Magic Island Best Of (2020) [MP3|320 Kbps] <Trance, Melodic House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roger Shah pres. Symphony In Deep Minor - Snowflakes On A New Year's Day (Extended Mix)
+02. Raul Pablo Sanchez - Morgentau (Original Mix)
+03. Noah Shah - Lotus (Extended Mix)
+04. Noah Shah - Sirius (Extended Mix)(   Читать дальше...   )Жанр: Trance, Melodic HouseПродолжительность: 02:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B2E87748DEA8C824D0888367A1154690D4C4683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443249   (1035745) от 28.01.2021
+
+VA - Ablazing Winter Sessions (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rene Ablaze - Red Sea 2030 (Extended Mix)
+02. Daniel Cesana - Phoenix (Extended Mix)
+03. Frank Waanders - Aztec (Extended Mix)
+04. Christopher Corrigan - Delectation (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37340A5FA63C89ACB779614BB9C4063E3F5825A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443256   (1035737) от 28.01.2021
 
 VA - Blue Soho Recordings - Best Of 2020 (2021) [MP3|320 Kbps] <Trance, Progressive House>
@@ -687,64 +745,6 @@ VA - Aly & Fila - FSOE Top 20: February (2021) [MP3|320 Kbps] <Trance, Uplifting
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEE81BEF205265F2D0D1D27B9158416280226AC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448899   (1030481) от 19.02.2021
-
-VA - The World Series Of Trance Vol.1 (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John 00 Fleming - The 10th Life (Original Mix)
-02. Carlo Mathaye - Digitalize (Hiroki Nagamine Remix)
-03. Jens Lonnberg - Red Skies (Radio Edit)
-04. Chris Turner - Phat Giraffe (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B390EB7D3A9E365BE5068240001D66E2DF678A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448893   (1030475) от 19.02.2021
-
-VA - Global Trance Masters Vol.1 (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neo Kekkonen - Mirage (Intro Mix)
-02. Dirkie Coetzee & Corrie Theron - Engel (Original Mix)
-03. Feel-X & Robin Vane - Found Myself (A&M Remix)
-04. Chris SX - Go! (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D39C7862D00BBF2E643A59C144364A9BF48D649
 ```
 
 https://mybot314.ru/tekegram_catalog/

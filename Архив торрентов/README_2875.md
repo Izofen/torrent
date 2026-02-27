@@ -1,344 +1,3 @@
-###  Публикация: 664990   (582228) от 09.08.2016
-
-Давид Тухманов - По волне моей памяти (1976) [FLAC 2.0|192/24|tracks|Vinyl-Rip]<Art Rock, Schlager, Symphonic Rock, Classic Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Я мысленно вхожу в ваш кабинет (Максимилиан Волошин) 5:04
-Vocals – Мехрдад Бади
-02. Из Сафо (VII век до н.э.) 5:18(   Читать дальше...   )Жанр: Art Rock, Schlager, Symphonic Rock, Classic RockПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C84A9A0833CD01B83196C8C205CA8B65BE79293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302234   (582200) от 14.05.2019
-
-Vivaldi 2.5.1525.41 Stable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71082D3CB7B88106CAAF86DD750643F675B7074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302199   (582188) от 14.05.2019
-
-VA - Baile Freak Vol. I (2019) [FLAC|Lossless|WEB-DL|tracks] <Forest Psytrance, Dark Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golomp - Mistic Iceland Folk 09:46
-02. Del Torto & Dundoo & Devi3l - 4D 08:07
-03. Ork - Rat Race 08:18
-04. Sr Tune - Blue Screen 07:19(   Читать дальше...   )Жанр: Forest Psytrance, Dark PsytranceПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAEEE81737D59D3E48256252B1847AA1F47C5953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041535   (582171) от 09.08.2016
-
-Славные парни / The Nice Guys (2016) BDRip [H.264/720p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что бывает, когда напарником брутального костолома становится субтильный лопух? Наемный охранник Джексон Хили и частный детектив Холланд Марч вынуждены работать в паре, чтобы распутать плевое дело о пропавшей девушке, которое оборачивается преступлением века. Смогут ли парни разгадать сложный ребус, если у каждого из них - свои, весьма индивидуальные, методы...Производство: США, Великобритания, Bloom, Nice Guys, Waypoint EntertainmentЖанр: Криминал, КомедияРежиссер: Шейн БлэкАктеры: Райан Гослинг, Ким Бейсингер, Рассел Кроу, Энгаури Райс, Мэтт Бомер, Маргарет Куэлли, Йайа ДаКоста, Кит Дэвид, Бо Напп, Лоис СмитПеревод: Дублированный (iTunes)Язык субтитров: АнглийскийПродолжительность: 01:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C778F8FF958C01B9F2AE7E708720525928926F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041557   (582163) от 09.08.2016
-
-ManyCam Virtual Webcam Free 5.3.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как бы вы хотели выглядеть перед человеком, с которым начинаете видеочат? Как вам образ пирата или капитана космического корабля? А может быть, на вас должен падать снег? Должен ли быть на экране текст? Ответы на все эти вопросы вы найдете с ManyCam. Скачать на ПК эту программу имеет смысл, если вы часто общаетесь через web-камеру. Приложение прекрасно срабатывается (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44F3C7F54E00FCAB9DE6F157B95322940F35C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302013   (582160) от 14.05.2019
-
-Allegorithmic Substance Designer 2019.1.0 (2273) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Substance Designer - мощная программа, которая предназначена для создания, редактирования и обработки сложных текстур. Программа позволяет микшировать и манипулировать битмапами, векторными изображениями и процедурными элементами. Текстуры созданные с помощью Substance Designer являются динамическими, то есть их можно свободно модифицировать на любом этапе создания. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.05.2019Разработчик: AllegorithmicПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664C17A1626782595A7982B1BA8EDDA4AFC54050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302216   (582142) от 14.05.2019
-
-Ashampoo WinOptimizer 17.00.20 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo WinOptimizer 17 - новая линейка пакета программ, позволяющего оптимизировать операционную систему благодаря ее настройке и очистке. Содержит утилиты для очистки жесткого диска и системного реестра, модуль для защиты личной информации путем поиска и удаления файлов и данных, оставшихся после интернет-cepфингa, утилиту для оптимизации интернет-соединения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9949FD81BA500DFAD39D80645A958EA3E747DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041679   (582139) от 09.08.2016
-
-AAct 1.5 Portable [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582139.jpg" />
-</div>
-
-
-###  Подробнее
-
-AAct - KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2 а также Office 2010, 2013, 2016. Возможна активация Office 2010 VL на Windows XP. Программа написана с применением оригинальных технологий и реализует другую, отличную от обычной, идеологию конструирования подобных программных средств. Программе (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC06F9DD0E4465854F227B7C14EF51899FD9A00D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359312   (582113) от 06.07.2011
-
-Thunderstorm - Light From Darkness (2011) [MP3|320 kbps]<Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodred Tears
-02. Sorrows That Came To Stay Forever
-03. Hatred Burning Northern Sky
-04. To End This Life In Battle
-05. The Last Battle (Последняя Битва)
-06. Forestman
-07. Spirit Of The Dark Forest
-08. Winterwolf
-09. Freezing Eyes Of Winter
-10. For Eternity…Жанр: Black MetalПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560A89689D6C9CF706A16FCF2180E5A67E0A0DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358485   (582109) от 06.07.2011
-
-Shambless - Menra Eneidalen (2011) [MP3|320 kbps]<Epic Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582109.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ishisn Esha Is Ruptar
-2. Elfin Rumes
-3. Ara
-4. Erfe Nelekshi
-5. Eora
-6. Unno Goarin Faratoss
-7. Comendalina Inebardes TerbavemoraЖанр: Epic MetalПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3547C63092201B98E142C8DC160C745BAF8A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359200   (582108) от 06.07.2011
-
-WiderFahren - An Expedition Of Haze And Thorns (2011) [MP3|320 kbps]<Symphonic Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay a Foundation (Into)
-02. Memory of the Darklands
-03. Save My Soul
-04. Dark Dynasty
-05. Sad Whispers of the Night
-06. The Sinister Apocalypse
-07. Despair Sprawling
-08. Ghostly Night
-09. The Last ChapterЖанр: Symphonic Death MetalПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC7BB4E8CF6C33A9555105F9C1ADCEFEEADCC3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302231   (582095) от 14.05.2019
-
-Adobe Flash Player 32.0.0.192 Final [3 в 1] RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4065EB0AEB5C7DE74ABC253B4E358E32078D963C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302237   (582094) от 14.05.2019
 
 Format Factory 4.6.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -726,6 +385,355 @@ Syndicate - Syndicate (2011) [MP3|192-320 kbps]<Hard Rock, Modern Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2EA97EC8A08517194AAEEE75EB6086E09A5A22D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359677   (582034) от 06.07.2011
+
+Patty Ascher - Bossa, Jazz'n'Samba (2011) [MP3|320 kbps]<Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582034.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Springtime
+2.The Summer Knows
+3.Girls Just Want to Kiss
+4.Booking Time
+5.How Much I Care
+6.The Winter
+7.Saudade
+8.Sunrise
+9.The Sun
+10.Talvez(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE809464925175930C4E3BB5ED53A6D3787684BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359498   (582032) от 06.07.2011
+
+MPC HomeCinema 1.5.2.3322 (x64/x86) + Portable [Multi/Rus]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic HomeCinema - удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеераЯзык интерфейса: Multi/Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359684   (582029) от 06.07.2011
+
+The Golden Nightingale Orchestra - Golden Gypsy Melodies (1988) [MP3|320 kbps]<Instrumental, Gypsy Melodies>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Hora Staccato
+02 Serenade
+03 March Hora
+04 Two Guitars
+05 Canari Polka
+06 Pourquoi Madame
+07 Scala Hora
+08 Memory And Virtuoso Quick
+09 Slow And Quick
+10 Hungarian Songs(   Читать дальше...   )Жанр: Instrumental, Gypsy MelodiesПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC353727F7AB513C10AB8DE3B88A7EE7D7F88101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359013   (582028) от 06.07.2011
+
+Centox - Centox (2011) [MP3|320 kbps]<Nu-Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Cover (4:36)
+02. Above Them All (3:59)
+03. Coraline (5:48)
+04. Coward (3:53)
+05. Whatever Ever After (5:08)
+06. Remember Me (3:33)
+07. The R.I.P. (5:08)
+08. Bitter Pill (4:05)
+09. Jaded (4:48)
+10. Point of No Return (4:31)Жанр: Nu-MetalПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFEA484A653F1A1D9EF39F012EB25D18383ADAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302259   (582026) от 14.05.2019
+
+Skype 8.45.0.41 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует P2P-технологию для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может быть (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2362F8EA9C8193EFE80874701D3F6A47837F6729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919835   (582003) от 20.07.2015
+
+VA - Dark Sessions Radio 010 (Mixed by Oberon) (2015) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Voro - Anathema (7:12)
+02. Robbie Van Doe - Deception (7:00)
+03. Peter Plaznik - Unbreakable Spirit (7:10)
+04. Oberon - The Rainbow Hunter (6:17)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6D24FCB8A62846E1277F412B68B891DC616F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919816   (582002) от 20.07.2015
+
+Владимир Фирсов | Глазами столетий (1982) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга лауреата Государственной премии РСФСР им. А.М.Горького и премии Ленинского комсомола поэта Владимира Фирсова "Глазами столетий" отмечена в 1981 году премией Министерства обороны СССР. Она содержит произведения, отражающие высокие гражданские чувства, патриотизм, живой интерес к судьбе Родины.Жанр: Поэзия, стихи и поэмыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A1658869B8DDAA39D22C77F6FEF843D4BA2FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919120   (582000) от 20.07.2015
+
+DJ Nike Twist - TranceWave 119 @ GTI Radio (16.07.2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lunar Pole - Rendition (Danny Legatto Remix) (Blackout Trance Division)
+2. Flynn & Denton - Second Chapter (Original Mix) (Subculture)
+3. Binary Finary & Nicholson - Apollo Rising (Original Mix) (Rise)
+4. Scott Lowe & Liam Nicklin - Where It All Began (Original mix) (Liquid Energy Digital)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BCB18637A39ABA086150CE127AF5F25D5EC17EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919736   (581999) от 20.07.2015
+
+Sogou Explorer 6.0.5.17481 [Cn]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sogou Browser обладает собственной многозадачной асинхронной технологией браузинга, которая обеспечивает автономный процесс веб-серфинга в каждой отдельной вкладке. Когда одна вкладка зависает, другие остаются неподверженными этому. Это делает SB в некоторой степени схожим с Google Chrome.Язык интерфейса: Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3F0129292850A5CA36FCCE321D0E45CC37237E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919784   (581997) от 20.07.2015
+
+Григорий Поженян | Погоня (1983) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581997.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге отчетливо видна не только судьба известного советского поэта, бывшего моряка-черноморца, но и судьба его поколения, отстоявшего Родину в тяжелую годину войны.
+Стихи отличает высокое чувство гуманизма, внимание к духовному миру человеческой личности. Нередко автор обращается к образу своего детства, ставшего для него мерилом честного и доброго отношения к (   Читать дальше...   )Жанр: Поэзия, стихотворенияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48CB0BD408F1928D743C3B8421F828DC9630AC85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919737   (581996) от 20.07.2015
+
+Мои злые, злые пути: Легенда об Эрроле Флинне / My Wicked, Wicked Ways: The Legend of Errol Flynn (1985) DVDRip [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм является автобиографией австралийского актера Эррола Флинна.Производство: США, Columbia Broadcasting System (CBS)Жанр: ДрамаРежиссер: Дон ТейлорАктеры: Дункан Реджер, Адриан Арон, Джеймс Бэйкон, Уильям Бекли, Ванна Бонта, Марк Бринглсон, Жан Баррелл, Пепе Каллахан, Майкл КаллэнПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57C268D6D06071F1B6F9DBE375FD42BEE6D16C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919834   (581995) от 20.07.2015
+
+Roman Messer - New Life (2015) [MP3|320 кб/с]<Trance, Progressive Trance, Progressive House, Chill Out>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer ft. Denis Sender - New Life (Album Mix) (4:35)
+02. Roman Messer ft. Christina Novelli - Frozen (Album Mix) (5:40)
+03. Roman Messer - Come Home (Album Mix) (5:12)
+04. Roman Messer ft. Eric Lumiere - Closer (Album Mix) (4:28)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive House, Chill OutПродолжительность: 01:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0440FFF05187CFACA4F355BFF3EF99255F56F03
 ```
 
 https://mybot314.ru/tekegram_catalog/

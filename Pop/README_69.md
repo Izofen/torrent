@@ -1,3 +1,289 @@
+###  Публикация: 1502072   (830215) от 13.10.2021
+
+Moussa - Premier (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, French Hip-Hop, Chillwave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Premier (2:22)
+ 02. Neige (2:15)
+ 03. Loues (2:19)
+ 04. Magic berber (feat. Merwan) (3:45)(   Читать дальше...   )Жанр: Alternative Pop, French Hip-Hop, ChillwaveПродолжительность: 00:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFA2E17F47FD82D03C26FBDD8BCD5A1948B090D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502261   (830207) от 13.10.2021
+
+Goombay Dance Band - 30th Anniversary Collection (2009) [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Dreams (3:50)
+02. Sun Of Jamaica (Neuaufnahme 2009) (4:32)
+03. Seven Tears (Neuaufnahme 2009) (4:03)
+04. Over The Oceans (Radio Version) (3:31)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, EuropopПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1701996253A851147B6EB4D989E75AA83CAC230D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381177   (829843) от 05.05.2020
+
+Sweet Lollipop Band - 37 US-Hit-Cocktails (1998) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley 1960: Theme song - Shop around - He will break your heart - Stay - Chain gang - Cathy's clown - It's now or never - Let the little girl dance (9:12)
+02. Medley 1961: Please Mr. postman - Some kind of wonderful - Will you love me tomorrow - Raindrops - Ya ya - Mother-in-law - A hundred pounds of clay (7:01)
+03. Medley 1962: Zip a dee doo dah - Twist and (   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DD20058D1C6E5507C32CF46C3D839AEF3D916F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115030   (829788) от 16.03.2017
+
+Русский стилль - Напиши мне письмо... (2009) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лети (4:23)
+02. Белая черемуха /Remix/ (4:18)
+03. Напиши мне письмо (4:00)
+04. Прости (5:02)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A886901416B2A80EED6E164E02117DF9828DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115054   (829780) от 16.03.2017
+
+Диско-группа Русский Стилль - Одинокая брюнетка (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одинокая брюнетка
+02. Не мой мальчик
+03. Вечер
+04. Просто ночь(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706D5C0C1DB7AF36C89E51A7DD5927D9BC70C58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381187   (829753) от 05.05.2020
+
+VA - Party Hits (Unknown) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Montez - Lets Dance (2:08)
+02. Mungo Jerry - In the Summertime (3:28)
+03. Safaris - Wipe Out (2:16)
+04. Rubettes - I Can Do It (3:14)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CEBFA9805DDE543556672D021B7E84E8B58577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380988   (829738) от 05.05.2020
+
+RASA - Рашн Карантин (2020) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829738.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Рашн КарантинЖанр: PopПродолжительность: 00:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149995BB9ED24745711ED1A69F0136A9E92D7AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114835   (829704) от 16.03.2017
+
+Supermax -  Fly With Me (1979) Remastered, 2005, CD-Maximum [FLAC|Lossless|image + .cue]<Electronic, Pop, Funk, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. African Bood
+02. Fly With Me
+03. It Ain't Easy
+04. Ain't Gonna Feel(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13810043CC0B4A9C8AB816016ABA9E0F21005B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381200   (829668) от 05.05.2020
+
+VA - Mega Dance Mix - 1 (Unknown) [FLAC|Lossless|image + .cue] <Medley, Cover, Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829668.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 -	Party Time/Salsa Mix	10:06
+1.1	Piano Groove
+1.2	Ritmo De La Noche
+1.3	Everybody Salsa(   Читать дальше...   )Жанр: Medley, Cover, Italo-DiscoПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F9B61CD4B3B88377D28001D699F67103EBA8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 773336   (829011) от 06.04.2014
+
+VA - Pure... america (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, R&B, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829011.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ответ на американские санкции публикую очередной сборник американских песен, изданных Sony Music в 2011 году. Интересно, что на ebay его жанр определили как Country, а уж на AllMusic разошлись - здесь целый букет: Adult Contemporary, Adult Contemporary R&B, AM Pop, Contemporary Pop/Rock, Country-Pop. Так что выбирайте, что вам хочется послушать больше из списка.01. Boston - More Than A Feeling  (3:31)
+02. The Calling - Wherever You Will Go  (3:29)
+03. Train - Drops Of Jupiter (Tell Me)  (4:21)
+04. Phantom Planet - California  (3:15)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 04:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F94E4500D658EDE8A005721C44C872A93FEE1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115252   (828152) от 17.03.2017
 
 Hazmat Modine - Extra-Deluxe-Supreme (2015) [MP3|320 Kbps] <SKA, Fusion, World>
@@ -457,297 +743,6 @@ Black Soul - Black Soul (1977) LP [MP3|320 Kbps] <Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B68E98C3A337307CC5977D69E717A45C21BC594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115496   (826159) от 18.03.2017
-
-Оля Полякова - Шлёпали шлёпки (2016) [WavPack|Lossless|tracks + .cue] <Pop, Dance-Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polyakova Style (00:03:14)
-02. #Шлёпки (00:03:38)
-03. Плавочки (00:03:35)
-04. Люли (00:03:37)(   Читать дальше...   )Жанр: Pop, Dance-PopПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACAC740CA6537C26733AD7621F3242A345E0FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115817   (825971) от 18.03.2017
-
-Ласковый Май - Белые розы (2016) LP [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юрий Шатунов - Белые розы 5:42
-02. Юрий Шатунов - Ради тебя 5:29
-03. Юрий Шатунов - Седая ночь 6:57
-04. Юрий Шатунов - Ну, что же ты? 4:49(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B90E660A87CE5F1C2389FE1FF0AAD7A7D951F17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115820   (825965) от 18.03.2017
-
-Ласковый Май - Розовый вечер (2016) LP [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юрий Шатунов - Розовый вечер 4:07
-02. Юрий Шатунов - Глупые снежинки 6:08
-03. Юрий Шатунов - Тающий снег 5:39
-04. Юрий Шатунов - Лето 3:26(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62648AFFABA1A02F9655E5B363151A7944CC9F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115825   (825964) от 18.03.2017
-
-Ласковый Май - Лучшие песни. Новая Коллекция (2004) [FLAC|Lossless|image + .cue] <Pop, Disco>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Медленно уходит осень
-02. Детство
-03. Белые розы
-04. Ну, что же ты?(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:18:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8708C093D54A2EE38A9FC96376FFF8D983E19E1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177573   (825875) от 18.03.2017
-
-Неигрушки - Дискография (1999 - 2000) [MP3|320 kbps]<Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РорПродолжительность: 00:40:25
-01.Ерунда
-02.На луну
-03.Мальчишка(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166158   (825549) от 01.01.2018
-
-Lx24 - 5 альбомов, 51 сингл (2016-2017) [MP3|320 Kbps] <Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Назаров, известный публике под псевдонимом Lx24 – российский исполнитель, продюсер и битмейкер, очень быстро завоевавший признание публики благодаря своим душевным песнями о любви и отношениях.
-Алексей Назаров родился 26 июня 1992 года в небольшом городе Орске Оренбургской области.
-Одиночный проект «Lx24» был создан в 2013 году. Известно, что при записи вокала (   Читать дальше...   )2016 - Зависимость
-2016 - Привет
-2017 - RemixesЖанр: РорПродолжительность: 07:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C31D3C7AA8DFE3F95F52AC955FC4BAA8EA784A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007037   (825482) от 13.04.2016
-
-Camp Claude - Swimming Lessons (2016) [FLAC|Lossless|tracks] <Indie Pop, Electro-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricanes 04:03
-02. Don't Hold Back 03:12
-03. In the Middle 03:36
-04. Golden Prize 03:06(   Читать дальше...   )Жанр: Indie Pop, Electro-popПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B640546D045CEAA0651BEE02ACE692D8F83A246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 196657   (825290) от 28.04.2010
-
-Pet Shop Boys - Pandemonium (2010) [FLAC|Lossless]<SynthPop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live at the O2 Arena, London, 21st December 200901. More Than A Dream/Heart
-02. Did You See Me Coming
-03. Pandemonium/Can You Forgive Her?
-04. Love Etc.(   Читать дальше...   )Жанр: SynthPopПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006938   (825184) от 13.04.2016
-
-VA - Retro Disco Koktel (2006) Compilation, Partially Mixed [MP3|255~303 кб/с (V0)] <Europop, Synth-pop, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Intro    00:17
-02. Joy - Touch by Touch    03:30
-03. Goombay Dance Band - Eldorado    03:13
-04. Ottawan - D.I.S.C.O.    02:55(   Читать дальше...   )Жанр: Europop, Synth-pop, Euro-DiscoПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADB82AB3287CB76B91F90B6D79F3FD44976260D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006775   (825180) от 13.04.2016
-
-Fleur East - Love, Sax & Flashbacks (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Funk & Soul, R&B, Dancepop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sax (3:56)
-02. Breakfast (3:24)
-03. More And More (3:55)
-04. Gold Watch (3:32)(   Читать дальше...   )Жанр: Pop, Funk & Soul, R&B, DancepopПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0C6607913384E0F4422419ED8129E3068CBA0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

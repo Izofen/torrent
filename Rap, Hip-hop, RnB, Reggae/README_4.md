@@ -1,3 +1,32 @@
+###  Публикация: 1360306   (960666) от 15.02.2020
+
+VA - 100 Greatest 90s Hip Hop (2020) [MP3|320 Kbps] <Hip Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Notorious B.I.G. - Juicy (2005 Remaster)
+02. Ol' Dirty Bastard - Brooklyn Zoo
+03. Junior M.A.F.I.A. - Get Money
+04. Del tha Funkee Homosapien - Mistadobalina(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 06:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7475D1CBB411C6CA551587BAE6C1875E5FCD03A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360622   (959449) от 16.02.2020
 
 Ресторатор - Непопулярное мнение (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -731,35 +760,6 @@ BONES - OFFLINE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD9084F303AFA8EEF2CA59235FADD53565B94050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365790   (927269) от 09.03.2020
-
-Scarlxrd - SCARHXURS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PERFECT. [02:20]
-02. YXU’VE BEEN CANCELLED. [02:24]
-03. GRAVESTXNE. [02:41]
-04. MAKING A KILLING. [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17AD8022D3F6DDD1086D848F7521BB948FC67ECE
 ```
 
 https://mybot314.ru/tekegram_catalog/

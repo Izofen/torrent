@@ -1,370 +1,3 @@
-###  Публикация: 1424561   (227851) от 17.11.2020
-
-Viber 14.2.0.35 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах. Viber синхронизирует Ваши контакты, сообщения и журнал звонков с Вашим мобильным устройством. Интегрируется в адресную книгу и авторизует по номеру телефона. Позволяет делать бесплатные звонки через Wi-Fi и мобильные сети 3G (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206801F509410CD57E6777EEE5F226C725D9A6B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851578   (227850) от 19.12.2014
-
-Мартин Соларес | Черные минуты (2014) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В мексиканском городе Паракуана зверски убит молодой журналист Бернардо Бланко. Следствие ведет продажный детектив Чавез, и он уже схватил подозреваемого. Но шеф полиции не доволен результатами его работы, он поручает это дело единственному честному детективу городской полиции Рамону Кабрере. Кабрера выясняет, что перед смертью Бланко занимался расследованием серии жутких убийств детей, происшедших много лет назад. Идя по следам журналиста, Кабрера понимает, что он на верном пути, но тут на него начинается охота...Жанр: ДетективПеревод: Ксения ЕреськоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6861DF68D8836C6EBB3B3F6F81AA8E173DE13213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586550   (227836) от 09.12.2012
-
-Dj DEMONIC - My narkotic (2011) [MP3|320 кб/с]<Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227836.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Figure - Zombies
-2.Figure - Aliens
-3.The Streets - Going Through Hell (Diplo Remix)
-4.Bullwack - Vanguard feat King Minos (Original mix)
-5.Bassnectar - The 808 Track (feat. Mighty High Coup)
-6.Terravita - Lockdown (Original Mix)
-7.Emalkay - Fabrication (Extended Mix)
-8.RedLoop(feat.Mary Dell) - I Like
-9.Mart - Get`s Beeter (Abrissol Remix)
-10.Lats Frends - Telefon Skip(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D3D2504F52C828814C1B0C254FDDE21F1B7E9B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586715   (227829) от 09.12.2012
-
-New-G - Harmonie (2006) [MP3|112-320 кб/с]<New age, Instrumental, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227829.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:21) 01. Terre de feu
-(3:44) 02. Passons le temps
-(2:07) 03. Envol vers l'infini
-(6:28) 04. New way of life 2005
-(2:57) 05. Harmonie
-(4:12) 06. Clair de lune
-(3:37) 07. Soleil levant
-(0:43) 08. Modulation
-(4:26) 09. Vision of stars
-(2:37) 10. Odyssee(   Читать дальше...   )Жанр: New age, Instrumental, ElectronicПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171EA3C110E021C69CD2CE4BCDFE48B8F0296ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851546   (227827) от 19.12.2014
-
-Shogun - Dragon (2014) [MP3|320 кб/с]<Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Shogun ft. Adara - Dragon (Radio Edit) (3:42)
-02. Shogun ft. Susie Ledge - When I'm With You (Radio Edit) (3:35)
-03. Shogun - Zanarkand (Radio Edit) (3:00)
-04. Shogun ft. Chloe - Underwater (Radio Edit) (3:35)
-05. Shogun - Laputa (Radio Edit) (3:58)
-06. Shogun - Abduction (Radio Edit) (3:25)
-07. Shogun ft. Tania Zygar - Find Me (Radio Edit) (4:10)
-08. Shogun - Erhu (Radio Edit) (3:16)
-09. Shogun ft. Emma Lock - Fly Away (Radio Edit) (4:20)
-10. Shogun - Meteor (Radio Edit) (3:12)Жанр: Progressive TranceПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BD017AF10B37341A9C284DFE98A88A0B4A8811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424539   (227824) от 17.11.2020
-
-Sigil 1.4.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sigil — программа представляет собой мощный редактор электронных книг в формате EPUB, позволяющий не только редактировать, но также создавать собственные электронные книги с собственным дизайном. Множество полезных функций, возможность настройки параметров конфигурации приложения делают данное программное обеспечение достаточно эффективным при работе с электронными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A85957D858540705522AB8A6A9A54404AD8B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268311   (227818) от 10.12.2018
-
-Geek Uninstaller 1.4.5 Build 134 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geek Uninstaller - удобный, маленький и надежный, не требующий установки деинсталлятор, разработанный, чтобы помочь пользователям произвести деинсталляцию программ, установленных в системе. В отличие от других деинсталляторов, программа осуществляет глубинные процессы сканирования и очищает ваш ПК от того, что осталось после удаления.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E889FC7E4AF132F8067B559ABB8377768C74C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736376   (227812) от 19.12.2013
-
-DJ Nike Twist - TranceWave 078 @ GTI Radio (19.12.2013) [MP3|320 кб/с]<Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Zach Teiser feat. Erin Levins - We're The Ones (DelAir Remix) (Vendace)
-2. Ciro Visone and Rita Visone - Aurora (Michele Cecchi Remix) (Diverted Music)
-3. Araya - Sonar (Sunset Heat Remix) (Fly Warp)
-4. Adam Nickey - Perfect Destiny (Moonsouls Remix) (Touchstone)
-5. Paul Rigel - Forehand (Original Mix) (Edge EDM)
-6. Mike Adams - Halcyon (Original Mix) (Arcana)
-7. Sean Mathews - Promised Land (Original Mix) (Vendace)
-8. Tristan Armes - Iced Earth (Original Mix) (Dilaryn Records)
-9. Jaco - Two Is One (Original Mix) (Free Download)
-10. The Thrillseekers - When All Else Fails (Original Mix) (Adjusted Music)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A341563C6D6C0DC8290613E93D7A038BAABC9B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268269   (227804) от 10.12.2018
-
-Remote Desktop Manager Enterprise 14.0.11.0 Beta [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remote Desktop Manager – это приложение для контроля за удаленными соединениями. С программой Remote Desktop Manager вы сможете добавить, редактировать, удалить, систематизировать или быстро найти удаленное соединение. Приложение совместимо с Microsoft Remote Desktop или с Terminal Services, очень простая в использовании, но в то же время достаточно мощная и эффективная. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1601E771EBF819A6884FEFC44A22E78C9EA82F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586792   (227798) от 09.12.2012
-
-VA - New Club-16 (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Abel Almena - Secret Lover (Original Extended)
-2. DJ Favorite feat. Kristina Mailana - Love Hurts (Radio Edit)
-3. Molella - Even In The Rain (Extended Edit)
-4. Alex Gray vs Alaia & Gallo - Keep On Rising (Club Mix)
-5. EDX & Syntheticsax vs. JunGO! & Klein - I Will Be Touched
-6. Molla & Marquis feat. Marti Ray - Just Because Of You (Extended Mix)
-7. Alexys - Good Bye My Love (Teknova Remix)
-8. Enur feat. Nicki Minaj & Goonrock - I’m That Chick (Rune RK Club Mix)
-9. Molla & Marquis feat. Marti Ray - Just Because Of You (Radio Edit)
-10. Andain - What It’s Like (Loverush UK! Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6810014638A63ACC920B32755C0AB478461C288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424537   (227796) от 17.11.2020
-
-PDF24 Creator 10.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227796.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF24 Creator - бесплатная программа, которая позволяет легко создавать PDF-документы практически из любого графического изображения (формат PNG, JPEG, BMP, PCX, TIFF, PSD) с функцией их печати при помощи виртуального принтера.
-Кроме того, программа предоставляет возможность просматривать созданные PDF-файлы, разделять и объединять документы, извлекать отдельные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E28B34CBF06752EBE16539FBCCA696711D739A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586943   (227785) от 09.12.2012
-
-VA - Drum & Bass On Demand (2012) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. M-Zine and Scepticz - Alone (05:14)
-02. Heavy1 - Maya (05:41)
-03. Pennygiles & RoyGreen and Protone - Misuranderstanding (05:38)
-04. Gerwin - Inner Conflict (05:48)
-05. Ed:it - Element (06:01)
-06. Soul Intent - Synthetic (05:52)
-07. Cursa & Subliminal & Alxr - Camino (05:14)
-08. Axon - Danger Close (04:51)
-09. Eastcolors featuring Cain Mos - the Longest Journey (06:22)
-10. Heavy1 - Xiphactinus Vip (05:18)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1FFB5C8EF6DD71089EC9B1DE3BB789B0E83AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424488   (227779) от 17.11.2020
 
 Autorun Organizer 4.45 [Ru/En]
@@ -762,6 +395,346 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A92692DEED587D854775C28A994E8C9A6CCD79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587144   (227726) от 09.12.2012
+
+Triskell - Telenn Vor (2003) [MP3|320 кб/с]<Instrumental, Celtic, Harp>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227726.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:14) 01. Both Sides The Tweed
+(5:06) 02. Telenn Vor - a) Dans Houlenn, b) Skumenn (Ecume)
+(2:21) 03. Carolan's Welcome
+(3:40) 04. Planxty Sweeny
+(4:40) 05. Enez Venan
+(3:17) 06. Captain O Kane
+(2:39) 07. Gourlenn
+(4:00) 08. Aran - a) Oidhe Mhaith (Bonne Nuit), b) Seallaibh Curaigh Eoghain
+(3:31) 09. Chall Ha Dichall
+(3:36) 10. Traezen Heolieg(   Читать дальше...   )Жанр: Instrumental, Celtic, HarpПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C25EC42C447963CE6F6169FEA1A94DD54DECFED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736302   (227723) от 19.12.2013
+
+VA - Gal Abutbul Collected - Best Of Progressive Trance (2013) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Gal Abutbul & Sarah Russell - You Have Realised (original) (06:21)
+ 02. Gal Abutbul feat Phillipa Joy - Don't Mind Waiting (original mix) (05:56)
+ 03. Stoneface & Terminal & Ana Criado - One Heart (Gal Abutbul Starlight remix) (07:21)
+ 04. Cathy Burton & Omnia - Hearts Connected (Gal Abutbul remix) (07:09)
+ 05. Moodfreak - Last Days Of Blue (Gal Abutbul remix) (07:37)
+ 06. The Blizzard & Daniel Van Sand feat Julie Thompson - Made For You (Gal Abutbul remix) (06:48)
+ 07. Gal Abutbul - Genelec (original mix) (07:56)
+ 08. Ana Criado - Can't Hold Back The Rain (Gal Abutbul & Liri remix) (06:24)
+ 09. Neev Kennedy - One Step Behind (Gal Abutbul remix) (06:48)
+10. Johan Vilborg & Aneym - Never Changing (Gal Abutbul & Moran Helman remix) (06:55)Жанр: TranceПродолжительность: 01:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EACA24FCCF0FC32988CA33294BE3B7D272650390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965337   (227712) от 13.12.2015
+
+AdwCleaner 5.025 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227712.jpg" />
+</div>
+
+
+###  Подробнее
+
+AdwCleaner - программа, которая ищет и удаляет рекламное ПО в веб-браузере, панели инструментов, потенциально нежелательные программы (PUP) и hijacker-утилиты с вашего компьютера. С помощью AdwCleaner вы можете легко удалить многие из этих типов программ для спокойной работы на вашем компьютере и в Интернете.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6896CE39D5006D266C5D3F3988914C70D50F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851332   (227707) от 19.12.2014
+
+Олег Рясков | Дело об отравлении (2011) [MP3]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В одной из спален дома терпимости при загадочных обстоятельствах умирает знатный дворянин граф Фирсанов. Хозяйка заведения, работающая на Тайную канцелярию, посылает за доверенным лицом графа Ушакова – Самойловым.
+
+При осмотре комнаты Иван обращает внимание на пустую склянку. Девица Глаша, бывшая с клиентом, твердит о своей невиновности. Она наводит Самойлова на след аптечного заведения, куда Фирсанов заезжал по дороге.
+
+Иван едет в дом Фирсанова, где встречает его дочь, а потом ее же встречает в той же самой (   Читать дальше...   )Жанр: Исторический детективПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F060EBEE8498803638500716DA9E60FC184F203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342000   (227699) от 30.11.2019
+
+GarageSale 8 v8.0.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: iwascoding GmbHПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E90AE8D90BA045344C00227A4482319952DB524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851536   (227698) от 19.12.2014
+
+PicPick 4.0.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+PicPick - приложение, объединяющее в себе возможности простого графического редактора и утилиты для захвата изображений с экрана компьютера. PicPick обладает простым и удобным интерфейсом. Среди особых возможностей стоит выделить возможность захвата целого рабочего экрана (в том числе, и на мультимониторных системах), захват только активного окна, отдельной области, целых веб-страниц (с автоматической прокруткой) или же областей с произвольными границами. Графический редактор похож на Microsoft Paint, но обладает (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97C82183DC3BF19C6783E37A535304EA059A4FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586948   (227697) от 09.12.2012
+
+VA - Eastern Symphonies Part 1 (2012) [MP3|320 кб/с]<Drum and Bass, Liquid Funk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Disept & Mage - Silence (05:34)
+02. Flame - Distance (05:36)
+03. Sunny Crimea & Derrick & Tonika - Nothing In This World (05:13)
+04. SkyWeep - Need To Feel Loved (feat Zoe Durrant & UnClubbed) (06:16)Жанр: Drum and Bass, Liquid FunkПродолжительность: 00:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D873C7E71E70400AE178E976105B0A0717D0AC49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268135   (227682) от 10.12.2018
+
+Translate Tab 2.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Так уж сложилось, что потребность переводить возникает у многих и часто. Это может быть как несколько слов, так и какая нибудь статейка с зарубежного сайта по интересующей тематике. И скорее всего сегодняшний пользователь выберет переводчик Google Translate, как наиболее удобный сервис онлайн перевода. Неудобность лишь в том, что в браузере, в который нужно все время (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2018Разработчик: Alex IzvekovПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7181855E01135B44D890640730CA9BAB1970E1AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587240   (227677) от 09.12.2012
+
+Журнал | PC Week №33 (Россия) [декабрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+PC Week - Журнал информирует о передовых технологиях, новейших разработках и важнейших событиях и новостях как отечественного, так и зарубежного компьютерных рынков. В Журнале PC WEEK около десяти постоянных разделов: "Новости", "Корпоративные системы", "Мобильные и настольные системы", "Netweek", "Связь", "Дистрибуция", "Стратегии", "Мнения".Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4B27B107484489A8447784918B5BF95D14385B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424548   (227674) от 17.11.2020
+
+pdfFactory Pro 7.43 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227674.jpg" />
+</div>
+
+
+###  Подробнее
+
+pdfFactory Pro - удобное приложение, представляющее из себя драйвер виртуального принтера, создающий документы в формате PDF. Поддерживает создание PDF-проектов из нескольких документов или файлов, имеет режим предварительного просмотра. Возможна установка запрета на редактирование документа, его шифрование и установка пароля на открытие. В профессиональной версии, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A96B93FEFC9C6BC3BE83E6FFB429E17217C6CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341871   (227670) от 30.11.2019
+
+Audirvana 3.5.27 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AudirvanaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3180556C4931D14B810E687D31AEB71801891DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341986   (227664) от 30.11.2019
+
+ColorSnapper 2 v1.6.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227664.jpg" />
+</div>
+
+
+###  Подробнее
+
+ColorSnapper - инструмент «селектор» цвета для разработчиков
+Приложение для разработчиков приложений, веб-девелоперов и дизайнеров, позволяющее брать пипеткой цвет в различных форматах. Запись цвета в HTML распространено в области веб-дизайна и CSS стилей.
+
+Незамысловатое и очень полезное приложение. Само о себе оно говорит так: «инструмент для получения цвета, которого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2019Разработчик: Koole SacheПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04875CE07605EA0E8C83084F2EDCB10DB2686F6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

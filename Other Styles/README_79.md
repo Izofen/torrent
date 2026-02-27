@@ -1,3 +1,61 @@
+###  Публикация: 1131300   (708908) от 05.05.2017
+
+VA - 50 Vinyasa Chill Yoga: Healing & Relaxing Yoga Exercises (2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Yoga Healing Sounds Unit - Vinyasa Chill Yoga  3:57
+02.  Kundalini Yoga Group - Emotional Healing  4:01
+03.  Yoga Music Masters - Relaxing Yoga  4:02
+04.  Chakra Healing Music Academy - Basic Yoga  3:36(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 03:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4514D4B8632D8C5E2801D8D0ECC9A672196837BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131361   (708561) от 05.05.2017
+
+Jed Kurzel - Alien: Covenant / Чужой: Завет (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jed Kurzel - Incubation (01:07)
+02. Jed Kurzel - The Covenant (03:25)
+03. Jed Kurzel - Neutrino Burst (02:57)
+04. Jed Kurzel - A Cabin on the Lake (01:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0413B49AC1FE70E8B02298BACE17326B1D05F8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025614   (708203) от 13.06.2016
 
 Jonn Serrie - Flightpath (1989) Reissue, 1995, Miramar, BMG [MP3|320 кб/с] <Ambient, New Age, Space>
@@ -684,64 +742,6 @@ Armik - Romantic Spanish Guitar Vol.2 (2015) [FLAC|Lossless]<Latin, Flamenco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F8FA9DB6467FB07219F5E163CE33DC9355A2005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026199   (704154) от 15.06.2016
-
-Juliana - Earth Goddess (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prithivi - Earth    11:48
-02. Jala - Water    12:12
-03. Agni - Fire    10:44
-04. Aria - Air    12:04Жанр: New Age, Relax, VocalПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3543842A0C032F8C674D8BAF026DDA282DD587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026264   (703961) от 15.06.2016
-
-Brian Bennett - Shadowing John Barry (2015) [FLAC|Lossless|tracks] <Contemporary, Soundtrack, Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunderball    02:57
-02. Out Of Africa    03:33
-03. You Only Live Twice    03:12
-04. The Appointment    03:17(   Читать дальше...   )Жанр: Contemporary, Soundtrack, ClassicalПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE266EDBE5F53808063014AC2FD856F7506E7487
 ```
 
 https://mybot314.ru/tekegram_catalog/

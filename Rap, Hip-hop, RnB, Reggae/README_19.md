@@ -1,3 +1,32 @@
+###  Публикация: 1044470   (562713) от 21.08.2016
+
+Баста - Баста 5 (Часть 1,2) (2016) [FLAC|Lossless|tracks + .cue] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Моё время в пути (интро)
+02. Удивительный мир
+03. Фонари ft. Тати
+04. Голос ft. Полина Гагарина(   Читать дальше...   )Жанр: RapПродолжительность: 01:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2E19EA7634B383E5DC21706FD25BB2688E51A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235225   (562148) от 10.07.2018
 
 Johnyboy - Вне времени (2018) [MP3|320 Kbps] <Rap, Hip-hop>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCFD9A65F2D7622E06ABCEE50206C7B9798E3ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563790   (502598) от 16.07.2022
-
-UB40 feat. Ali Campbell & Astro - Unprecedented (2022) [FLAC|Lossless|image + .cue] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Have I Done
-02. We'll Never Find Another Love
-03. Unprecedented
-04. Sunday Morning Coming Down(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCAD409E61DEC1487FFBF793251ACC87F2E96BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

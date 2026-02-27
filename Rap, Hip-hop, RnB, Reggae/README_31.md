@@ -1,3 +1,32 @@
+###  Публикация: 1344379   (170273) от 10.12.2019
+
+Anacondaz - Мои дети не будут скучать (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мои дети не будут скучать
+02. Пусть они умрут (feat. Noize MC)
+03. Все хорошо (feat. Inice)
+04. Гуд-трип(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BB9510B1199BFBC441FFD4D994813E02D41145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344388   (170261) от 10.12.2019
 
 Каста - Об изъяне понятно (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ Dracondaz (Anacondaz) - Песни Фрайвура (2022) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8617A2A4A1D215BD19BEF188964A7E412F62324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968080   (158171) от 22.12.2015
-
-Карандаш - Монстр (2015) [MP3|320 кб/с] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вернулся
-02. Много Лет
-03. Отражение (feat. Пицца)
-04. Кольцо (skit)(   Читать дальше...   )Жанр: RapПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D387ED7626DCE2B2B96716000BE649C235854CCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

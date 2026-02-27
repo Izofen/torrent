@@ -1,3 +1,32 @@
+###  Публикация: 1459769   (1022815) от 04.04.2021
+
+XIII - SEKTA (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звонок (No Caller ID 23:13) [00:36]
+02. Дрожь земли [02:56]
+03. Dedushka Boi [01:41]
+04. Мой Dope [02:18](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD35DFC7A15F0FAE4C528F14B406DA2B742C322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459755   (1022806) от 04.04.2021
 
 Face - Варвар (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ VA - Chillhop Essentials Summer 2021 [FLAC|Lossless|Web-DL|tracks] <ChillHop, Hi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBFEACA533CA1E02CF9384BA9CD63115E0C73AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335034   (1007228) от 10.07.2021
-
-Jah Khalib - Collection 6 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Hardcore, R&B, Soul>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleduj za mnoj (3:44)
-02. MamaMiya (ft. Artik & Asti) (2:16)
-03. Desert Eagle (3:46)
-04. Lilovaya (2:52)(   Читать дальше...   )Жанр: Rap, Hip-Hop, Hardcore, R&B, SoulПродолжительность: 00:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0182DE544DB7C454A097052986534FB33D15857F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1182656   (314872) от 11.11.2017
+
+Pra(Killa'Gramm) - Рэп этот (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Яма (feat. Stankey)
+02. Кроме слов (feat. Kerry Force)
+03. Курим дурь (feat. Kof & Скруч)
+04. Всё это(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8870A68FB8E734063E1F26A3ABE6D30E7760BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332484   (313647) от 20.10.2019
 
 Alai Oli - Sad Princess (2019) [MP3|320 Kbps] <Reggae, Alternative Rock>
@@ -716,35 +745,6 @@ Rick Rock - Rocket The Album (2015) [MP3|320 кб/с]<Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DE7AC4669F6CE1AA2172203A3C14641BAB55B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334847   (291522) от 31.10.2019
-
-Schnitt - Die Nacht der langen Messer (2011) [MP3|320 Kbps] <German Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Messerlied
-02. Ich Und Der Tod (Alles Ist So Volkersohn)
-03. Böse Möse
-04. Sö Schön Wie Wir Feat. Jop Flanders(   Читать дальше...   )Жанр: German Hip-Hop, RapПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C272CBFC263BE13D172F7CC5D5C37EC86BA31BB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

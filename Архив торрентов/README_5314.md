@@ -1,333 +1,3 @@
-###  Публикация: 490699   (130320) от 02.05.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (01.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50485FB1FC2F3083BE0F9DEB9CDE2C0D50A3613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524989   (130318) от 18.01.2022
-
-PDF Reader Pro Edition 2.8.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130318.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2022Разработчик: © 2014-2022 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6635084D0A53077823CC143DCB6A8F0A2BA3EB6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491039   (130317) от 02.05.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 11
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B693A7AF720CB65836512B9FE2D130AD9D3689C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490938   (130316) от 02.05.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920x1080 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7D409F1DDC26FEA57BB345B7D1935A6F211AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491044   (130314) от 02.05.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920x1080 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9786C8273BA9F4E7823E0907734CA28EFE20160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490866   (130313) от 02.05.2012
-
-Excelsis - Kurt Of Koppigen (1998) [MP3|320 кб/с]<Dark Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:36)
-02. Before the Storm (7:40)
-03. Kurt of Koppigen (4:52)
-04. Grimhilde (4:55)
-05. The Dragonslayer (7:40)
-06. The Lord of Halten (5:17)
-07. Ambush in Langenthal (5:42)
-08. Song of Agnes (4:08)
-09. Distant Sky or the Wild Hunt (6:50)
-10. The Lost Chapter (6:03)(   Читать дальше...   )1998Жанр: Dark Power MetalПродолжительность: 01:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEF820F27EB770EE70E0CC9BC2C6B8A51D4E34F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490927   (130311) от 02.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Pack 9
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Computer Desktop Wallpapers Pack 9
-Название: Computer Desktop Wallpapers Pack 9
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C37E23B9651FFF9C70F582B238DA5BB15D4F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491033   (130309) от 02.05.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130309.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 6Название: Nature Desktop Wallpapers Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78B37F7530EF3773DF88297CF7B273B0309EEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491220   (130307) от 02.05.2012
-
-Журнал | Салон №5 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-"Салон" - авторитетный журнал о дизайне и архитектуре. Все новое в декоре интерьеров, уникальное в архитектуре, эксклюзивное в интерьере, что создается в стране и мире, находит свое отражение в журнале, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524174C0CCDC969F8D82AFF0BB8A812153323AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524952   (130306) от 18.01.2022
-
-ProFind 1.9.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 Ross TullochПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8057C6C068F56876CF88E3E1DE68DD762DEF7F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491173   (130305) от 02.05.2012
-
-[Wallpapers] Best HD Wallpapers Pack (03.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B3FCB344EFE40FA9C567D53851E40AA7C59DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524991   (130304) от 18.01.2022
-
-Transfer 2.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Transfer - это надежное и полностью RFC-совместимое приложение TFTP-сервера. Идеальная альтернатива встроенному TFTP-серверу на вашем Mac. Здесь есть все, что вы ожидаете: в режиме реального времени происходит обновление текущих передач, поддержка широковещательных запросов TFTP, история передачи и базовый контроль доступа к корневому каталогу TFTP и управление файлами. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.01.2022Разработчик: © 2019-2022 Intuitibits LLCПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EF90D33CECB7F1EE802FF24DC0C038F8A43D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491091   (130303) от 02.05.2012
 
 [Wallpapers] HD Desktop Wallpapers Pack 5
@@ -717,6 +387,369 @@ FSNotes - это менеджер текстовых заметок для macOS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:166F327E0C2C4C23AF7C57C969FBC2BE3D22AE28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491237   (130274) от 02.05.2012
+
+Triage - Rage (2012) [MP3|~245 кб/с (V0)]<Dubstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radium 5:18
+02. Brawl 6:01
+03. Party Foul (Feat. SPL) 4:47
+04. Crossout (Feat. The Bassist) 5:08
+05. Sepsis 6:03
+06. Aneurysm (Feat. Antiserum) 4:10
+07. Tesseract (Feat. Chewie) 5:20
+08. Jane (Feat. Riskotheque) 4:44
+09. Demigod (Feat. Jaden) 6:18
+10. Obelisk 4:44(   Читать дальше...   )2012Жанр: DubstepПродолжительность: 01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C44EBBF69218B35CFCAD4181FF50AC7F81F0F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491233   (130272) от 02.05.2012
+
+Журнал | Rolling Wheels №2 [март-апрель 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Rolling Wheels – единственный на сегодняшний день российский глянцевый журнал, посвященный ретро-автомобилям, военной технике и мотоциклам. Основная тема Rolling Wheels - классические автомобили, начиная с самых первых и закачивая теми, что были выпущены до нефтяного кризиса 1974 года. Эпоха, когда Автомобиль был не просто средством передвижения, напичканным гаджетами, эпоха, когда у Автомобиля была душа. Помимо гражданских машин, немалый объем в Rolling Wheels занимает военная техника, а также военная история.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A7EE6EAB8A1B105403110091233FE379542E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491297   (130270) от 02.05.2012
+
+Daniel Wanrooy - Slice Of Life (2012) [MP3|320 кб/с]<Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friuli
+02. Put Yourself Through This (with Elliot Johns)
+03. Ocean Terrace
+04. Dog Day Afternoon
+05. Stay In The Moment (with Blake Lewis)
+06. Tonica
+07. Bangalore
+08. White Sands (with René Havelaar)
+09. Living It Up (with Emma Lock)
+10. Pretoria (2012 Mix)(   Читать дальше...   )2012Жанр: Progressive TranceПродолжительность: 01:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B758303941A835BD561CBF1BD13B419026835C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490968   (130268) от 02.05.2012
+
+VA - Club Session Presented By John De Mark (2012) [MP3|320 кб/с]<House, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Vangosh - Trip 2 Heaven (Vocal Mix) [6:08]
+02. Niko De Luka - Shake (Brown Sugar Remix) [8:08]
+03. BK Duke - All the Girls (Ezzy Safaris Remix) [6:06]
+04. Stefano Noferini - Burujava (Original Vibes Mix) [8:38]
+05. Mike Newman - Dreamin (Original Mix) [7:10]
+06. King Richard - Stupidisco 2011 (Sean Finn Remix) [7:03]
+07. Agent Greg - Time Won't Wait (Jolly Remix) [6:10]
+08. Chiqito - I Feel It (Original Mix) [6:46]
+09. Jesse Voorn - Pop (Midnite Sleaze Remix) [6:35]
+10. Cristian Exploited - Drunko (Dirty Secretz Remix) [7:09](   Читать дальше...   )2012Жанр: House, ClubПродолжительность: 03:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1454E3F5893C3AF1FF382341C25ABE766EBCAE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491042   (130266) от 02.05.2012
+
+[Wallpapers] HD Desktop Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130266.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Desktop Wallpapers Pack 4Название: HD Desktop Wallpapers Pack 4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 4000х2000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08A2DB6F82371C52EE2A3A1E8846C285CEC57C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491034   (130265) от 02.05.2012
+
+[Wallpapers] Police Desktop Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130265.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Police Desktop Wallpapers Pack 1Название: Police Desktop Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 1920х1440
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:689D09BF80AAF63FF6C4E1B23A2862C08329F5C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491260   (130264) от 02.05.2012
+
+NG: Рожденный ползать - летать может / That Shouldn't Fly (2010) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Как призраки в ночи, или пришельцы с других планет, летающие существа тропических лесов покрыты тайной, и живут в своём мире. Но теперь исследователи поднимутся к вершинам деревьев, и с помощью последних технологий постараются раскрыть тайную жизнь вершин, где выживание зависит от возможности сделать невероятное, и где змеи умеют летать.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79AF7D4009E72B1A56B1D7E887F1BC802ECF4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489903   (130263) от 02.05.2012
+
+VA - Native American Sacred Sky (2011) [MP3|320 кб/с]<New age, World, Native american>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130263.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:51) 01. World Tribe - In The Sky
+(4:19) 02. World Tribe - Heaven's Light
+(5:14) 03. World Tribe - Sundance
+(4:50) 04. Migracion - Eagle's Chant
+(5:48) 05. Migracion - Dancing To The Moon
+(7:19) 06. World Tribe - Freedom
+(5:08) 07. Migracion - Ale Loya Li
+(4:25) 08. Migracion - Wolf Song
+(6:11) 09. Migracion - Sunquy Man
+(2:49) 10. Migracion - Raza(   Читать дальше...   )2011Жанр: New age, World, Native americanПродолжительность: 01:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7C9F271107C6FF5DE3BD96D27EFAE4DE615BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491174   (130262) от 02.05.2012
+
+[Wallpapers] World Games Wallpapers (03.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089B1DD019FE33979F0D2AF5CEC8CE0C0273B5F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490942   (130261) от 02.05.2012
+
+[Wallpapers] Creative Desktop Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130261.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Creative Desktop Wallpapers Pack 1
+Название: Creative Desktop Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD79072719767573C5C2BF776CDAF60A444919D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491168   (130259) от 02.05.2012
+
+[Wallpapers] Wallpapers Fantasy №13(Pavel)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола 50 шт
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:418F42B14E6C2EDCA4EB51904C028E6998A39158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490822   (130258) от 02.05.2012
+
+[Wallpapers] Animals HD (1600x1200-4000x2667)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Animals HD (1600x1200-4000x2667)
+Название: Animals HD (1600x1200-4000x2667)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200-4000x2667
+Расширение (тип) файлов: JPGСкриншоты:Время раздачи: До нескольких сидов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28510895DC5A17C2FF79BA67199952AF3AD9CBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

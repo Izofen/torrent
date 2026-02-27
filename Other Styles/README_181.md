@@ -1,3 +1,67 @@
+###  Публикация: 556910   (139162) от 31.12.2013
+
+Amberfern - 4 albums (2009-2013) [MP3|320 кб/с]<New age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(5:26) 01. Avon Beach
+(4:49) 02. Rythm of the Sea
+(5:23) 03. Underwater World
+(5:09) 04. Sirens
+(5:12) 05. Floating
+(4:04) 06. Spindrift
+(5:00) 07. Across the Blue Bay
+(4:56) 08. Driftwood
+(5:18) 09. Ocean Sunrise
+(4:00) 10. Farawway Shore(   Читать дальше...   )Жанр: New age, Relax, MeditativeПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7866C43EFF66DBE2DDEC4B5903A8110B80B008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436138   (138721) от 30.12.2020
+
+Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_138721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Forest (Symphonic Version)
+02. Cafe Europa (Symphonic Version)
+03. Night Bird (Symphonic Version)
+04. Bulgarian Melody (Symphonic Version)(   Читать дальше...   )Жанр: Ambient, Downtempo, New AgeПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC1A651966C38850B7FBAE358B7B71B05BD24C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195824   (138290) от 31.12.2017
 
 Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Ethnic>
@@ -765,70 +829,6 @@ CD 04 - Non Stop Dancing 1968 - 01:11:17(   Читать дальше...   )Жа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C14E263208539F9CAE1C8C7115C5C5A52EB8B1B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594123   (132518) от 28.12.2012
-
-Американский пирог 1, 2, 3, 4 / American Pie 1, 2, 3, 4 (1999-2012) [MP3|320 кб/с]<soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: soundtrackПродолжительность: 1:10:45
-
-1 Times Like These Foo Fighters  04:30
-2 Anthem Good Charlotte 02:59
-3 Forget Everything New Found Glory 02:37
-4 The Hell Song Sum 41 03:22
-5 Swing Swing All American Rejects 03:58
-6 I Don't Give Avril Lavigne 03:40
-7 Laid Matt Nathanson 03:07
-8 The Art Of Losing American Hi-Fi 03:25(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9152263682CE0643A04018D3CCE95CEF3818E84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681758   (132372) от 04.12.2023
-
-Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Brighter Dawn (8:00)
-02. The Gift of Life (6:56)
-03. The Voice Inside (9:28)
-04. Tomorrow's Dream (10:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457F339230B8E500DCDDB5189BA16F3DA453ADB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

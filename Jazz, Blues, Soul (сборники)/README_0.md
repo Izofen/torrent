@@ -1,3 +1,32 @@
+###  Публикация: 1844397   (1050328) от 29.12.2025
+
+VA - Merry Christmas At the Hammond Organ (2025) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050328.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Denzel Sachs - Have Yourself A Merry Little Christmas [04:11]
+002. Jan Verkroost - Jingle Bells [02:33]
+003. Leigh Harline - When You Wish Upon [04:13]
+004. George Conedy - O Come All Ye Faithful [03:26](   Читать дальше...   )Жанр: Jazz, Blues, InstrumentalПродолжительность: 08:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBEE1ABFB093D649D466FE828166E07581F82A0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844134   (1049906) от 24.12.2025
 
 VA - No name compilation part 32 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Soulful Blues Ballads>
@@ -716,35 +745,6 @@ VA - Instrumental Jazz Palette (2021) [MP3|320 Kbps] <Jazz, Smooth, Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF5C400AFCD58FF92C57B3EDB48513AD65B0D548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621646   (1030953) от 25.03.2023
-
-VA - Turn On Electro Jazz (2023) [MP3|320 Kbps] <Jazz, Instrumental, Improvisation>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030953.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Loiriplukari - 86
-002. Gazzara - Orinoco
-003. Sicania Soul - Life Is A Tree
-004. Kate Hamann - Daydream(   Читать дальше...   )Жанр: Jazz, Instrumental, ImprovisationПродолжительность: 09:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F503DDBCD3B0EC1753D5B74B6A506A310E9C084
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1739742   (48177) от 01.08.2024
+
+VA - Arabian Miriage (2024) [MP3|320 Kbps] <Instrumental Pop, World>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48177.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adrian von Ziegler - Enchanted Palace [02:28]
+002. Arabic Music Arabian Nights Collective - Arabian Girl [07:42]
+003. Buddha Hotel Bar Music Dj - Aladdin [02:45]
+004. Zakaria Ghafouli - Hobino [04:00](   Читать дальше...   )Жанр: Instrumental Pop, WorldПродолжительность: 10:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEB6C612DA31380D10AD1529336AB288DD41CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744130   (45751) от 24.08.2024
+
+VA - Compilation  part 114 New Eurodisco (2024) [MP3|320 Kbps] <New Eurodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Val - Through the Silence
+02. Ai Talking - Blood and Milk Girl
+03. Ai Talking - Alien Love, Alien Groove
+04. Ai Talking - Mysteries of the Night Castle(   Читать дальше...   )Жанр: New EurodiscoПродолжительность: 00:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57102198055920FCE87B14196DF266F95956E9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745075   (45477) от 27.08.2024
+
+VA - Compilation  part 115 Euro-Dance Assorted (2024) [MP3|320 Kbps] <Eurodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rachel Santos - You’re My Lover, Secret Lover
+02. Italove - L'amour
+03. Lian Ross - Can You Love Me
+04. Night Club - Die in the Disco(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BF9083ACFE0CEFC861724157A89ADE95C27D73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746501   (45056) от 31.08.2024
+
+VA - German Top 100 Single Charts 30.08.2024 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45056.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shirin David - Bauch Beine Po (2:13)
+002. AYLIVA & Apache 207 - Wunder (2:56)
+003. Adam Port, Stryv, Keinemusik, Orso & Malachiii - Move (2:57)
+004. Artemas - i like the way you kiss me (2:22)(   Читать дальше...   )Жанр: PopПродолжительность: 04:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A31EC8910A17122D0BC9F15117E4D5C870F3BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748109   (44136) от 09.09.2024
+
+VA - Свежий Русский Хит от ALEXnROCK часть 16 (2024) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_44136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже много лет я не слежу и не интересуюсь западными музыкальными новинками. Потому что давно понял, всё интересное и прорывное запад уже выдал. А дальше, глобалисты для того чтоб стереть индивидуальность и превратить человечество в одинаковое управляемое стадо, отравили рок индустрию альтернативой. Тем самым убив качественный рок. А позднее и поп музыку. Недавно (   Читать дальше...   )001. Марк Тишман - Внутренний Ребенок
+002. Люся Чеботина - Командир
+003. Ислам Итляшев - Танцы
+004. Mary Gu - Целуешь ее(   Читать дальше...   )Жанр: PopПродолжительность: 03:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C116ABA147F56D769EC5D3D007F0C84E7F93308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747732   (44102) от 09.09.2024
 
 VA - compilation part 119 Euro-Dance Assorted (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
@@ -600,151 +745,6 @@ VA - National Pop Dance Vol.90 (2024) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:555CA20DC803241719099C409A174CF3F7743BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761408   (36702) от 20.11.2024
-
-Николай Гринько - Синглы (2020-2024) (2024) [MP3|320 Kbps] <Бард-рок, Поп-рок, Авторская песня>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сурикаты
-02. Видимо-невидимо
-03. Типакорочекакбы
-04. Лиссабон(   Читать дальше...   )Жанр: Бард-рок, Поп-рок, Авторская песняПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD94C6BDF4CDC0B83889915B22B718EC554452EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761475   (35663) от 30.11.2024
-
-Kylie Minogue - Compilation (1988-2024) [MP3|320 Kbps] <Pop, Dance pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Hearts (X 2007)
-02. Better The Devil You Know (Rhythm Of Love 1990)
-03. Breathe (Impossible Princess 1997)
-04. Can't Get You Out Of My Head (Fever 2001)(   Читать дальше...   )Жанр: Pop, Dance pop, DiscoПродолжительность: 03:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA837A00400C1D95D539A172D3CCD41A7D0D1B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762932   (35607) от 30.11.2024
-
-Anastacia - Compilation (2000-2023) [MP3|320 Kbps] <Pop rock, Soul, Dance pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Army Of Me (Ultimate Collection 2015)
-02. Beautiful (Our Songs 2023)
-03. Best Days (Our Songs 2023)
-04. Best Of You (& Foo Fighters) (It's A Man's World 2012)(   Читать дальше...   )Жанр: Pop rock, Soul, Dance popПродолжительность: 03:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7FBC8EFF95A84A652E22254699226FA387ABE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761293   (35548) от 01.12.2024
-
-A-ha - Compilation (1985-2022) [MP3|320 Kbps] <Synth pop, New wave, Pop rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me (Hunting High & Low 1985)
-02. Foot Of The Mountain (Foot Of The Mountain 2009)
-03. Lifelines (Lifelines 2002)
-04. A Fine Blue Line (Analogue 2005)(   Читать дальше...   )Жанр: Synth pop, New wave, Pop rockПродолжительность: 06:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2785B519802CB1A4672D7C48BF3761ADE65FBAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763751   (35360) от 03.12.2024
-
-VA - Pop Dance Weekend Party Non Stop (2024) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35360.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Triples - Dimension - (03:17)
- 002. Mindaryn - Fireworks - (04:43)
- 003. Paul Russell - Say Cheese - (02:33)
- 004. Ive - Off The Record - (03:09)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 10:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F3242385249F05D20450D7B9CF8A17BFFC6B34
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1384563   (801687) от 21.05.2020
+
+LEYA - Flood Dream (2020) [FLAC|Lossless|tracks + .cue] <Avant - Folk, Chamber Music>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weight (feat. GABI) (03:52)
+02. Wave (04:11)
+03. INTP (03:48)
+04. ABBA (04:34)(   Читать дальше...   )Жанр: Avant - Folk, Chamber MusicПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8981BF670AFDDB11217456623A52C5D5291E8C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384631   (801678) от 21.05.2020
+
+Евгений ( Zagot ) Загот - Парад планет  (2005) [FLAC|Lossless|tracks + .cue]<Instrumental, Piano, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro ( Ambient Dream )
+02. Париж
+03. Я тебя читаю
+04. Аквамарин(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CB53B577B0CB4B9DA73408EDF0B59F1ED27A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120288   (801195) от 01.04.2017
 
 VA - From Russia With Song: 20 Greatest Russian Hits (2000) [MP3|320 Kbps] <Pop, Folk>
@@ -684,64 +742,6 @@ Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D734CBC8CC082A022960D14D1227A9B89DB31A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121740   (799631) от 03.04.2017
-
-Aenigmatica - Enigmatic (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigmatic (05:42)
-02. Occulta Mysteria (05:23)
-03. Hypnosis (06:03)
-04. Lakota Myths (05:23)(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FB225874958CAE48F992A7DE825247218D1432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273797   (799396) от 03.01.2019
-
-Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down to the Moon 02:27
-02. Moon Dance 04:10
-03. Steam Forest 04:59
-04. Water Moon 02:15(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A22C00EF998AA85A4A7FF4EF996D7490D275D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

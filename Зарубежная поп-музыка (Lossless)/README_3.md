@@ -1,32 +1,3 @@
-###  Публикация: 1618182   (1034298) от 10.03.2023
-
-Miley Cyrus - Endless Summer Vacation (2023) [FLAC|Lossless|WEB-DL|tracks] <pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flowers [00:03:20]
-02. Jaded [00:03:05]
-03. Rose Colored Lenses [00:03:43]
-04. Thousand Miles (feat. Brandi Carlile) [00:03:51](   Читать дальше...   )Жанр: popПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E62164876C0AB013CD2E3D4E5EE832FE23CC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444833   (1034206) от 03.02.2021
 
 Annie Lennox - Songs Of Mass Destruction (2007) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
@@ -747,6 +718,35 @@ Honky Château — пятый студийный альбом британско
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D84031A3513464E4DC0CE1E7304C350E1C5CEB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449924   (1029574) от 23.02.2021
+
+Talisha Karrer - Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (04:05)
+02. My Favourite Game (03:35)
+03. Apologize (02:48)
+04. You Have Been Loved (04:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E5D81B5234960CF500F9AE7E1C5781ECA547C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,293 @@
+###  Публикация: 1206805   (781728) от 15.02.2018
+
+Ирина Билык - Любовь.Яд (2004) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. О любви 3:26
+02. Помнить 3:44
+03. Не такая, как все 3:36
+04. Шутка 3:13(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0036392C8D3D183041C1EA56B6081C08FD83F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206815   (781713) от 15.02.2018
+
+VA - Disco 80's Vol.2 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blanco Y Negro Music - I Love Disco Diamonds (Hidden Track) (0:07)
+02. Bolero - I Wish (7:52)
+03. Danny Keith - Keep On Music (6:42)
+04. Grant Miller - Colder Than Ice (5:36)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9817C16FE21CB6CDC40C4C599116F088E17900AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206849   (781676) от 15.02.2018
+
+VA - Disco 80's Vol.2 (2018) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blanco Y Negro Music - I Love Disco Diamonds (Hidden Track) (0:07)
+02. Bolero - I Wish (7:52)
+03. Danny Keith - Keep On Music (6:42)
+04. Grant Miller - Colder Than Ice (5:36)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6A8A3EF48788F43D31A1A1C9E98EA30493405E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391164   (781418) от 19.06.2020
+
+Black Eyed Peas - Translation (2020) [MP3|320 Kbps] <Pop, Rap>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781418.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. RITMO (из фильма «Плохие парни навсегда»)
+2. FEEL THE BEAT
+3. MAMACITA
+4. GIRL LIKE ME(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC2E890BEB7CCA75757462855490238438303CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207047   (781322) от 16.02.2018
+
+Antoine Elie - Antoine Elie (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 L'amas d'chair
+2 Aie
+3 Soirees parisiennes
+4 Toi qui m'ecoutes(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9696E2DE3035EEBE139F83D7FCFDB6519969309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206792   (781313) от 16.02.2018
+
+Nina Zilli - Modern Art (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senza Appartenere
+02. Domani Arrivera (Modern Art)
+03. Ti Amo Mi Uccidi
+04. 1xUnAttimo(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC0270397B50592FFFE42D57B2826FFEE08D7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390980   (781077) от 20.06.2020
+
+I Break Horses - Warnings (2020) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn (09:01)
+ 02. Silence (04:29)
+ 03. l a r m (01:04)
+ 04. I'll Be The Death Of You (04:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7604A3839FCC03B8C69F55407B0D0D33312E9358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391127   (781025) от 20.06.2020
+
+VA - Another Side Of Fancy Part Three (2020) 2CD, Compilation, Remastered [MP3|320 Kbps] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_781025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timerider - Space Iwan (12'' Version) (5:36)
+02. Mozzart - Jasmin China Girl (12'' Version) (6:31)
+03. Grant Miller - (Find My) Tracks In The Snow (12'' Version) (5:07)
+04. G.P. Universe - Let Me Love You (12'' Version) (5:14)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00213A527049B46A73F13651388CF6CDF5F7115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391182   (781010) от 20.06.2020
+
+Black Eyed Peas - Translation (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rap>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_781010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RITMO (Bad Boys For Life) (feat. J Balvin) (03:34)
+02. FEEL THE BEAT (feat. Maluma) (03:57)
+03. MAMACITA (feat. Ozuna & J. Rey Soul) (04:11)
+04. GIRL LIKE ME (feat. Shakira) (03:42)(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F27E2D8EC2CD2E25759DFB553C2DFDDFC055709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391379   (780981) от 20.06.2020
+
+Вахтанг Кикабидзе - Лучшие песни (2001) [FLAC|Lossless|tracks + .cue]<Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RetroПродолжительность: 01:00:50Трэклист: 01. Мои года, мое богатство
+02. Проводы любви
+03. Пожелание
+04. Останься, молодость(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE62488E5BC3A7B45ECD1E5FC75AE00F2B8823A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391382   (780958) от 20.06.2020
 
 Sade - Collection 6 Albums (1984-2010) Originals & Remasters [FLAC|Lossless|tracks + .cue] <Pop, Smooth Jazz, Soul>
@@ -451,296 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:163C37050EDF5FC8737B2BDAFD2FD0AD8BF7C1DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208490   (779963) от 22.02.2018
-
-Маша Распутина - Синий понедельничек (1994) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Синий понедельничек
-02 Я ходила по небу
-03 Ты любовь моя не первая
-04 Драгоценная тайна(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CCAD6E28C9BE76D0D5273D7613364A55F06CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208756   (779742) от 23.02.2018
-
-Юрий Шатунов - Не молчи... (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. С Днём Рождения
-02. Одноклассники
-03. И я под гитару
-04. Не молчи(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAD4AC422649C16379F50A808029E79A5C23327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884459   (779715) от 23.02.2018
-
-Любэ - За тебя Родина-Мать! (2015) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. За тебя, Родина-Мать
-02. За бортом
-03. Долго
-04. Якоря(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F3D342C97E2B51B777EF3841F556E61D35F5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209084   (779666) от 24.02.2018
-
-Totally Mild - Her (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky 04:00
-02. Pearl 03:31
-03. Working Like a Crow 04:05
-04. From One Another 02:54(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Dream PopПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DAF4CBE8EFD0BE605796B77523623AB3454DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208993   (779636) от 24.02.2018
-
-A-Teens - Feelings (2007) [MP3|320 Kbps] <Pop, Europop, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (A-Teens Are Back)
-02. I Promised Myself (The Attic Radio Version)
-03. Dancing Queen (Pierre J's Main Radio Mix)
-04. Mamma Mia (Guiseppe Remix)(   Читать дальше...   )Жанр: Pop, Europop, EurodanceПродолжительность: 01:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EB17A4AC4CA69F65C753C024D8B8777EE73532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209002   (779619) от 24.02.2018
-
-Алиса Вокс - Новая Алиса Вокс (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Новая
-02. Нить
-03. Фейерверк
-04. Не хочу(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0BE65AAB1ADED865A9D5F8D8D6DCD488C1F0021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209021   (779612) от 24.02.2018
-
-Юрий Шатунов - Не молчи... (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. С Днём рождения (4:18)
-02. Одноклассники (3:51)
-03. И я под гитару (3:48)
-04. Не молчи... (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD4088652FB489DE79A9C97FA4F065FE55A2BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209147   (779542) от 25.02.2018
-
-Trace Adkins (Трэйси Эдкинс) - Something's Going On (2017) Wheelhouse Records, BBR Music Group [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трэйси Эдкинс - американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. Ain't Just the Whiskey Talkin' 3:26
-02. Jesus and Jones 3:46
-03. Watered Down 3:08
-04. Something's Going On 3:48(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF8AC58CF61E81A1E4DED0C82E996EE5D018577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209146   (779541) от 25.02.2018
-
-Trace Adkins (Трэйси Эдкинс) - Comin' On Strong (2003) Capitol Records Nashville [MP3|320 Kbps] <Country, Country Rock, Folk Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трэйси Эдкинс - американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. Hot Mama 3:21
-02. Comin' On Strong 3:02
-03. Then Came The Night 4:38
-04. I'd Sure Hate To Break Down Here 4:01(   Читать дальше...   )Жанр: Country, Country Rock, Folk RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71615EB86C1013AB62373AC9D78AD7593CE878F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209259   (779531) от 25.02.2018
-
-Trace Adkins (Трэйси Эдкинс) - The King's Gift: A Celtic Christmas Collection (2013) Caliburn Records [MP3|320 Kbps] <Country, Country Rock, Folk Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трэйси Эдкинс — американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. The Wexford Carol 3:53
-02. Tannenbaum 3:49
-03. O' Come Emmanuel 5:17
-04. Away In A Manger 3:20(   Читать дальше...   )Жанр: Country, Country Rock, Folk RockПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76524274F34BCEBF7CB0EE7748A0BE507BF557B
 ```
 
 https://mybot314.ru/tekegram_catalog/

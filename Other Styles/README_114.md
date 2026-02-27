@@ -1,3 +1,61 @@
+###  Публикация: 1156546   (527004) от 08.08.2017
+
+Tatanka - Vol 4 (2006) [MP3|256 Kbps] <Native american, Ethnic, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mi Negrita   [4:23]
+02. Night Bird    [3:51]
+03. Rain Dance  [3:59]
+04. Wayrapa - Muspuynin [6:26](   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDA46DE663BBE9A08A0BE4E0D8A61C45F9CEA07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052938   (526692) от 16.09.2016
+
+Liam Bradbury - Pagan Earth (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Initiation Ritual [00:02:11]
+02. The Wind Speaks My Name [00:03:08]
+03. The Triple Goddess [00:02:54]
+04. Raise the Fire [00:02:31](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE09780271A085A1BB1A0596B65E1A92058642FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156770   (526403) от 09.08.2017
 
 VA - For Sentimental Reasons: Great Instrumentals (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
@@ -684,70 +742,6 @@ Kevin Monaco - Endless Sky (2018) [MP3|320 Kbps] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAAA5CDDB7A9948EF2730499F87311FF71C9CB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241643   (519197) от 18.08.2018
-
-Atom Music Audio - Urban Warfare: Action Sci-Fi Epic Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Urban Warfare [02:19]
-02. Chaotic Dream [02:06]
-03. Champion [02:48]
-04. Ready to Launch [04:00](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209B01B71DB8E78245AF4D0DA86FB294FCDE551D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534897   (518695) от 14.08.2012
-
-Wayra Nan - Music Zum Traumen (2012) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518695.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:29) 01. Sounds of Silence
-(5:05) 02. Hey Jude
-(5:28) 03. Chiquitita
-(5:09) 04. Tornero
-(4:24) 05. The Chrildren of Kosovo
-(4:59) 06. My heart will go on
-(4:22) 07. Tranen lugen nicht
-(5:10) 08. Wind of Change
-(4:47) 09. Der Einsame Hirte
-(4:19) 10. Tema para jovenes enamorados(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1ACBEECF6B928C6A3C26129EE0D17562F61105
 ```
 
 https://mybot314.ru/tekegram_catalog/

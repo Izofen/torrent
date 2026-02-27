@@ -1,3 +1,32 @@
+###  Публикация: 968080   (158171) от 22.12.2015
+
+Карандаш - Монстр (2015) [MP3|320 кб/с] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вернулся
+02. Много Лет
+03. Отражение (feat. Пицца)
+04. Кольцо (skit)(   Читать дальше...   )Жанр: RapПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D387ED7626DCE2B2B96716000BE649C235854CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270605   (157548) от 19.12.2018
 
 Swizz Beatz - Poison (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Conscious, Trap>
@@ -728,35 +757,6 @@ Usher - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk, R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB29F03CDA94C4CE66F9783E66BA8305B63CF278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699740   (117711) от 14.02.2024
-
-Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) [FLAC|Lossless|WEB-DL|tracks] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up, Stand Up (3:18)
-02. Roots, Rock, Reggae (3:37)
-03. I Shot The Sheriff (4:42)
-04. No More Trouble (3:58)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF015636699C691C9258C717D5B7AF4321180F41
 ```
 
 https://mybot314.ru/tekegram_catalog/

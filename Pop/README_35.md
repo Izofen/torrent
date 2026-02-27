@@ -1,3 +1,299 @@
+###  Публикация: 975349   (973195) от 14.01.2016
+
+Julio Iglesias - Tango (1996) [FLAC|Lossless|tracks + .cue] <Ballad, Vocal, Tango>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Cumparsita (2:35)
+02. El Dia Que Me Quieras (3:01)
+03. A Media Luz (2:43)
+04. Volver (3:34)(   Читать дальше...   )Жанр: Ballad, Vocal, TangoПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F4BD3A11BFD6348A0390CCB88271C1B36057DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357757   (973168) от 04.02.2020
+
+East Coast - East Coast (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet The Beat (7:08)
+02. I Count The Tears (5:22)
+03. Between You And Me (3:31)
+04. The Rock (7:00)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4871CDC8D7545237F3BBB27BBA87D5F7D430E279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743869   (973144) от 10.01.2014
+
+VA - All Woman - 18 Greatest Hits (1994) [FLAC|Lossless|tracks  + .cue]<Pop, Love Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lisa Stansfield - All Woman (04:50)
+ 02. Beverley Craven - Holding On (03:51)
+ 03. Cathy Dennis - Too Many Walls (04:30)
+ 04. Anita Baker - Sweet Love (04:22)(   Читать дальше...   )Жанр: Pop, Love BalladПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCE761637CF224D6A9FA1F7164BAEE67EBCA0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975015   (973117) от 14.01.2016
+
+Vanessa Paradis - M & J (1988) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marilyn Et John [05:48]
+ 02. Maxou [03:50]
+ 03. Le Bon Dieu Est Un Marin [04:28]
+ 04. Mosquito [04:21](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA239F02B02D3C606120339963FE57E3A2F8E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357598   (973084) от 04.02.2020
+
+Murray Head - Emotions (My Favourite Songs) (2005) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Ballad, 70s-90s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Even Thought (4:51)
+ 02. Say It Ain't so, Joe (4:29)
+ 03. Make It Easy (3:21)
+ 04. Corporation Corridors (3:47)(   Читать дальше...   )Жанр: Pop-Rock, Ballad, 70s-90sПродолжительность: 01:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F131268927C435D96FA2F9558BB393EFBC3C87F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357487   (973078) от 04.02.2020
+
+London Boys - Playlist: The Best of London Boys (2016) Compilation [FLAC|Lossless|WEB-DL|tracks] <EuroDisco, EuroPop, 80s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Requiem (4:18)
+ 02. London Nights (4:02)
+ 03. Harlem Desire (3:46)
+ 04. My Love (3:05)(   Читать дальше...   )Жанр: EuroDisco, EuroPop, 80sПродолжительность: 01:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2298AEC7F5D5BADC4C1DBEA288F06F5AF0EEBC5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357763   (973076) от 04.02.2020
+
+Kovacs - Cheap Smell (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Priceless (03:47)
+02. Adickted (03:16)
+03. It's the Weekend (03:33)
+04. Freakshow (03:18)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189D142B019EC26B579870EB2DBC3EB320FF6E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975124   (973036) от 14.01.2016
+
+Julio Iglesias - Noche De Cuatro Lunas (2000) [FLAC|Lossless|tracks + .cue] <Ballad, Chanson, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gozar la vida (3:46)
+02. Dia a día (4:36)
+03. Me siento de aquí (4:30)
+04. Te voy a contar mi vida (4:55)(   Читать дальше...   )Жанр: Ballad, Chanson, VocalПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97775E043B89A3203CC52BE28217F94292CB8C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357730   (973004) от 04.02.2020
+
+Chris De Burgh - Now and Then (2008) Compilation [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Pay The Ferryman (3:25)
+ 02. Missing You (4:07)
+ 03. The Lady In Red (4:15)
+ 04. Live For The Day (with Tina Yamout) (3:22)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A0B4C89FE7B1508A28536E43913100B305EEC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616290   (972397) от 12.02.2013
+
+VA - Greatest Ever - Memories - The Definitive Collection (2006) [MP3|320 кб/с]<Oldes>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buddy Holly - Peggy Sue [02:32]
+02. Ray Charles - Kissa Me Baby [03:10]
+03. Carl Perkins - Blue Suede Shoes [02:15]
+04. Rosemary Clooney with Perez Prado & his Orchestra - Sway [02:23]
+05. Everly Brothers - Wake Up Little Susie [02:01]
+06. Patsy Cline - Walkin' After Midnight [02:33]
+07. Connie Francis - Lipstick On Your Collar [02:18]
+08. Jerry Lee Lewis - Great Balls Of Fire [01:53]
+09. The Chordettes - Mr Sandman [02:23]
+10. The Big Bopper - Chantilly Lace [02:24](   Читать дальше...   )Жанр: OldesПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD975ED6B83FBF90B348E818B5683019DE4FCE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975661   (972099) от 15.01.2016
 
 VA - All the Hits Now 2001 Italia (2001) [FLAC|Lossless|tracks + .cue] <Italian Pop>
@@ -461,296 +757,6 @@ Richard Marx - Limitless (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BA40933B59414BAB679B56A1338EFD8D27A7B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358286   (969692) от 07.02.2020
-
-Юлия Савичева - CLV (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969692.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Иди вперёд
-2. CLV (Селяви)
-3. Забудь
-4. Тик-так(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8FE8D07978FA7CF827580087C753CF474237220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976157   (969668) от 17.01.2016
-
-Everything But The Girl - Temperamental (1999) Remastered, 2015, Edsel Records, Deluxe Edition: 2CD [FLAC|Lossless|tracks + .cue] <Downtempo, Deep House, Pop, Drum n Bass>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five Fathoms (6:24)
-02. Low Tide Of The Night (4:45)
-03. Blame (6:18)
-04. Hatfield 1980 (5:13)(   Читать дальше...   )Жанр: Downtempo, Deep House, Pop, Drum'n'BassПродолжительность: 02:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD677A788A3CD997BAEF0E588DD935531D1B4FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976378   (969656) от 17.01.2016
-
-Everything But The Girl - Walking Wounded (1996) Remastered, 2015, Edsel Records, Deluxe Edition: 2CD [FLAC|Lossless|tracks + .cue] <Downtempo, House, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before Today (4:18)
-02. Wrong (4:37)
-03. Single (4:39)
-04. The Heart Remains A Child (3:50)(   Читать дальше...   )Жанр: Downtempo, House, Electro, Drum'n'Bass, PopПродолжительность: 02:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95092861A71AD2FDDBD81D1106042E49905499D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358260   (969646) от 07.02.2020
-
-VA - 100 Greatest Easy Listening Classics (2020) [MP3|320 Kbps] <Pop, Rock, Jazz>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969646.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Percy Faith - The Theme from "A Summer Place"
-002. Frank Sinatra - Strangers In The Night
-003. Perry Como - Magic Moments
-004. BJ Thomas - Raindrops Keep Falling On My Head(   Читать дальше...   )Жанр: Pop, Rock, JazzПродолжительность: 05:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84FE0F6D19741AE3A0FFEBBDD7AC2BC6701C1389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358200   (969635) от 07.02.2020
-
-Kovacs - Shades Of Black (2015) 2 CD Limited Dutch Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, Soul, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (02:09)
-02. Whiskey And Fun (04:48)
-03. 50 Shades Of Black (03:17)
-04. Night Of The Nights (03:48)(   Читать дальше...   )Жанр: Indie Pop, Soul, JazzПродолжительность: 01:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD7FD015D95045E6D5E90DFEA7E85825EE45401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358256   (969565) от 07.02.2020
-
-Cerrone - DNA (2020) [FLAC|Lossless|WEB-DL|tracks] <Disco, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Impact (5:34)
- 02. Resolution (3:48)
- 03. Air Dreaming (4:46)
- 04. DNA (5:31)(   Читать дальше...   )Жанр: Disco, ElectroПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A43A84D824152BA68B95B51E8D485416F3C1720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358262   (969558) от 07.02.2020
-
-Натали - Новые 80-е (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969558.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Первый луч
-2. Вот так
-3. Я люблю тебя
-4. Грустные истории(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0B9418E29F06AA5ADB24D753282B1E0BA5B8F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358268   (969489) от 07.02.2020
-
-Savage - Love And Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Second of My Life (Ouverture)
-02. Don't Say You Leave Me
-03. I Love You (Radio Version)
-04. Italodisco(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1707C2FFCC84E3736C53753C7A145CE8E39C4576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358261   (969482) от 07.02.2020
-
-Artik & Asti - 7 (Part 2) (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969482.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Последний поцелуй
-2. Все мимо
-3. Чувства
-4. Девочка, танцуй(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD99CE6F7D626F3A570AB0F103BBAE6182DAD8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358567   (968752) от 08.02.2020
-
-Asgeir - Bury The Moon (2020) Ásgeir [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pictures                                                              [03:58]
-02. Youth                                                                 [03:30]
-03. Breathe                                                               [03:15]
-04. Eventide                                                              [03:48](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B2CE6A62C1F542DC2C000EE036756E833B2524
 ```
 
 https://mybot314.ru/tekegram_catalog/

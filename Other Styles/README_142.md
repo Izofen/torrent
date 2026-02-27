@@ -1,3 +1,61 @@
+###  Публикация: 1180277   (341973) от 03.11.2017
+
+ERA - The 7th Sword (2017) [MP3|320 Kbps] <New-Age, Ethereal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricane 03:16
+02. 7 Seconds 04:03
+03. Kilimandjaro (Brian Levi Remix) 03:59
+04. Ameno (The City Remix) 03:35(   Читать дальше...   )Жанр: New-Age, EtherealПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE98FF839B744A95A057E4B70B8BB5E940F81A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330298   (341283) от 10.10.2019
+
+VA - Modern Sound Orchestras - Morning Has Broken (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Has Broken (3:36)
+02. Always On My Mind (3:51)
+03. Bright Eyes (3:40)
+04. Moon At Noon (3:52)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976D8FAF52FDDC1A4258C5A34461384E7AD5208B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578222   (341076) от 25.09.2022
 
 Phil Thornton - Rhythm of the Rainforest (2009) [FLAC|Lossless|tracks + .cue] <New Age>
@@ -687,64 +745,6 @@ Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A30C8CE9154777400D85FA1D723887BE0ACCB34D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179966   (337771) от 05.11.2017
-
-Room Of Voices - Casbah (2017) [MP3|320 Kbps] <Electronic, World>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirror Mirror (5:08)
-02. I Got You Inmymind (4:37)
-03. Lost off Shore (6:47)
-04. Calling Out (7:57)(   Читать дальше...   )Жанр: Electronic, WorldПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3328E50F6AE3DBF430E7C88E7965E9C6E1358C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180627   (337762) от 05.11.2017
-
-Kai Rosenkranz - Risen (Game Soundtrack) (2009) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Risen Title Theme
-02. The Beach
-03. The Beach - Fight
-04. The Island(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E00FDAF1C5A63E17E34EE3B46033F05BCF6C6AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

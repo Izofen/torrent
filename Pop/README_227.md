@@ -1,3 +1,289 @@
+###  Публикация: 1073334   (347410) от 15.11.2016
+
+Christophe Mae - L'Attrape-Reves (2016) Edition Collector [MP3|320 Kbps] <French Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  L'attrape-reves  (04:00) 
+  02|  La Parisienne  (03:26) 
+  03|  Californie  (03:51) 
+  04|  Il est ou le bonheur  (04:10) (   Читать дальше...   )Жанр: French Pop, ChansonПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B17AD62F90D1E96CEA9CCFE2ED941AE4F59754B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179410   (347107) от 01.11.2017
+
+George Maple - Lover (2017) [MP3|320 Kbps] <Pop, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_347107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Be A Lover feat. Axel Morgan & Trevor Abbott (Intro)
+02. Sticks And Horses feat. GoldLink
+03. LA Stripclub
+04. Romancandy(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C04CFC0EBF1138586B847CB51343D6146479865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953772   (346976) от 05.11.2015
+
+Oxford Drama - In Awe (2015) [OGG| 428-494 кб/с]<Indie Pop, Downtempo, Electronic, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Sea
+02. What Matters
+03. Preserve
+04. I Have Saved All of My Photographs (Of the Ones I Love)(   Читать дальше...   )Жанр: Indie Pop, Downtempo, Electronic, Female VocalПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493FBD11741DE8763466B253EA38498555714347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953677   (346969) от 05.11.2015
+
+The Piccadilly Teardrops - Died in Your Eyes (2015) [OGG|446-491 кб/с]<Synthpop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Struggle
+02. Got Your Back
+03. Drag You Off the Dancefloor
+04. The Piccadilly Teardrops(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F572FBE0CDA91CCE56F3FABEDECEBBB7529B454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418784   (346797) от 25.10.2020
+
+Was (Not Was) - 5 Studio Albums (1981-2008) CD Collection [MP3|320 Kbps] <Electronic, Disco, Alternative Rock, Synth-pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Was (Not Was) - американская поп-рок-группа, основанная в 1979 году в Детройте, штат Мичиган, Дэвидом Вайсом и Доном Фагенсоном, которые приняли сценические имена David Was и Don Was. Каталог их песен представляет собой эклектичное сочетание поп-и рок-стилей, часто с участием приглашенных музыкантов со всего музыкального спектра.Список альбомов:
+1981 - Was (Not Was)
+1983 - Born To Laugh At Tornadoes
+1988 - What Up, Dog?(   Читать дальше...   )Жанр: Electronic, Disco, Alternative Rock, Synth-pop, HouseПродолжительность: 03:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D755B68121B6B0604E10D9B7BD9A5E36E2F961A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179543   (346686) от 01.11.2017
+
+John The Whistler - It's Crazy (2000) [APE|Lossless|image + .cue] <Eurodance, Europop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm In Love (3:30)
+02. Tell Me (3:17)
+03. She's My Girl (3:27)
+04. Saturday Night (3:54)(   Читать дальше...   )Жанр: Eurodance, EuropopПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC5E5FD4BD81CABDA2CA2D691E66504AEB2C252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953863   (346604) от 05.11.2015
+
+Ellie Goulding - Delirium (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Delirium) (01:55)
+02. Aftertaste (03:46)
+03. Something In The Way You Move (03:48)
+04. Keep On Dancin' (03:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2153BFA97AF5AA61C23804C30EC1F9619158E2C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073391   (345707) от 16.11.2016
+
+Quartz - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский диско-трио-проект. Участники: Didier Plus, Laurent Taieb, Patrick Langlade.01. Quartz (12:56)
+02. Beyond The Clouds (5:05)
+03. For Geromine (4:27)
+04. Chaos (6:09)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF0EA39B1AB3204CA712A238DB1E8400229419C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073664   (345702) от 16.11.2016
+
+Computer - Come And Dance (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Soul, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прогрессивный, особенно для тех лет, первый из двух, мини-альбом французской команды, в составе из Gerard Salesses и Jean-Francois Porry.01. Come And Dance (4:40)
+02. The Loco-Motion (2:48)
+03. Nobody Loves A Computer Because A Computer Does Not Dance (14:32)Жанр: Electronic, Disco, Funk-Soul, ElectroПродолжительность: 00:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0DD84D990441323BC56C2B3E1DC3B963EBEB89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257207   (345344) от 12.11.2010
+
+Андрей Алексин - Дискография (2001-2010) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_345344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 05:54:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257395   (345200) от 26.10.2018
 
 Леонид Агутин - 50 (2018) [MP3|320 Kbps] <Pop>
@@ -455,296 +741,6 @@ Chantereau, Dahan & Pezin - Disco & Co  (vol. 1-3) (1979) 3 LP [MP3|320 Kbps] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBF58A18D74CDBE434A38ECC9029C9C25D0B4885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257885   (343137) от 27.10.2018
-
-VA - MNM Back To The 90s & Nillies The Party Edition (2018) 2CD [MP3|320 Kbps] <Eurodance, Disco, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343137.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Scooter - How Much Is The Fish?
-02. 3 Doors Down - Kryptonite
-03. Leila K - Open Sesame(   Читать дальше...   )Жанр: Eurodance, Disco, PopПродолжительность: 02:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A758CB07B50C80FDC1371DC15A65F74D3CE3B95E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257746   (343118) от 27.10.2018
-
-VA - А у нас во дворе... (2005) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моя любовь на пятом этаже ( Секрет )
-02. Осень ( Лицей)
-03. Кто виноват ? ( Воскресение )
-04. Галя ( Ивана КУпала )(   Читать дальше...   )Жанр: РорПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A34744B7C2EDEE92DAB4444C59258EDDFDA0744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257838   (342944) от 27.10.2018
-
-VA - 100 Hits - 80s Pop (2017) 5CD [MP3|320 Kbps] <80s, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342944.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Dead Or Alive - You Spin Me Round (Like A Record)
-02. Haircut 100 - Fantastic Day
-03. Bros - I Owe You Nothing(   Читать дальше...   )Жанр: 80s, Pop, RockПродолжительность: 06:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326BD5C5E271E792DE50BFA03CF4C3269C29DAF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180264   (342643) от 03.11.2017
-
-DJ Friction present Ground Control - Boogie Some More (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night Long (feat David Whitley – extended mix) 05:15
-02. Boogie Some More 04:22
-03. Love Fever (feat Tansy Davis & CJ) 04:50
-04. Step Out Of The Dark (feat David Whitley) 04:02(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786490C6726563580EDD082D140E5550D7D2D972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179979   (342520) от 03.11.2017
-
-Dee Dee - Loving You (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственный полноформатный, малоизвестный в СССР, но весьма неплохой альбом голландской исполнительницы Dee Dee (настоящее имя Anna Dekkers).01. I Put A Spell On You (5:08)
-02. Hold Me (3:16)
-03. Loving You (6:07)
-04. Do Your Loving Right (3:17)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B65BF6F6C46AD6935830C9E67642B79B464FA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580538   (342462) от 25.11.2012
-
-Adriano Celentano - Unicamentecelentano (2011) [FLAC|Lossless]<Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_342462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если перевести с итальянского название диска, то оно звучит как "Только Челентано". В отличии от 3-х боксового сета 2006 года с таким же названием, в сборнике 2011 года лишь один диск. Я бы назвал его "Unicamente Super-Celentano"01. C'e Sempre Un Motivo    [0:05:25]
-02. Io Sono Un Uomo Libero    [0:05:48]
-03. Le Stesse Cose    [0:05:42]
-04. L'Emozione Non Ha voce (Io Non So Parlar D'Amore)    [0:04:08](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954264   (342291) от 07.11.2015
-
-Kate Boy - One (2015) [MP3|320 кб/с]<Alternative, Synthpop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Sun (03:03)
-02. Northern Lights (03:35)
-03. Lion For Real (04:33)
-04. Human Engine (04:46)(   Читать дальше...   )Жанр: Alternative, Synthpop, Indie PopПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68B09EEAB00E5667D16F07F79BB3C755FF7AE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419289   (342189) от 27.10.2020
-
-Interface - Plastic Age (2020) Unofficial [MP3|320 Kbps] <Synthpop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plastic Age (12'' Version) (6:47)
-02. Like Puppets (12'' Version) (5:27)
-03. Plastic Age (Male Vocal Mix) (8:00)
-04. Like Puppets (7'' Version) (3:49)(   Читать дальше...   )Жанр: Synthpop, Italo-DiscoПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6146375674050C5CD93A8D132D20B751B97211F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954537   (342153) от 07.11.2015
-
-Bjork - Vulnicura Strings (2015) [MP3|320 кб/с]<Pop, Experimental, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mouth Mantra
-02. Lionsong
-03. Black Lake
-04. Atom Dance(   Читать дальше...   )Жанр: Pop, Experimental, AcousticПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61FF050EFCB33B7E373BBBE68DDEB34CC54D1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419172   (342058) от 27.10.2020
-
-Amadeus Liszt - Win The Race (2020) Unofficial [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Win The Race (12'' Version) (7:58)
-02. The Devil Wins (12'' Version) (5:51)
-03. La Donna (Crazy Disco Version) (6:28)
-04. Derby (Single Version) (2:25)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A0244D15891CFD4EFB9AFE619C13062FC460F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

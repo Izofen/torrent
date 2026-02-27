@@ -1,3 +1,59 @@
+###  Публикация: 1202735   (785302) от 04.02.2018
+
+Sagor Som Leder Mot Slutet - 2 Альбома (2016-2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785302.jpg" />
+</div>
+
+
+###  Подробнее
+
+2016 - Sagor Som Leder Mot Slutet
+2018 - IIЖанр: Post-Rock, Post-Metal, InstrumentalПродолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E46F460A72B5BDAD61CB726E57C0EF103E1867C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203876   (785196) от 04.02.2018
+
+ДиДюЛя - Пещерный город Inkerman (2006) [FLAC|Lossless|tracks + .cue] <Flamenco, Ballad>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайна скал, ветров туман
+02. Пещерный город Инкерман
+03. Таял звук по капле где-то
+04. Винил крутил времён вендетту(   Читать дальше...   )Жанр: Flamenco, BalladПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD46E8C0F86EE47A08037105A83F3711084D256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204613   (784350) от 07.02.2018
 
 Armik - Romantic Spanish Guitar Vol. 3 (2016) [FLAC|Lossless|image + .cue] <Instrumental, Nuevo Flamenco>
@@ -681,64 +737,6 @@ Brandi Carlile - By the Way, I Forgive You (2018) [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F015A25286819CBEB3708EB70D2FE06A2EAD2ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208188   (780097) от 21.02.2018
-
-Guido Negraszus - Night Cafe III (Freedom Travellers) (2012) Guido Negraszus Music [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Guido Negraszus - немецкий композитор, музыкант, продюсер и аудио-инженер в одном лице, живет в красивом предместье на юго-западе города Busselton в Западной Австралии. Изначально начинал как музыкант электронной музыки, но постепенно пришел к своему собственному стилю: универсальному многожанровому звуку. С 1990 года он выпустил много студийных альбомов в жанрах (   Читать дальше...   )01. The Glory 4:27
-02. Travellers of the Skies 5:37
-03. Kiting Dreamers 4:48
-04. Young Heroes (Olympic Dreams) 3:25(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E555511FFBBBA9D81C2421CB7B477918AFD915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207995   (780078) от 21.02.2018
-
-David Wahler - Mosaic (2018) [MP3|320 Kbps] <New age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mosaic (5:56)
-02. Afterain (4:19)
-03. A Promise to Keep (5:47)
-04. Child of the Universe (5:51)(   Читать дальше...   )Жанр: New age, Relax, InstrumentalПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671D9086F190FCC92F3097B07DE42F0776A2320A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,305 @@
+###  Публикация: 1241420   (520122) от 17.08.2018
+
+Ariana Grande - Sweetener (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raindrops (An Angel Cried)
+02. Blazed (feat. Pharrell Williams)
+03. The Light Is Coming (feat. Nicki Minaj)
+04. R.E.M(   Читать дальше...   )Жанр: Pop, Hip-Hop, R&BПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5265E9B81CE76C356B2CBEE9587BD12224CA55C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241501   (520051) от 17.08.2018
+
+Ariana Grande - Sweetener (2018) [MP3|320 Kbps] <Pop, R&B, Hip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. raindrops (an angel cried) (00:38)
+02. blazed (Feat. Pharrell Williams) (03:17)
+03. the light is coming (Feat. Nicki Minaj) (03:49)
+04. R.E.M (04:06)(   Читать дальше...   )Жанр: Pop, R&B, Hip-HopПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39F722AED986E98F0D7BBCAE1AA47F68090665D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534304   (519937) от 13.08.2012
+
+VA - Th'is 70's - Disco, Glam & Soul (2011) 3CD[FLAC|Lossless]<Pop / Disco, Glam & Soul>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teddy Pendergrass - Close the Door [04:41]
+02. The Pipkins - Gimme Dat Ding [02:09]
+03. Pilot - Magic [02:58]
+04. Paul Revere & The Raiders - Indian Reservation [02:51]
+05. Rose Royce - I Wanna Get Next to You (Live) [03:33]
+06. Santana - Evil Ways (Live) [04:07]
+07. Sister Sledge - We Are Family (Live) [03:13]
+08. Hurricane Smith - Oh Babe What Would You Say [03:25]
+09. The Spinners - Then Came You (Live) [02:37]
+10. Pilot - January [03:29](   Читать дальше...   )Жанр: Pop / Disco, Glam & SoulФормат: 3CD BoxSetПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928993   (519544) от 19.08.2015
+
+VA - Simply The Best: Voices (2013) 3CD [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Give Me A Reason (P!nk Ft. Nate Ruess) [04:04]
+02. Beneath Your Beautiful (Labrinth Ft. Emeli Sande) [03:58]
+03. Impossible (James Arthur) [03:29]
+04. Who You Are (Jessie J) [03:51](   Читать дальше...   )Жанр: PopПродолжительность: 03:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B2E574F60EB5EA29A9A8B5A7F2E92F30551B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314515   (519442) от 14.07.2019
+
+Tuxedo Junction - 2 Albums (1977, 1979) Reissue CD, 1995, Unidisc  [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студийный проект задуман в 1977 году как одна из первых постановок от A. J. Cervantes' newborn Butterfly Records и спродюсирован талантливым дуэтом Rinder & Lewis.01. Chattanooga Choo Choo (6:55)
+02. Rainy Night In Rio (6:49)
+03. Moonlight Serenade (5:42)
+04. Fox Trot (3:13)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 01:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88FCF4E1B27A13D5F50706690CEFFBE25B19A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314427   (519370) от 14.07.2019
+
+VA - Die Grosse 90er Sause - Alle Starken Hits Der 90er (2019) [MP3|320 Kbps] <Dance, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Technotronic - Pump Up The Jam (Edit)
+02. Mr. President - Coco Jamboo (Radio Version)
+03. Eiffel 65 - Blue (Da Ba Dee) (DJ Ponte Ice Pop Radio)
+04. Snap! - The Power(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 02:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E791380B965FC6942417ADCA09EB5B569767B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314349   (519361) от 14.07.2019
+
+VA - Stevie Wonder Covers (2019) [MP3|320 Kbps] <Pop, Rock, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519361.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Red Hot Chili Peppers - Higher Ground (Remastered) (3:22)
+2.Blackstreet - Love's In Need (4:41)
+3.The Jackson 5 - Don't Know Why I Love You (3:49)
+4.Syreeta - I Love Every Little Thing About You (4:56)(   Читать дальше...   )Жанр: Pop, Rock, Funk, SoulПродолжительность: 01:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBABC268E5689FB3C2899FDD96A5A79880706339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241555   (519292) от 18.08.2018
+
+VA - Wearmada Ibiza Pool Party (Extended Versions) (2018) [MP3|320 Kbps] <House, ElectroHouse,Trance, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loud Luxury feat. Brando - Body (Orjan Nilsen Extended Remix) 4:44
+02. Armin Van Buuren - Blah Blah Blah (Bassjackers Extended Remix) 4:18
+03. Afrojack vs. Jewelz & Sparks - One More Day (Nicky Romero Extended Remix) 5:22
+04. Lost Frequencies feat. James Blunt - Melody (ANGEMI Extended Remix) 4:21(   Читать дальше...   )Жанр: House, ElectroHouse,Trance, DanceПродолжительность: 02:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B49158F0A3D8A9BB48C4308CFEA31CB4AC08D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534512   (518745) от 14.08.2012
+
+Maroon 5 - Overexposed (2012) [FLAC|Lossless]<Pop, Soft-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Night
+02. Payphone (Feat. Wiz Khalifa)
+03. Daylight
+04. Lucky Strike
+05. The Man Who Never Lied
+06. Love Some Body
+07. Lady Killer
+08. Fortune Teller
+09. Sad
+10. Tickets(   Читать дальше...   )Жанр: Pop/Soft-RockПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241760   (518355) от 19.08.2018
+
+VA - Top Of The Pops - Groove, Hip Hop & Rnb (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Ii Soul, Caron Wheeler - Back To Life (However Do You Want Me) (Remastered)
+02. Arrested Development, Speech, Rasa Don, Headliner, Aerle Taree Jones - People Everyday
+03. Diana King - Shy Guy
+04. Shabba Ranks, Chevelle Franklyn - Mr. Loverman (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 03:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB70125E5C66ACEF9EF188D365D7C51AC3AB6952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314507   (518186) от 15.07.2019
 
 VA - NRJ Beach Party (2019) [MP3|320 Kbps] <Pop>
@@ -453,302 +755,6 @@ Chris de Burgh - Footsteps (2008) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14A93C02950BF2765EE74E1C8362E839D667C528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242369   (515122) от 22.08.2018
-
-VA - Sunshine Live Vol. 65 (2018) 3CD [MP3|320 Kbps] <Tropical, Indietronica, Bass House, Electro, Bigroom, Nu Disco, Groove, Melodic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515122.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. El Profesor - Bella ciao (Hugel Remix)
-02. Lost Frequencies & James Blunt - Melody
-03. Afrojack X Jewelz & Sparks - One More Day(   Читать дальше...   )Жанр: Tropical, Indietronica, Bass House, Electro, Bigroom, Nu Disco, Groove, MelodicПродолжительность: 03:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5535632B4C028827AC0037CA350D19F59E76F4DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242477   (515121) от 22.08.2018
-
-Chris de Burgh - High On Emotion - Live from Dublin! (1990) Live [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Night (7:13)
- 02. Sailing Away (5:15)
- 03. The Revolution (4:03)
- 04. I'm Not Scared Anymore (4:40)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C2592561583FEC6BEFFC3BAEC2EF987FE2B91F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242410   (515048) от 22.08.2018
-
-VA - 101 Hits: Festival Headliners (2018) 5CD [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515048.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Stereophonics - Dakota
-02. Lordie - Green Light
-03. Sigma Feat. Paloma Faith - Changing(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F3F04C2B0AC21CD6357A6EF0EC7F124962E054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315191   (514850) от 18.07.2019
-
-Петр Лещенко, Вера Лещенко - Золотая коллекция, Ч. 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цыганочка моя (3:03)
- 02. Песня о Родине (Из к/ф "Цирк") (3:31)
- 03. Сердце мамы (2:56)
- 04. Сеньорита (3:22)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6108543F023EAD3B8A93735D9DED50897A5AB588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315203   (514846) от 18.07.2019
-
-Петр Лещенко - Золотая коллекция, Ч. 4 (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Блины (Дуня) (2:43)
- 02. Карие очи (3:09)
- 03. Метелица (2:45)
- 04. Ты едешь пьяная (3:31)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEAB06DBCE63E5147152A01A6F373E4954596B96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315188   (514837) от 18.07.2019
-
-Петр Лещенко - Золотая коллекция, Ч.1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Всё, что было (2:49)
- 02. Чёрные глаза (3:13)
- 03. Моё последнее танго (3:12)
- 04. Марфуша (2:59)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B47CE9A1BDD07B93EA600EC8CA4DD30BD0ABCE31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536465   (514272) от 18.08.2012
-
-VA - Best Of Dance '85 '86 '87 ZYX Music (1995-1997) [FLAC|Lossless]<Pop, Disco, Retro, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rick Astley - Never Gonna Give You Up [03:34]
-02. Delegation - Where Is The Love (We Used To Know) [04:18]
-03. OFF - Electrica Salsa [03:34]
-04. Man To Man Meet Parish - Male Stripper [04:06]
-05. Mel & Kim - Showing Out [05:10]
-06. Eddy Huntington - U.S.S.R. [03:26]
-07. Tina Charles - I Love To Love [03:06]
-08. Silver Pozzolli - Pretty Baby (Italo Boot Mix) [01:54]
-09. Albert One - For Your Love (Italo Boot Mix) [01:56]
-10. Solo - Harem (Italo Boot Mix) [00:56](   Читать дальше...   )Жанр: Pop, Disco, Retro, Italo-DiscoПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930872   (514096) от 24.08.2015
-
-Thompson Square - Just Feels Good (2013) Deluxe Edition[MP3|320 кб/с]<Pop, Pop-Rock, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything I Shouldn't Be Thinking About
-02. Here We Go Again
-03. You Don't Get Lucky
-04. That's So Me And You(   Читать дальше...   )Жанр: Pop, Pop-Rock, CountryПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54254C685B62D5D6FD2E78D068158A8C643BF505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242599   (514033) от 23.08.2018
-
-Chris de Burgh - Power of Ten (1992) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where We Will Be Going (4:30)
- 02. By My Side (4:25)
- 03. Heart Of Darkness (4:55)
- 04. In Your Eyes (4:40)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05D2385056ED5A43458BF0B6A0064343607C2ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242601   (514031) от 23.08.2018
-
-Chris de Burgh - Eastern Wind (1980) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Traveller (4:11)
- 02. The Record Company Bash (3:55)
- 03. Tonight (3:29)
- 04. Wall Of Silence (3:51)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1288A368CCDD54B33877A283092D717C5AB52B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

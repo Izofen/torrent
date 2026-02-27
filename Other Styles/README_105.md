@@ -1,3 +1,61 @@
+###  Публикация: 921823   (573699) от 26.07.2015
+
+Catherine Duc - Voyager (2015) [MP3|320 кб/с]<New Age, Ambient, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Owen's Boat
+02. Inishowen Dawn
+03. Vardo
+04. Mantra(   Читать дальше...   )Жанр: New Age, Ambient, CelticПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5408E3A8BE17A9659E2AD7BDECB020C09BF7143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921611   (573592) от 26.07.2015
+
+Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573592.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Parameshwara Mantra (Deep in Love) - 14:03
+2. Sarveshaam Mantra - 6:37
+3. Ganapati Mantra (Strong My Roots) - 7:20
+4. Karuna - 4:38(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A941B857E4FAA4506D831795656F682C5C866C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920759   (573573) от 26.07.2015
 
 Andrew Lockington - Землетрясение в Сан - Андреас / Разлом Сан-Андреас / San Andreas: Original Motion Picture Soundtrack (2015) [FLAC|tracks+.cue]<Soundtrack>
@@ -710,74 +768,6 @@ Erotic Moods - Эротические настроения (2004) [MP3|256 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8AC90EA649453CB4EE6595A916CB69FD3E415C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529103   (568809) от 30.07.2012
-
-101 Strings Orchestra - Audiophile Movie & Love Classic (2CD) (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568809.jpg" />
-</div>
-
-
-###  Подробнее
-
-101 Strings Orchestra - Оркестр 101-ой Скрипки
-Этот оркестр почти неизвестен в нашей стране. В отличие от часто звучащих оркестров Поля Мориа и Джеймса Ласта услышать его можно было только в передаче "Поющие меридианы", которую вел В.Сиверов.
-По данным Wikipedia оркестр был создан Дэвидом Миллером на основе Гамбургского оркестра Германского радио. В 1957 году выпустил свой первый альбом.
-101 Скрипка - это рекламная фишка. Реально музыкантов было больше.
-По своему составу это был, наверно, самый большой оркестр исполнявший музыку easy listening. Большое количество струнных создавало очень плотный приятный звук. Оркестр исполнял музыку в различной аранжировке, но, как правило, это была спокойная музыка.1. Quando, Quando, Quando (2:53)
- 2. Besame Mucho (3:53)
- 3. Fly Me To The Moon (3:42)
- 4. The Blue Danube (2:16)
- 5. Piano Sonata No. 8 (2:42)
- 6. Andante From Violin Concerto In E Minor (3:06)
- 7. Serenade (3:30)
- 8. Chopin's Nocturne (4:46)
- 9. Brahms' Lullaby (3:58)
- 10. Nocturne in E Flat Major, Op. 9, No. 2 (4:07)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9105CEA4D15D5D2EDC3D42E48C48A787E25121E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554691   (568748) от 04.06.2022
-
-Andy Jonas (Angel X) - Summer In Your Heart (1996) Maxi-Single [APE|Lossless|image + .cue] <Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Summer In Your Heart (radio version)
-02 Summer In Your Heart (rock house - radio mix)
-03 Summer In Your Heart (oceanal blue house mix)
-04 Do You Believe In LoveЖанр: Enigmatic, New AgeПродолжительность: 00:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BCC62B104EC74FFB3CD8D860FE6055B63CEA14
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,225 +1,22 @@
-###  Публикация: 1819461   (1433) от 22.09.2025
+###  Публикация: 1819007   (1800) от 20.09.2025
 
-Soziedad Alkoholika - Confrontación (2024) [FLAC|Lossless|image + .cue] <Metalcore, Thrash>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Control De Masas
-02. Colapso Final
-03. Somos Contradicción
-04. Traición(   Читать дальше...   )Жанр: Metalcore, ThrashПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E550A3496627D90CC49D8C3CEC3DDABFEEF0A907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819530   (1432) от 22.09.2025
-
-Surrender The Crown - Travails (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stand In Defiance [00:04:40]
-02. Signal In The Noise [00:04:53]
-03. Travails [00:04:25]
-04. Belong [00:04:34](   Читать дальше...   )Жанр: RockПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C9580B27C6377E88AD5BEDC9F2872C22D7D294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819491   (1431) от 22.09.2025
-
-Chet Baker - The Italian Sessions (1962) 1996, RCA-Victor [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Well You Needn't [6:25]
-02. These Foolish Things [4:59]
-03. Barbados [8:31]
-04. Star Eyes [7:02](   Читать дальше...   )Жанр: CoolПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:802DA72BA5BA9CC82CFEB8ADCFEF4A786790AEEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819516   (1430) от 22.09.2025
-
-Castle Rat - The Bestiary (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoenix I [00:02:15]
-02. Wolf I [00:04:37]
-03. Wizard [00:04:57]
-04. Siren [00:03:41](   Читать дальше...   )Жанр: Doom Metal, Heavy MetalПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7E556AB719813FCD57844B68131192198D8B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819517   (1429) от 22.09.2025
-
-Cruel Bomb - Cruel Bomb (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Crossover>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cruel Bomb (0:46)
-02 - Target Neutralized (3:06)
-03 - Hell Hounds (3:39)
-04 - AC-130 (3:07)(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3586081F3FD36C0A5F08428FEC9ACC95C52B0352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819445   (1428) от 22.09.2025
-
-Шрифты - Creative Market - ZT Ravigsfen - Grosteque - 91643999 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1428.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ландшафте дизайна, где доминируют современные достижения, ZT Ravigsfen становится ошеломляющим поворотным моментом. Этот гротескный шрифт без засечек, воспевающий стиль и смелость классической научной фантастики, переносит пользователей в путешествие во времени.
-
-Благодаря девяти вариантам плотности, от изящно-тонкого до выразительного чёрного, ZT Ravigsfen предлагает (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D334EE620BE9E35C08E3C19E8D3D5F0342117ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819543   (1427) от 22.09.2025
-
-Spinal Tap - The End Continues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nigel’s Poem [00:01:10]
-02. Let’s Just Rock Again [00:03:56]
-03. (Listen To The) Flower People [00:02:34]
-04. Brighton Rock [00:03:03](   Читать дальше...   )Жанр: RockПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7713B309C664CB34616DF12DF62C8453B5685F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819424   (1426) от 22.09.2025
-
-Николай Леонов, Алексей Макеев | Полковник Гуров. Черная кошка, Секреты, которые убивают (2025) [MP3, Артем Быков]
+Николай Леонов, Алексей Макеев | Полковник Гуров. Черная кошка. Полицейское дно (2020) [MP3, Сергей Кирсанов]
 
 >>Художественные аудиокниги и публицистика
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1426.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1800.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Легендарный детективный тандем Леонов – Макеев.
-К полковнику МВД Льву Гурову обращается вдова бизнесмена Марина Запьянцева. Неизвестные похитили ее дочь и требуют солидный выкуп. Времени на сбор денег – всего сутки, при этом никаких контактов с правоохранительными органами, иначе девочка будет убита. Гуров понимает: для такого жесткого требования нужны серьезные (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоПродолжительность: 06:57:24
+В городе Усть-Владимирске ведется успешная борьба с наркотиками. Однако, отчетность тамошних полицейских кажется руководству МВД показной. Разобраться в ситуации поручено полковнику Гурову. Он едет на место, где становится свидетелем попытки самоубийства дочери одного из оперативников. Что это – минутная человеческая слабость или роковое стечение обстоятельств? Девушка (   Читать дальше...   )Жанр: ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 06:36:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E22E19790BC5120BFDAAF907CE0B39AB71196F2
+magnet:?xt=urn:btih:DE8F7371D39A0326C6E19DB991DB3FEC1CA79CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,136 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819513   (1425) от 22.09.2025
+###  Публикация: 1819011   (1799) от 20.09.2025
 
-Шрифты - Creative Market - Bilgen | Geometric Sans - 92438207 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Bilgen — современный и элегантный шрифт, призванный вывести ваши дизайны на новый уровень. В 27 семействах шрифтов, от тонких до чёрных, этот шрифт предлагает широкий выбор начертаний для любого проекта. Его уникальные функции включают в себя блокировку, альтернативные варианты, лигатуры, капитель, числитель, знаменатель и сдвиг базовой линии, предоставляя (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C550B412AFC158ADFE9BEF6D88FBD5C0E8CC2356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819483   (1424) от 22.09.2025
-
-Шрифты - MyFonts - Aquavit [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aquavit — это высококонтрастный гротесковый шрифт, вдохновлённый органичными формами, плавными линиями и выразительными мотивами стиля ар-нуво. Сочетая в себе чёткость высококонтрастного гротеска с теплотой винтажного дизайна, Aquavit балансирует между сдержанной изысканностью и очарованием ручной работы.
-
-Слегка утяжелённый дизайн с тонкими каллиграфическими акцентами (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99818EF60EF2C80ACB269E03121AE349594422A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819539   (1423) от 22.09.2025
-
-VA - 25 Years Of Anjuna Mixed by Elevven (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maor Levi - Reflect (Original Mix) [8:28]
-02. Norin & Rad - Pistol Whip (Original Mix) [7:39]
-03. Gabriel & Dresden feat. Jan Burton - You (Myon & Elevven Extended Mix) [6:57]
-04. Andrew Bayer - Bullet Catch (Original Mix) [6:47](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57BD4FF1A59D9820A3C427EB7E0A5D6EBBEE519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819540   (1422) от 22.09.2025
-
-Ui Kits - UI8 - Oxtopus - Web3 Wallet Mobile App [FIG]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oxtopus — это элегантное и удобное мобильное приложение-кошелек, созданное для экосистемы Web3. Управляете ли вы несколькими криптовалютными активами, взаимодействуете с децентрализованными приложениями (dApps) или исследуете мир NFT, Oxtopus предоставляет безопасную и интуитивно понятную среду для всего этого.
-
-Благодаря понятному интерфейсу, удобной навигации и (   Читать дальше...   )Формат: FIG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B53DB5D590FA73A6AF16E667FBD275A254752AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819426   (1421) от 22.09.2025
-
-Валентин Ковалёв | Методы решения конфликтов (2004) [MP3, Валентин Ковалёв]
+Елена Царева | Судьбалогия (2023) [MP3, Анастасия Болотина]
 
 >>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
+>>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1421.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Валентин Ковалев – директор корпорации «Центр информационной поддержки сетевого бизнеса Валентина Ковалева», бизнес-тренер, руководитель программы «Академия успеха», руководитель Элит-клуба MLM «Золотой Меркурий», действительный член Евразийской Академии сетевого маркетинга, директор издательства Клуб «Гармония», главный редактор газеты «Успешный MLM-бизнес». Автор (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 00:57:42
+Царева Елена – судьболог, психолог, коуч. Работает с запросами, связанными с личностным ростом и сменой жизненного сценария. «Больше десяти лет я искала ответ на вопросы: как устроен этот мир, что такое судьба человека, от чего она зависит и можно ли ее менять?» Судьбалогия – это направление, которое объединило в себе такие науки, как эзотерика, психология, астрология, (   Читать дальше...   )Жанр: Самопознание, Трансформация личности, Управление судьбой, ЭзотерикаИздательство: АСТПродолжительность: 18:10:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B404172EFEB42C38C6E51868ADD9A428C42E8C7
+magnet:?xt=urn:btih:66552D8651178E215811AB1A08AF4AE93A6A1256
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,27 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819526   (1420) от 22.09.2025
+###  Публикация: 1819105   (1798) от 20.09.2025
 
-Exacoustics - GHOST 1.1.8 Standalone, VSTi 3, AAX (x64) [En]
+Жорж Сименон | Комиссар Мегрэ. Подпись Пикпюс (2025) [MP3, Юрий Яковлев-Суханов]
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1420.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FM-синтезатор нового поколения.
-GHOST — это своего рода гибрид FM8 и Serum, у вас есть классическая матрица FM, а также добавлены волновые таблицы, фильтр/искажение per osc и другие эффекты osc.
-GHOST поддерживает пользовательские волновые таблицы, тот же формат .wav, который доступен в большинстве синтезаторов, которые допускают импорт, то есть вы можете использовать (   Читать дальше...   )Язык интерфейса: Английский
+К комиссару Мегрэ является тощий бесцветный человек, который обнаружил на промокательной бумаге в кафе фразу, сообщающую о том, что завтра в пять будет убита гадалка. Подпись гласит: «Пикпюс». Полиция поднята на ноги, под наблюдение попали несколько сотен гадалок, но все думают, что это чья-то глупая шутка. Мегрэ рискует стать посмешищем. Однако в начале шестого (   Читать дальше...   )Жанр: ДетективИздательство: Аудиокнига своими руками / неофициальное издание профессионального актёраПродолжительность: 04:05:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA9FC48F5CC97DC6DAE6001954D0574B30C86FBB
+magnet:?xt=urn:btih:B225B07CDF5FB284E878C5FF9BBBE910E8B29B37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,27 +76,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819490   (1419) от 22.09.2025
+###  Публикация: 1819158   (1797) от 20.09.2025
 
-Пресеты - Production Music Live - Serum 2 Presets Feelings Vol.2 [SerumPreset, MID]
+The Mystix - Dream Girl (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Larry Campbell - The Mule (3:00)
+02.  Dream Girl (3:39)
+03.  It's My Turn (3:14)
+04.  Roll of the Dice (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CFE47C508F1A3817F2FFDB5C8941D430F902C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819167   (1796) от 20.09.2025
+
+Звуковые библиотеки - Producer Loops - Audentity Records - Pop Vocals & FX 3 [WAV, MID]
 
 >>Материалы для мультимедиа и дизайна
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1419.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поднимите свои треки на новый уровень с помощью более 130 великолепных пресетов Serum 2 , созданных командой звукорежиссеров PML в стиле Ben Böhmer, Avoure, Tinlicker, Anjunadeep, This Never Happened, Armada Music и многих других!
+«Pop Vocals & FX 3» — новейшая часть нашей известной серии вокалов, хуков и вокальных эффектов. Новый пакет включает в себя запоминающиеся, полезные и уникальные вокалы и хуки, эмоциональные тексты песен, вокальные эффекты, вокальные нарезки и фразы, вокодеры и многое другое.
 
-Исследуйте мечтательные пэды, эмоциональные соло, глубокие басы и сверкающие щипки — все это отображено с помощью интуитивно понятных (   Читать дальше...   )Формат: SerumPreset, MID
+В этот инструмент для создания музыки вложено много труда и страсти, и это действительно (   Читать дальше...   )Формат: WAV, MID
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17D211CF85FC3A078D30D57EC494DE7F4FA1E5BF
+magnet:?xt=urn:btih:D8AF4A42DB0BC922ACD72BD5DB2642549228A0D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,25 +133,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819527   (1418) от 22.09.2025
+###  Публикация: 1819154   (1795) от 20.09.2025
 
-HOFA - Colour Delay 1.0.4 VST 3, AAX (x64) [En]
+The Mississippi Black Snakes - White Buffalo (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1418.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-HOFA Color Delay предоставляет вам все знаковые звуки дилея для вашего продакшн. Благодаря четырем уникальным стилям задержки, которые можно свободно комбинировать, нет никаких ограничений для ощущения ретро и вашей творческой свободы.Язык интерфейса: Английский
+01.  White Buffalo (4:40)
+02.  This One's For You (5:35)
+03.  Dusty Diamond (7:36)
+04.  Dance Floor Love (6:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:069CF5C4F69B4991F22FFCF005ACA80BBEFE906E
+magnet:?xt=urn:btih:DCB83EF2CCA71F1F2A919E3E8A5EEEAEDF486497
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,28 +162,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819400   (1417) от 22.09.2025
+###  Публикация: 1819159   (1794) от 20.09.2025
 
-Шрифты - GGBotNet - Serati [TTF]
+Wailin' Walker - Blues Lightnin' (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1417.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Serati - бесплатный шрифт.
-Шрифт Serati содержит 2 стиля (обычный и курсивный) и 1048 глифов. Поддержка 90 языков.
-Этот шрифт лицензирован по лицензии SIL Open Font License версии 1.1.
-Материал раздаётся с официальной документацией.Формат: TTFПоддержка кириллицы: Есть
+01.  Palace of the King (3:46)
+02.  Cheaper to Keep Her (3:06)
+03.  Ride 'Em on Down (3:06)
+04.  Cadillac Assembly Line (3:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11872B8FB2A3223CDFC591998DE64EC663592591
+magnet:?xt=urn:btih:BC951C5C6B76C1A39213DBBCB2765B9555CE1CFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -475,27 +191,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819558   (1416) от 22.09.2025
+###  Публикация: 1819147   (1793) от 20.09.2025
 
-Шрифты - GGBotNet - Westhorn [TTF]
+The Hoochie Coochie Men - For A Good Time Call (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1416.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт Westhorn содержит 2 стиля (курсив, обычный шрифт) и 741 глифа. Поддержка 87 языков.
-Лицензируется по лицензии SIL Open Font License, версия 1.1.
-Материал раздаётся с официальной документацией.Формат: TTFПоддержка кириллицы: Есть
+01.  Something's Got A Hold On Me (3:32)
+02.  You Got No Business (4:32)
+03.  Soothe Me (3:37)
+04.  Sneakin' (6:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4EEA9D51DEBBBDD2AE44910019A0FB12DBBC713
+magnet:?xt=urn:btih:65BCFF812B304305A259C6669A4C637627DC1F07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,27 +220,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819403   (1415) от 22.09.2025
+###  Публикация: 1819061   (1792) от 20.09.2025
 
-Шрифты - GGBotNet - Zeitmax [TTF]
+VA - 100% Ibiza (The Beach Club Closings 2025) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1415.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт Zeitmax содержит 2 стиля (обычный и курсивный) и 666 глифов. Поддержка 79 языков.
-Этот шрифт лицензирован по лицензии SIL Open Font License версии 1.1.
-Материал раздаётся с официальной документацией.Формат: TTFПоддержка кириллицы: Есть
+01. Living Room - Your Tears 05:19
+02. Paulsen & Stryczek - Stranger Space Inside My Heart 04:32
+03. Chris Le Blanc & Gary B;karmaloft - Mindful Reflections 02:57
+04. Andrea Miller & Alejandro Fernandez Lecce - Don't Go Away 04:37(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:00:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6EF4B321E124C7FF274A1183B7A69BFDE82B204
+magnet:?xt=urn:btih:38585151106571C1C799D4A94155D70B0B871FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,56 +249,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819401   (1414) от 22.09.2025
+###  Публикация: 1819066   (1791) от 20.09.2025
 
-Шрифты - GGBotNet - Balhattan [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Balhattan - бесплатный шрифт. Шрифт Balhattan содержит 2 стиля (обычный и курсивный) и 1148 глифов. Поддержка 89 языков.
-Лицензируется по лицензии SIL Open Font License версии 1.1.
-Материал раздаётся с официальной документацией.Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25ABA9983C907CA3273C838AB6319526CBA9757E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819511   (1413) от 22.09.2025
-
-Velial Squad - Бельмо (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+Sarah McLachlan - Better Broken (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1413.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Пёс [00:01:50]
-02. Ночной Дозор [00:02:49]
-03. Зарисовка [00:02:04]
-04. Каждый День [00:02:13](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:20:45
+01. Better Broken
+02. Gravity
+03. The Last to Go
+04. Only Way Out Is Through(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9667BFEB9F459595F14BF7A8394AE644C87189FC
+magnet:?xt=urn:btih:DCAA56F592870F31C95CB3732E7F024CA82DBC16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,28 +278,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819440   (1412) от 22.09.2025
+###  Публикация: 1819149   (1790) от 20.09.2025
 
-Malevolence - Studio Albums (4 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal, Metalcore, Hardcore>
+Neverlove - Kings Of Strip Club (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1412.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1790.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Malevolence — английская металкор-группа, образованная в Шеффилде, Южный Йоркшир, в 2010 году.2013 - Reign Of Suffering
-2017 - Self Supremacy
-2022 - Malicious Inten
-2025 - Where Only The Truth Is SpokenЖанр: Groove Metal, Metalcore, HardcoreПродолжительность: 03:08:46
+01. KINGS OF STRIP CLUB [00:04:07]
+02. Сама так хотела [00:02:45]
+03. S1000RR [00:02:50]
+04. Не такая [00:02:55](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:27:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC52E89ACE0CABAA173E459C9B4B8374EF9611B0
+magnet:?xt=urn:btih:74041FEAC7352AED641DCCAF46480B02BEE46845
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,28 +307,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819446   (1411) от 22.09.2025
+###  Публикация: 1819153   (1789) от 20.09.2025
 
-Siege Of Power - Warning Blast (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+The Jesse Williams Band - Keep Steady (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Making Headway (6:14)
+02.  Quit Quiet (6:04)
+03.  Lessons We Learn (4:52)
+04.  These Days (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF65E4C4BC1DCE9FB764CA9F87F45D76FBA41000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819179   (1788) от 20.09.2025
+
+Paradise Lost - Ascension (2025) [FLAC|Lossless|image + .cue] <Death Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1411.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Conquest for What?
-02. For the Pain
-03. Bulldozing Skulls
-04. Born into Hate(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:12
+01. Serpent On The Cross
+02. Tyrants Serenade
+03. Salvation
+04. Silence Like The Grave(   Читать дальше...   )Жанр: Death Doom MetalПродолжительность: 01:01:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5176F447C1BA6DF3765A21EF0A391F2EF6F7B233
+magnet:?xt=urn:btih:205A9FA40778F54618584BF309419D8D51762B55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,28 +365,168 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819434   (1410) от 22.09.2025
+###  Публикация: 1819068   (1787) от 20.09.2025
 
-The Crown (ex-Crown of Thorns) - Studio Albums (12 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
+Любовь и слёзы / Ask ve Gozyasi (2025) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1 из ??) DeziDenizi (обновляемая)
+
+>>Зарубежные сериалы
+>>Турецкие сериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мейра — дочь одной из самых богатейших семей Турции. Она получила престижное образование в США и решила вернуться на родину. Девушка хочет добиться уважения в обществе своими силами и поэтому устраивается на работу в торговый центр, тщательно скрывая свое истинное происхождением. Именно здесь она и знакомится с Селимом — юристом, из компании ее отца. Между молодыми (   Читать дальше...   )Производство: Турция / O3 Turkey MedyaЖанр: драма, романтикаРежиссер: Энгин ЭрденАктеры: Ханде Эрчел, Барыш Ардуч, Ознур Серчелер, Берк Джанкат, Шенай Гюрлер, Санем Челик, Лорин Мерхарт, Афра Карагёз, Сенан Кара, Мерт Денизмен и др.Перевод: Двуголосый любительский (DeziDenizi)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1513198054A71C530B2960514881A77614D27498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819070   (1786) от 20.09.2025
+
+VA - Classical Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sir Simon Rattle - Short Ride in a Fast Machine Fanfare for Orchestra (4:26)
+02. Mariss Jansons - Symphony No. 10 in E Minor, Op. 93 II. Allegro (4:19)
+03. Paavo Järvi - Symphonic Dances from West Side Story IV. Mambo (2:25)
+04. Sir Simon Rattle - The Firebird, KC. 10, Tab. I Dance of Kashchei's retinue under Firebird's spell (4:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A5710C5233E65BAD700E0A94D32BB4EB0E9E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819073   (1785) от 20.09.2025
+
+Главная дорога (20.09.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таксистам грозит до 10 лет тюрьмы: где бомбилы работают по старым понятиям?
+ Алюминиевые диски и медная смазка: что это — защита от прикипания или убийственная гальваническая пара? Многие зрители жалуются на то, что после посещения шиномонтажа или сервиса их дорогие легкосплавные диски разъедает. В новом выпуске «Главной дороги» Андрей Федорцов и Денис Юченков выяснили, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317A1209EBF9C4E6E0D2B48055C4BE222ED27FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819014   (1784) от 20.09.2025
+
+Native American Music Consort - Trance Rhythms for Astral Travel (2025) [MP3|320 Kbps] <Native American, World, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulse of Elsewhere [03:46]
+02. Between the Veil [03:22]
+03. Light Without Origin [03:18]
+04. Sliding Through Stillness [03:22](   Читать дальше...   )Жанр: Native American, World, New AgeПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F5995E82533FE0DCFE4560592D42AA003ED501C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819069   (1783) от 20.09.2025
+
+Ravager - From Us With Hate (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freaks Out Of Control
+02. Alone We Won't Survive
+03. Curse The Living, Hail The Dead
+04. Aggressive Music For Aggressive People(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73AB874D21E092E33ACF243ED2886940C678F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819036   (1782) от 20.09.2025
+
+I Prevail - Violent Nature (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1410.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Crown - метал-группа из Тролльхеттана, Швеция, действует с 1990 года.1995 - The Burning
-1997 - Eternal Death
-1998 - Hell Is Here
-2000 - Deathrace KingЖанр: Melodic Death/Thrash MetalПродолжительность: 11:54:27
+01. - Synthetic Soul (4:30)
+02. - NWO (2:41)
+03. - Pray (3:12)
+04. - Annihilate Me (3:22)(   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:32:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E5BB30CC681B13E9ED75B758874BD1F3347BFB6
+magnet:?xt=urn:btih:733205A48AEFD9854A6299948C3721F9C7016A61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -675,25 +534,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616021   (1409) от 23.09.2025
+###  Публикация: 1819103   (1781) от 20.09.2025
 
-City Game Studio: a tycoon about game dev (2019) [Ru/Multi] (1.24.1) License GOG
+Novembers Doom - Major Arcana (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal, Doom Metal>
 
->>Win Игры
->>Strategy (Manage/Busin)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1409.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-City Game Studio - стратегический симулятор, в котором важно не просто гнаться за требованием игроков, а также уметь сокращать расходы и наоборот, уметь тратить деньги там, где они на самом деле нужны. Разработчики игр представили симулятор, в котором вам придется развивать компанию, которая разрабатывает игры. Небольшая студия, создающая видеоигры решила расширяться, (   Читать дальше...   )Тип издания: LicenseРазработчик: Binogure StudioЖанр: Simulation, Economic, ManagerialЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+01.June(1:58)
+02.Major Arcana(6:38)
+03.Ravenous(6:28)
+04.Mercy(5:56)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:56:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54321E6BEAB03ADDF74037D5556F0B293BCEF282
+magnet:?xt=urn:btih:BBBBE2F0B92D4EA68E24E4891DE0D738F990E631
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,26 +563,170 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218275   (1408) от 23.09.2025
+###  Публикация: 1819047   (1780) от 20.09.2025
 
-21 грамм / 21 Grams (2003) BDRip [H.264/1080p]
+Catsclaw - Perfect Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Electronic>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1408.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Говорят, что каждый человек в момент смерти теряет 21 грамм. Столько весит горстка монет в пять центов, плитка шоколада, птица колибри…
-«21 грамм» — это история о надежде и человечности, жизнелюбии и выживании. Независимо от того, боитесь вы смерти или нет, она приходит, и в этот момент ваше тело становится на 21 грамм легче. Быть может, это вес человеческой души?Производство: США / Mediana Productions FilmgesellschaftЖанр: триллер, драма, криминалРежиссер: Алехандро Гонсалес ИньярритуАктеры: Шон Пенн, Бенисио Дель Торо, Наоми Уоттс, Дэнни Хьюстон, Карли Наон, Клер Пакис, Ник Николс, Шарлотта Генсбур, Джон Рубинстайн, Эдди Марсан, Ллойд Кит Сэлтер, Мелисса ЛеоПеревод: Дублированный (Лицензия), Профессиональный (многоголосый) (Tycoon), (Лиц. MVO R1, R1 - переиздание), Авторский (М. Яроцкий - присутствует ненормативная лексика)Субтитры: Русские, английскиеКачество: BDRip 1080pПродолжительность: 02:04:31
+01. Perfect Death [00:03:26]
+02. Become The Blade [00:03:13]
+03. The Shield [00:03:08]
+04. Remember The Days [00:04:32](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:32:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4F44172BE9F056B957B01F29A19450645F910F5
+magnet:?xt=urn:btih:350A33ECD67171F79F52D490F39569908B5116D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819111   (1779) от 20.09.2025
+
+Isen - Zaklinani posledni zimy (2025) [FLAC|Lossless|WEB-DL|tracks] <Melidic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zaklínání poslední zimy [00:09:00]
+02. Klíč k noci [00:07:09]
+03. Skrze brány věčnosti a zapomnění [00:04:41]
+04. Obrození ve stínech [00:05:48](   Читать дальше...   )Жанр: Melidic Black MetalПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6F2374373D42A038573D5583DAE7FFC9A2D107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819034   (1778) от 20.09.2025
+
+King Princess - Girl Violence (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Girl Violence (2:16)
+02. - Jaime (2:23)
+03. - Origin (2:14)
+04. - I Feel Pretty (3:02)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578C538C0649B80FE26EC3D4D4C99C9248F8CC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819102   (1777) от 20.09.2025
+
+Markus Schulz - Global DJ Broadcast World Tour: Luminosity at Beachclub Fuel (2025-09-18) [MP3|320 Kbps] <Trance, Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dosem - Digital Futures
+02. Frenckel & Ton TB - Dark Cloud
+03. Woo York featuring Mark Tarmonea - Feeling (Korolova Remix)
+04. Rebūke - Glow(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 02:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE41CC7BC0DE58C09F44B261EFDD2272239A566F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819137   (1776) от 20.09.2025
+
+Robert Urban & The Evil Eyes - If I Had My Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ain't Gonna Tell You (3:11)
+02.  Just for Myself (3:29)
+03.  At Your Mercy (3:01)
+04.  Love Your Recipe (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90260B7D7FDCBD4690C90539ACE9751B9EA03458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819076   (1775) от 20.09.2025
+
+Волгоград: соленый Эльтон, Мамаев курган, стейк из арбуза и подземный трамвай | «Поедем, поедим». Выпуск от 20.09.2025 WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди и «Поедем, поедим!» отправились в Волгоград. В городе-герое ведущий посетил Мамаев курган и увидел самую высокую скульптуру в Европе «Родина-мать зовёт!». А еще итальянец полакомился горчицей, хлебом из горчицы и даже горчичным пряником, ведь где еще, как не на родине русской горчицы это делать! Федерико опробовал на себе лечебную грязь Эльтона, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8034A541CBC319B0D881BEECA5D7DE6482C625A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

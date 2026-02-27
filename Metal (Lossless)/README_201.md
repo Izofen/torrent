@@ -1,29 +1,25 @@
-###  Публикация: 502869   (260388) от 02.06.2012
+###  Публикация: 1626420   (243874) от 14.04.2023
 
-Forest Stream - 2 albums (2003-2009) [APE/FLAC|Lossless] <Death / Doom Metal>
+Archon Angel - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260388.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (Feral Magic ) (02:19)
-02. The Crown Of Winter (11:44)
-03. Mired (09:27)
-04. Bless You To Die (07:38)
-05. Autumn Dancers (08:40)
-06. The Seventh Symphony Of... (09:05)
-07. The Beautiful Nature (09:24)
-08. Outro (My Awakening Dreamland) (01:38)Жанр: Death / Doom MetalПродолжительность: 00:59:57
+01. Wake of Emptiness [00:05:21]
+02. Avenging the Dragon [00:03:59]
+03. Fortress [00:04:36]
+04. Quicksand [00:05:01](   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 00:46:46
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D1775D74A7F04E8DA5DE781F88ECF2195FC39397
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -31,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503884   (260011) от 31.05.2012
+###  Публикация: 1611463   (243865) от 12.02.2023
 
-Katatonia - 16 albums (1993-2010) [FLAC|Lossless] <Doom / Progressive / Gothic Metal, Depressive Rock>
+Betelzeus - Shedding the Skin (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260011.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Longest Year (04:43)
-02. Sold Heart (04:33)
-03. Day And Then The Shade (Frank Default remix) (05:37)
-04. Idle Blood (Linje 14) (03:23)1993-2010Жанр: Doom / Progressive / Gothic Metal, Depressive RockПродолжительность: 00:18:19
+01. I'm What Was Left Behind [00:07:58]
+02. Häive [00:02:18]
+03. Shedding the Skin [00:10:14]
+04. Leech [00:06:14](   Читать дальше...   )Жанр: Sludge, DoomПродолжительность: 00:36:23
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:901B241E32A0E75C37316759929C830B80C6BDA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -60,31 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503396   (259574) от 30.05.2012
+###  Публикация: 1626394   (243862) от 14.04.2023
 
-Virgin Black - 5 albums (1998-2008) [FLAC|Lossless] <Gothic / Doom / Symphonic / Death Metal>
+1782 - Clamor Luciferi (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal, Occult Doom>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259574.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Fragile Breath (05:49)
-02. In Winters Ash (07:23)
-03. Silent (06:42)
-04. God In Dust (08:38)
-05. Lacrimosa (Gather Me) (02:21)
-06. Darkness (11:45)
-07. Forever (01:13)1998-2008Жанр: Gothic / Doom / Symphonic / Death MetalПродолжительность: 00:43:54
+01. A Merciful Suffering [00:01:46]
+02. Succubus [00:05:19]
+03. Demons [00:04:39]
+04. Black Rites [00:05:49](   Читать дальше...   )Жанр: Stoner, Doom Metal, Occult DoomПродолжительность: 00:39:37
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:01DADFEF5FFC1EE32A1D93BC0BB04D5E9220DB19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -92,32 +85,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502775   (259375) от 29.05.2012
+###  Публикация: 1611443   (243854) от 12.02.2023
 
-Be'lakor - Of Breath And Bone (2012) [FLAC|Lossless]<Modern Melodic Death Metal>
+Voelker - How The Other Half Dies (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy-Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243854.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 - Abeyance
-2 - Remnants
-3 - Fraught
-4 - Absit Omen
-5 - To Stir The Sea
-6 - In Parting
-7 - The Dream And The Waking
-8 - By Moon And StarЖанр: Modern Melodic Death MetalПродолжительность: 00:56:18
+01 - Smithereens (00:04:33)
+02 - How The Other Half Dies (00:05:38)
+03 - One Percent (00:05:47)
+04 - Better Man (00:05:21)(   Читать дальше...   )Жанр: Thrash, Heavy-MetalПродолжительность: 00:56:41
+deezer
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:571376AF510D6A84EFE0C1AB9BF34E957565498B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -125,32 +115,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503101   (259337) от 29.05.2012
+###  Публикация: 1626446   (243846) от 14.04.2023
 
-October Tide - 2 albums (1997-1999) [APE|Lossless] <Melodic Death / Doom Metal>
+Treponem Pal - Screamers (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259337.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243846.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Grey Dawn (04:28)
-02. October Insight (05:03)
-03. Sweetness Dies (05:45)
-04. Heart Of The Dead (04:16)
-05. Floating (06:14)
-06. Lost In The Dark - And Then Gone (05:25)
-07. Into Deep Sleep (05:13)
-08. Dear Sun (03:32)1997-1999Жанр: Melodic Death / Doom MetalПродолжительность: 00:40:00
+01 - The Fall
+02 - Out of Mind
+03 - Screamers
+04 - Too Late(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:40:47
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:C53946451E02FA3E913226D0E1ABDC9034EFBE06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,34 +144,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502767   (259331) от 29.05.2012
+###  Публикация: 1455265   (243771) от 19.03.2021
 
-Silent Descent - Mind Games (2012) [FLAC|Lossless]<Modern Melodic Death Metal>
+HellBones - Crossing Borders (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Overture
-02 - Psychotic Euphoric
-03 - Mind Games
-04 - Bricks
-05 - Coke Stars
-06 - Bring-In-Sanity
-07 - Lasting Impression
-08 - Devoid
-09 - On That Trip
-10 - Sober Thoughts(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:45:50
+01. Fool To Believe
+02. Promises We Made
+03. When Night Falls
+04. In My Dreams(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:37
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0E019E9279C710BA942373486FC85FE8861EA093
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,33 +173,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502776   (259303) от 29.05.2012
+###  Публикация: 1455376   (243754) от 19.03.2021
 
-Tristitia - 4 albums (1995-2002) [FLAC|Lossless] <Doom Metal, Gothic Metal>
+Grima - Will of the Primordial (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259303.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Entrance (02:08)
-02. Path I. Beholders tears (06:20)
-03. Path II. Black Godz Serenade - Part 1 (01:34)
-04. Path III. As Death Says Mine (13:13)
-05. Path IV. When Tears Cry (11:58)
-06. Path V. Beyond The 7 th Valley (01:43)
-07. Path VI. There Will Never Be Another Dawn (10:20)
-08. Path VII.Black Godz Serenade - Part 2 (01:57)
-09. Path VIII. Tears Of The Moon (09:07)Жанр: Doom Metal, Gothic MetalПродолжительность: 00:58:22
+01. Siberian Sorrow
+02. The Shrouded In Darkness
+03. Leshiy
+04 Spiritual Emptiness(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:34
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:DA0CA027576DF742EF67FD014247DD295D62764C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,32 +202,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502968   (259284) от 29.05.2012
+###  Публикация: 1611832   (243743) от 13.02.2023
 
-Synkletos - Spiritual Alchemy (2011) [FLAC|Lossless] <Melodic Doom / Death Metal>
+Amthrya - Passage (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259284.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Windy Days (01:34)
-02. Golden Fields Of Creation (07:45)
-03. The Elementals (05:29)
-04. Turn Of The Year (02:55)
-05. Rain Of Eternal Distress (09:10)
-06. The Ascent (03:54)
-07. Spiritual Alchemy (08:35)
-08. Contemplation (03:01)Жанр: Melodic Doom / Death MetalПродолжительность: 00:42:26
+01 - A New Trace (08:00)
+02 - Dreads in Tears (07:16)
+03 - Frozen October (05:12)
+04 - Thorns of Shame (04:29)(   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 01:00:46
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6F0E10CE5626D978F045241ACFCD13C64C3F9A77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -260,34 +231,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502957   (259269) от 29.05.2012
+###  Публикация: 1611859   (243735) от 13.02.2023
 
-Dimness Through Infinity - Nymph (2003) [FLAC|Lossless] <Atmospheric Doom Metal>
+Ashtoreth - Bruxolico (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259269.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243735.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Celestial Divinity (02:53)
-02. And Begins The Tragedy... (09:54)
-03. Lurid (1st Patch) (01:53)
-04. Dying Embrace (09:32)
-05. Mourning part 1 (01:53)
-06. The Solitude Echoes (02:25)
-07. Mourning part 2 (04:37)
-08. Woe to Nymph (05:40)
-09. Unknown Foliages, Faraway (03:49)
-10. Lurid (2nd Path) (02:20)(   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 01:09:38
+01 - Intro Convenção das Bruxas do Pântano do Sul (05:36)
+02 - Lua Errante (05:08)
+03 - Serpente nos Cabelos (12:57)
+04 - Majestade Caída -Visão (05:06)(   Читать дальше...   )Жанр: Black, Doom MetalПродолжительность: 00:40:24
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4A11D70BE3ED75642BFE70BA0F1E45082F177EFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,34 +260,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502577   (259213) от 28.05.2012
+###  Публикация: 1333832   (243729) от 26.10.2019
 
-Sabaton - Carolus Rex (Mailorder Edition 2CD) (2012) [FLAC|Lossless]<Heavy / Power Metal>
+Jeremy - The 2nd Advent (2005) 2CD [FLAC|Lossless|image + .cue] <Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259213.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1 (English):
-
-01. Dominium Maris Baltici (0:29)
-02. The Lion From The North (4:42)
-03. Gott Mit Uns (3:15)
-04. A Lifetime Of War (5:45)
-05. 1 6 4 8 (3:55)
-06. The Carolean's Prayer (6:14)
-07. Carolus Rex (4:53)
-08. Killing Ground (4:24)(   Читать дальше...   )Жанр: Heavy / Power MetalПродолжительность: 01:41:29
+01. Acts (English version)
+02. Gambler (English version)
+03. Babylon (English version)
+04. Remains Of The Day (English version)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:38:28
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7D3601D7EDAB6C9F8BEFFE390F1B30B74783BB77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -330,33 +289,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 501581   (259067) от 28.05.2012
+###  Публикация: 1611904   (243728) от 13.02.2023
 
-Carach Angren - Where The Corpses Sink Forever (2012) [FLAC|Lossless]<Symphonic Black Metal>
+Atomwinter - Sakrileg (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259067.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. An Ominous Recording (1:58)
-02. Lingering In An Imprint Haunting (5:04)
-03. Bitte Tцtet Mich (5:03)
-04. The Funerary Dirge Of A Violinist (8:04)
-05. Sir John (4:27)
-06. Spectral Infantry Battalions (2:04)
-07. General Nightmare (4:19)
-08. Little Hector What Have You Done? (4:55)
-09. These Fields are Lurking (Seven Pairs of Demon Eyes) (7:15)Жанр: Symphonic Black MetalПродолжительность: 00:43:12
+01. Intro [00:01:11]
+02. Ov Blood and Flesh [00:02:42]
+03. The Lungs Ov Hell [00:05:32]
+04. Brutal Scriptures [00:03:26](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:54
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:35E64E6D5D28328B7CF2E2F1C55D9227C9553A71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,30 +318,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502224   (259029) от 28.05.2012
+###  Публикация: 1611818   (243719) от 13.02.2023
 
-Lethian Dreams - Bleak Silver Streams (2009) [FLAC|Lossless] <Atmospheric Doom Metal>
+Lansdowne - Medicine (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259029.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Elusive (09:09)
-02. In Seclusion (08:12)
-03. Under Her Wings (09:16)
-04. Requiem (08:02)
-05. Severance (09:14)
-06. For a Brighter Death (09:54)Жанр: Atmospheric Doom MetalФормат: CD, AlbumПродолжительность: 00:53:50
+01 - Medicine (00:03:21)
+02 - Halo (00:03:36)
+03 - Burn Brighter (00:03:12)
+04 - One Shot (00:03:57)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:41:06
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:79DA7621067544638A883AC16D584F6325EBD86E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,34 +347,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502483   (258913) от 27.05.2012
+###  Публикация: 1333828   (243710) от 26.10.2019
 
-My Dying Bride - 23 albums (1991-2011) [FLAC/APE|Lossless] <Doom / Death / Gothic Metal>
+Jeremy - Trivial Life (2003) [FLAC|Lossless|image + .cue] <Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258913.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243710.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. To Remain Tombless (07:43)
-02. My Hope, The Destroyer (05:45)
-03. For You (06:41)
-04. The Blue Lotus (06:07)
-05. Like Gods Of The Sun (05:21)
-06. Catherine Blake (06:18)
-07. The Cry Of Mankind (06:07)
-08. The Whore, The Cook & The Mother (05:42)
-09. Thy Raven Wings (05:22)
-10. The Snow In My Hand (07:09)(   Читать дальше...   )Жанр: Doom / Death / Gothic MetalПродолжительность: 01:17:45
+01. Resurrection
+02. Work-a-holic
+03. Gross Injustice
+04. Here I Am(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:06:09
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:450FEE3919E16917F5ED6894F9F61AADA6383F2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,34 +376,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 501706   (258798) от 27.05.2012
+###  Публикация: 1333814   (243703) от 26.10.2019
 
-On Thorns I Lay - 6 albums (1995-2004) [FLAC/APE|Lossless] <Gothic / Doom Metal>
+Fearer - Backfire (2005) [APE|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258798.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Life Can Be (04:41)
-02. Poster On A Wall (05:24)
-03. Afraid To Believe (04:18)
-04. Unsung Songs (06:37)
-05. Lack In Resorts (05:14)
-06. Gallant Nights (02:53)
-07. When I'm Gone (05:15)
-08. Rampant Of K-ism (04:29)
-09. Dawn Of Loss (03:52)
-10. Quotation For Listening (06:46)Жанр: Gothic / Doom MetalПродолжительность: 00:49:31
+01. Evoke
+02. Backfire
+03. Pain Will Come
+04. Subjection(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:06
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6AE216BAB5A0DF55318F2A5489384D3A894240A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -465,34 +405,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 501871   (258794) от 27.05.2012
+###  Публикация: 1612888   (243693) от 17.02.2023
 
-Novembre - 7 albums (1994-2007) [FLAC/WavPack|Lossless] <Doom / Death / Gothic / Progressive Metal>
+Ecollapse - Dying With The Wolves (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258794.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anaemia (04:34)
-02. Triesteitaliana (04:53)
-03. Cobalt Of March (06:01)
-04. Bluecracy (06:06)
-05. Architheme (04:51)
-06. Nascence (04:33)
-07. Iridescence (05:12)
-08. Sound Odyssey (05:28)
-09. Cantus Christi (06:46)
-10. Zenith (07:09)(   Читать дальше...   )Жанр: Doom / Death / Gothic / Progressive MetalПродолжительность: 01:07:28
+01 - Dying With The Wolves (00:06:35)
+02 - The Rise, The Fall (00:06:17)
+03 - Evil Empire (00:03:55)
+04 - Many Soldiers (00:04:54)(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 01:03:10
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:5C2F13D5EBCD432E7E3D32B15319059CB7B43946
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,34 +434,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502372   (258748) от 27.05.2012
+###  Публикация: 1612889   (243682) от 17.02.2023
 
-Mekong Delta - Intersections (2012) [FLAC|Lossless]<Progressive Thrash Metal>
+Last Legion - Metall, Blod & Aska (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258748.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.The Cure  (04:15)
-2.Shades Of Doom  (04:20)
-3.Sphere Eclipse  (06:18)
-4.The Healer  (07:38)
-5.Innocent  (05:20)
-6.Memories Of Tomorrow  (04:44)
-7.Heroes Grief  (05:44)
-8.Heartbeat  (07:04)
-9.Transgressor  (03:38)
-10.Prophecy  (04:25)Жанр: Progressive Thrash MetalПродолжительность: 00:52:01
+01 - Metall, Blod & Aska (00:04:33)
+02 - Dodens Falang (00:05:18)
+03 - Nar Kriget Kommer (00:04:21)
+04 - Pansarmarsch (00:03:47)(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:35:27
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B0E5DF5703458FB64BEB8EB1693393B49375CA35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,30 +463,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 501682   (258742) от 27.05.2012
+###  Публикация: 1626532   (243678) от 15.04.2023
 
-Forest of Shadows - 3 albums (2001-2008) [FLAC|Lossless] <Atmospheric Doom Metal, Death Doom Metal>
+Ashrain - Requiem Reloaded (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258742.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Submission (06:47)
-02. Selfdestructive (08:10)
-03. Detached (07:08)
-04. Moments in Solitude (09:39)
-05. Pernicious (05:43)
-06. Deprived (10:28)Жанр: Atmospheric Doom Metal, Death Doom MetalПродолжительность: 00:47:57
+01. Are You Ready for Rock? [00:05:11]
+02. Requiem for Screamer [00:05:25]
+03. Put On the Trigger [00:04:16]
+04. I Still Burn [00:05:32](   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:49:08
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:EE9F0E002318FD485D6AF505A4A6ABA761FDE348
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,29 +492,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502222   (258736) от 27.05.2012
+###  Публикация: 1612673   (243669) от 17.02.2023
 
-Offertorium ‎– Ohne Dich (2005) [APE|Lossless] <Gothic / Symphonic Metal>
+Age Of Ruin - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258736.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ohne Dich (06:45)
-02. Die Dornerkron (06:33)
-03. Der Sturm (06:26)
-04. Die Sterne (06:56)
-05. O komme Tod (08:56)Жанр: Gothic / Symphonic MetalФормат: CDr, Demo
+01. Distance [00:01:01]
+02. Dying Days [00:03:45]
+03. And So, Betrayed [00:04:05]
+04. Garden of Ghosts [00:03:49](   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 2 CD, 01:08:21
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E752DAE7AB6E08EF6E3A8470097A5318E1C1DF15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,34 +521,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 501707   (258620) от 26.05.2012
+###  Публикация: 1333806   (243665) от 26.10.2019
 
-Diablo Swing Orchestra - Pandora's Pinata (2012) [FLAC|Lossless]<Avant-Garde Metal>
+Somniae Status - Cassandra (2003) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
 
->>След.
+>>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258620.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Voodoo Mon Amour (04:39)
-02. Guerilla Laments (05:03)
-03. Kevlar Sweethearts (04:32)
-04. How To Organize A Lynch Mob (00:54)
-05. Black Box Messiah (03:02)
-06. Exit Strategy Of A Wrecking Ball (06:11)
-07. Aurora (05:13)
-08. Mass Rapture (06:11)
-09. Honey Trap Aftermath (04:22)
-10. Of Kali Ma Calibre (04:31)(   Читать дальше...   )Жанр: Avant-Garde MetalПродолжительность: 00:53:13
+01. At The Gates Of Heaven
+02. Oracle Dream
+03. Pleasure Essence
+04. Nowhere Run(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:37:01
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:61E5F6577CB78E581140555906C1B31EEDBEF5BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,34 +550,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 500431   (258294) от 25.05.2012
+###  Публикация: 1333804   (243657) от 26.10.2019
 
-Six Feet Under - Undead (2012) [FLAC|Lossless]<Death Metal>
+Somniae Status - Echoes (2007) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258294.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243657.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Frozen At the Moment of Death (3:42)
-02. Formaldehyde (2:46)
-03. 18 Days (2:40)
-04. Molest Dead (3:13)
-05. Blood On My Hands (3:38)
-06. Missing Victims (3:58)
-07. Reckless (3:04)
-08. Near Death Experience (2:57)
-09. Delayed Combustion Device (3:08)
-10. The Scar (3:28)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:17
+01. From Hell
+02. Evil Thought
+03. Selling Souls
+04. B.T.T.W.(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:49:19
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E30AADA1C2B9F55F582E4864482BFBEB2891810D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,35 +579,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 501259   (258278) от 25.05.2012
+###  Публикация: 1333836   (243646) от 26.10.2019
 
-Daylight Dies - 6 albums (2000-2008) [FLAC/APE|Lossless] <Melodic Death Metal, Doom Metal>
+Organectomy - Existential Disconnect (2019) [WavPack|Lossless|image + .cue] <Brutal Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258278.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа Daylight Dies была образована в 1996 году гитаристом Баром Гэмблингом (Barre Gambling) и ударником Джесси Хэффом в городе Эшвилле, штат Северная Каролина. В 1999 году они записали первое демо под названием The Long Forgotten Demo. Год спустя к группе присоединился вокалист Гатри Иддингс, и в таком составе Daylight Dies выпустили своё второе демо, Idle, вышедшее на Tribunal Records. В 2001 году место бас-гитариста группы занял Игэн О'Роурк, а группа записала демо из двух песен, предназначавшееся для звукозаписывающих лейблов. Позднее был заключен контракт с американским метал-лейбом Relapse Records.
-
-В качестве основных музыкальных ориентиров американцы выбрали для себя такие группы, как Opeth, где-то Novembre (особенно в вокальном плане), Katatonia периода «Brave Murder Day» и немного Anathema времен «Serenades» и «Silent Enigma». Красивые трагичные мелодии, цепляющие за душу темпераментные гитарные пассажи, темп которых варьируется от среднего до медленного, глубокий эмоциональный вокал, лучшее ему описание (   Читать дальше...   )01. Cathedral (07:14)
-02. A Portrait in White (05:02)
-03. A Subtle Violence (05:40)
-04. And a Slow Surrender (03:27)
-05. At a Loss (06:26)
-06. Woke Up Lost (05:23)
-07. Descending (05:20)
-08. Last Alone (04:59)
-09. The Morning Light (07:57)2000-2008Жанр: Melodic Death Metal, Doom MetalПродолжительность: 00:51:33
+01 - Severed From Humanity (4:17)
+02 - Existential Disconnect (4:54)
+03 - Antithetical (3:40)
+04 - No Solace In Ascendance (6:16)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:48:26
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9599FBF001D9E4B9FD7E9058CFD4CF8F17789042
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -702,34 +608,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 501146   (258248) от 25.05.2012
+###  Публикация: 1333811   (243630) от 26.10.2019
 
-Marduk - Serpent Sermon (2012) [FLAC|Lossless]<Black Metal>
+Dimension Zero - Silent Night Fever (2002) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258248.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243630.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Serpent Sermon (4:38)
-02. Messianic Pestilence (2:50)
-03. Souls for Belial (4:45)
-04. Into Second Death (5:11)
-05. Temple of Decay (5:25)
-06. Damnation's Gold (6:48)
-07. Hail Mary (Piss-soaked Genuflexion) (3:27)
-08. M.A.M.M.O.N (3:29)
-09. Gospel of the Worm (2:37)
-10. World of Blades (7:11)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:54:27
+01. Silent Night Fever
+02. The Murder-Inn
+03. Through the Virgin Sky
+04. Your Darkest Hour(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:31:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6596130B0EC9E656D3ACCE725A568650CC926305
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -737,31 +637,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 500934   (258236) от 25.05.2012
+###  Публикация: 1612829   (243616) от 17.02.2023
 
-Saint Vitus - Lillie- F-65 (2012) /2012, Season Of Mist / [WavPack|Lossless]<Doom Metal>
+The Abbey - Word of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243616.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Let them fall (3:53)
-02. The Bleeding Ground (6:07)
-03. Vertigo (2:37)
-04. Blessed Night (3:59)
-05. The Waste of time (5:39)
-06. Dependence (7:36)
-07. Withdrawal (3:26)Жанр: Doom MetalПродолжительность: 00:33:19
+01 - Rat King (00:04:42)
+02 - A Thousand Dead Witches (00:04:35)
+03 - Crystallion (00:06:16)
+04 - Starless (00:07:52)(   Читать дальше...   )Жанр: Progressive Doom MetalПродолжительность: 00:53:02
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F8F28AAE65A8D45F3D285B45612E3BBB9549B147
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -769,28 +666,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838015   (257822) от 20.11.2025
+###  Публикация: 1333834   (243613) от 26.10.2019
 
-Agalloch - Ashes Against The Grain (2006) 2XCD, Reissue, 2025, Eisenwald , Deluxe Edition [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Folk Rock, Doom Metal>
+Jeremy - Quo Vadis, Domine? (2008) [FLAC|Lossless|image + .cue] <Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257822.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243613.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С каждым новым релизом Agalloch находился на восходящем карьерном пути, выпуская один фантастический альбом за другим. После их шеднум-опуса — второго года «The Mantle» — ожидания были завышены, и ребята из Портленда не разочаровали. Во многом «Ashes Against the Grain» очень близко состоят с «The Mantle» как носитель лучших альбомов группы, и этот спор до сих пор (   Читать дальше...   )CD1 - Ashes Against The Grain:
-1-1 Limbs 9:51
-1-2 Falling Snow 9:38
-1-3 This White Mountain On Which You Will Die 1:39(   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk Rock, Doom MetalПродолжительность: 02:06:42
+01. Intro
+02. The Game
+03. Dream To Fly
+04. Again(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36312CA5246638AC3231DE74FC990159BDECCC73
+magnet:?xt=urn:btih:4AD239DD29EA10C3212F364BEB78A138418B9CB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -798,28 +695,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837689   (257732) от 18.11.2025
+###  Публикация: 1455671   (243612) от 20.03.2021
 
-Moonspell + Orquestra Sinfonietta De Lisboa - Opus Diabolicum (The Orchestral Live Show) (2025) 2 x CD, Limited Edition, Digipak [FLAC|Lossless|image + .cue] <Gothic Metal>
+Enforcer - Live by Fire II (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257732.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243612.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-CD1-1 Tungstennio
-CD1-2 Em Nome Do Medo
-CD1-3 1755(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:32:00
+01. Die for the Devil (Live)
+02. Searching for You (Live)
+03. Undying Evil (Live)
+04. From Beyond (Live)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:15:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3AA6D9BB2E4D9671CB4D8B3BF14CF488FE85276
+magnet:?xt=urn:btih:96D9FC7E2C80AFC51AC443A9F4EA5AA2A47A5172
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -827,28 +724,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837868   (257621) от 19.11.2025
+###  Публикация: 1538075   (243596) от 19.03.2022
 
-Elithium - Strangers Parade (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+Funeral - Praesentialis In Aeternum (2021) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257621.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nobody Knows (4:52)
-02. After Midnight (3:13)
-03. Strangers Parade (4:28)
-04. The Tower (3:35)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:44:03
+Норвежские первопроходцы дум-метала FUNERAL выпустили новый альбом “Praesentialis in Aeternum” 10 декабря 2021 года на лейбле Season of Mist.
+Его обложку нарисовал Christopher Rådlund.1. And
+2. Materie
+3. Erindring I - Hovmod
+4. Erindring II - Fall(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 00:55:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37A347974F2EF91A3571E23F75F020F00BC597F8
+magnet:?xt=urn:btih:55A07A4D4FB34620147CAA01153F4CBD27408CCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1284488   (728655) от 21.02.2019
+
+VA - The Most beautiful musical hits the songs of Andrew Lloyd Webber (Unknown) Box Set, 3CD [MP3|320 Kbps] <Instrumental, Stage & Screen>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728655.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Amigos Papa Siempre - Barcelona Olympics
+02. Don’t cry for me Argentina -Evita
+03. Another suitcase in another hall - Evita(   Читать дальше...   )Жанр: Instrumental, Stage & ScreenПродолжительность: 02:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB681101B5EFC53B7DFC1FCA7AA8264BFF50438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022626   (728585) от 02.06.2016
+
+Antoinette Ventura & The London Starlight Orchestra - Unforgettable (1992) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Needed Me (R. Goodrun) [00:03:58]
+02. Unforgettable (N.Cole/N.K. Cole/T. Gordon) [00:04:05]
+03. I Do It For You (B. Adams/R.G. Lange/M. Kamen) [00:04:08]
+04. La Colegiala (Leon) [00:03:31](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5D09B3176D9BA736FCA3808260B85DA3F5A476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 324223   (728137) от 19.04.2011
 
 Ari Pulkkinen - Trine (2009) [FLAC|Lossless]<OST>
@@ -689,64 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FB71DF0DF580579A7DB02B63B04F1F5DB2D22E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284987   (724600) от 24.02.2019
-
-VA - Image d'Amour (2001) [MP3|320 Kbps] <Instrumental, Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ennio Morricone - Cinema Paradiso (Love Theme) (3:14)
-02. Taro Hakase - Between Calm and Passion (5:18)
-03. Jazztronik feat. Jadranka - Moon River (3:53)
-04. Utollo Teshikai feat. Miyamoto Fumiaki - Dream (5:14)(   Читать дальше...   )Жанр: Instrumental, ClassicalПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F0A8D4DAA83BCA419D261CCF74F20A4307272D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023231   (724545) от 05.06.2016
-
-Kyle Landry - 4 альбома (2009-2014) [MP3|196-320 kbps] <Solo piano, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Passion to Sorrow (07:33)
-02 - Lonely (04:40)
-03 - Cheerfulness (01:18)
-04 - Island of Dreams (06:19)(   Читать дальше...   )Жанр: Solo piano, New AgeПродолжительность: 04:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF126D80015DE1F03F025E152AC85AC35B390998
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,54 +1,25 @@
-###  Публикация: 1014214   (776586) от 07.05.2016
+###  Публикация: 1013415   (777353) от 05.05.2016
 
-Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Запад. Сент Луис - Даллас. 4-й матч (05.05.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776586.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 мая 2016, пятница. 03:00 МСК
-1/2 финала - Запад. 4-й матч
-
-Стадион: Скоттрэйд-центр (Сент Луис, США) , 19 770 зрителей (100 % при вместимости 19 808)(   Читать дальше...   )Телекомпания: Игра HDЖанр: СпортЯзык озвучки: Русский (Магранов, Батрак)Продолжительность: 01:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A572754B9B47E4C2FD1172C8D47FCA1820F56A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014053   (776585) от 07.05.2016
-
-Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Запад. Нэшвилл - Сан Хосе. 4-й матч (05.05.2016) WEB-DL [H.264/720p-LQ] [EN]
+Биатлон с Дмитрием Губерниевым. Сезон 2015-2016. Выпуск 16 (09.04.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776585.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-06 мая 2016, пятница. 04:00 МСК
-1/2 финала - Запад. 4-й матч
-
-Стадион: Бриджстоун-Арена (Нэшвилл, США) , 17 188 зрителей (100 % при вместимости 17 231)(   Читать дальше...   )Телекомпания: CNBCЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 03:22:58
+Для биатлонистов зима — это время мобилизации сил и полной концентрации. Для зрителей — начало интереснейших соревнований и сильных переживаний за сборную. В программе все, о чем хотят знать болельщики: новости и комментарии, интервью с лидерами соревнований, рассказы о биатлонных командах.В этом выпуске: - Представление участников Гонки Чемпионов 2016;
+- Многое ли биатлонисты-участники Гонки Чемпионов знают о других участниках? Спросим;
+- История отношений Бьорндалена и Домрачевой;
+- Как долго еще выступать Бьорндалену? Как себя видят спортсмены в 42 года? Эти вопросы задали участникам Гонки Чемпионов;(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортПродолжительность: 00:24:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB603FFF25B29562A029DF0A12DA2C87D5415640
+magnet:?xt=urn:btih:3C0C9F377D4EC5A216475DDE1C552E583EA46E9F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,289 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014225   (776584) от 07.05.2016
+###  Публикация: 1013753   (777352) от 05.05.2016
 
-Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Запад. Нэшвилл - Сан Хосе. 4-й матч (05.05.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776584.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 мая 2016, пятница. 04:00 МСК
-1/2 финала - Запад. 4-й матч
-
-Стадион: Бриджстоун-Арена (Нэшвилл, США) , 17 188 зрителей (100 % при вместимости 17 231)(   Читать дальше...   )Телекомпания: Игра HDЖанр: СпортЯзык озвучки: Русский (Мельников)Продолжительность: 03:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A46A28B07EAEDDBC4BC87EC4CA6148D9C3BE08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014289   (776583) от 07.05.2016
-
-Футбол. Чемпионат России 2015-2016. 27 тур. Крылья Советов - Уфа (06.05.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776583.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 мая 2016, пятница. 18:00 МСК
-27-й тур
-
-Стадион: Металлург (Самара, Россия) , вместимость: 33000(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Нагучев)Продолжительность: 02:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB5A83B9650784A7743D3B1552163BADEEEA473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014523   (776582) от 07.05.2016
-
-Футбол. Чемпионат России 2015-2016. 27 тур. ЦСКА - Терек (07.05.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776582.jpg" />
-</div>
-
-
-###  Подробнее
-
-07 мая 2016, суббота. 14:30 МСК
-27-й тур
-
-Стадион: Арена Химки (Химки, Россия) , 7 500 зрителей (40 % при вместимости 18 636)(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Батурин, Зигаев)Продолжительность: 02:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB5D9E3F7FBAB179935F69025BCC5B2868D86C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014295   (776581) от 07.05.2016
-
-Хоккей. Чемпионат мира 2016. Группа B. 1 тур. Финляндия - Беларусь (06.05.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776581.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 мая 2016, пятница. 20:15 МСК
-Группа B. 1-й тур
-
-Стадион: Юбилейный (Санкт-Петербург, Россия) , 4 877 зрителей (81 % при вместимости 6 000)(   Читать дальше...   )Телекомпания: Арена HDЖанр: СпортЯзык озвучки: Русский (Гучек)Продолжительность: 02:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99766097BFF4B73B188E4814948F518138310C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014292   (776580) от 07.05.2016
-
-Футбол. Чемпионат России 2015-2016. 27 тур. Ростов - Локомотив (06.05.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776580.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 мая 2016, пятница. 19:30 МСК
-27-й тур
-
-Стадион: Олимп-2 (Ростов-на-Дону, Россия) , 19 500 зрителей (123 % при вместимости 15 840)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Генич, Пименов, Моссаковский) / ИнтершумПродолжительность: 01:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A0002060D5678E4C293FD43240DED1CC92A86A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212084   (776579) от 10.03.2018
-
-Michael Musillami Octet - Spirits (2004) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Squid Fantasy [08:20]
-02. Star [01:27]
-03. Namibian Sunset [08:05]
-04. Goody [08:39](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7E12E09DBF30C30C5AADA5B323CDF34AFDD2DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212020   (776578) от 10.03.2018
-
-Cosmin Nicolae - Semnal (2018) Opal Tapes [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Semnal (04:40)
- 02. Demolare (04:17)
- 03. Simultan (04:44)
- 04. Sector Acuamarin (05:27)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD5E2A187B6CA36FE0561E2D4B13B04E08280BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212005   (776577) от 10.03.2018
-
-Kadaverdisciplin - Death Supremacy (2017) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Death Supremacy 				04:09
-02. 	The White Death 				03:47
-03. 	Longing for Winter 				04:19
-04. 	Mother of Defeat 				04:15(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9444EE7791E06B46253765B01BAA5DF96F9D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014492   (776576) от 07.05.2016
-
-VA - Elliptical Sun Sampler 016 (2016) [MP3|320 кб/с] <House, Progressve House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freydal - Solar Eclipse (Original Mix) 5:15
-02. Lesh - Heart of the Ocean (Original Mix) 8:19
-03. Musty - Canto Grande (Original Mix) 7:23
-04. Sixteen8 - Spring Rain (Original Mix) 6:19(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56CEE430B44326CA6430AD7303C151D7E14120D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014508   (776575) от 07.05.2016
-
-VA - Epic Trance Weapons Vol. 5 (2016) [MP3|320 кб/с] <Trance>
+VA - The Best Of FMR Trance (2016) [MP3|320 кб/с] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776575.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777352.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ronald van Gelderen - Redemption 6:21
-02. Arman Bas - I See Your Face (Akku Remix) 9:20
-03. Anthony S - The Spirit 7:33
-04. Tom Wright - Away (Radio Mix Feat. Alina) 3:37(   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:38
+01. U-Mount -  Teleport (Original Mix)  8:21
+02. J Adsen -  Move With You (Original Mix)  4:16
+03. Betelgeuze -  Dream (Original Mix)  9:13
+04. Betelgeuze -  Ascent (Original Mix)  5:10(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C45CCE0E2447FCBB7CD819C186ECDDCCF384FD20
+magnet:?xt=urn:btih:11BDD5A790403456AE491CA41E18518209859787
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014235   (776574) от 07.05.2016
+###  Публикация: 1013680   (777351) от 05.05.2016
 
-VA - City Trance, Vol. One (2016)[MP3|320 кб/с] <Trance>
+VA - Nothing But... Pure Trance Vol.13 (2016) [MP3|320 кб/с] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776574.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marco V - A Journey into Sound 8:19
-02. Barnes & Heatcliff - Yo-Yo! 6:27
-03. Chris Cortez - Kamui 7:07
-04. Luke Bond - Fear 5:37(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:25:32
+01. Joseph Alam -  Infernal Soul (Original Mix)  7:12
+02. Katherine Amy -  Lost Without You (Original Mix)  6:33
+03. Miroslav Vrlik -  So Slowly (Original Mix)  6:35
+04. Mike Sanders -  No Way Out (Nikolauss 140 Remix)  7:06(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8434B0AA02EDF7F81CF939A6E38888395D6628A7
+magnet:?xt=urn:btih:4D4793EEBAAA9FFD2C439B9918C53E90499079DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,195 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014475   (776573) от 07.05.2016
+###  Публикация: 1013897   (777350) от 05.05.2016
 
-VA - Trance Parade (2016) [MP3|320 кб/с] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel & Make One - The Power Of Nature (Ahmed Romel Remix)
-02. Aurosonic feat. Nicol Cache - Tell Me Why (Mhammed El Alami Remix)
-03. Christish pres. MANA - Kimochi (Simon O'Shine Remix)
-04. NoMosk & Nathia Kate - Moments (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748CFF05C6B93C28E0F2B5D2B67D4C3ED643A994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014259   (776572) от 07.05.2016
-
-Aidan - Chapter One (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Hail for Brian Setzer (02:25)
-02. A Road to Knowhere (04:09)
-03. Last Call (03:37)
-04. I Got the Blues (05:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480D082C6E87400895FA9558386F01DB2758CB62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014097   (776571) от 07.05.2016
-
-VA - Audio Safari Ibiza (2015) [MP3|320 кб/с] <Tech House, Deep House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Booka & Neal Porter - Hide Your Soul (Teenage Mutants Remix) (06:37)
-02. Moe.ritz - A Go (06:05)
-03. Lenox (GER) - Don't Go (05:17)
-04. Heinrich & Heine - Like the Sun (Andree Wischnewski Remix) (05:47)(   Читать дальше...   )Жанр: Tech House, Deep House, Nu DiscoПродолжительность: : 03:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4166D9BAAF6EC29FCC32DDB51E825835EDAA8225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014035   (776570) от 07.05.2016
-
-Александр Ралот | Преступление в доме ЛИТО (2016) [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они старались. Люди, как говорится -»лезли из кожи вон». Сегодняшний концерт для членов ЛИТО «Пристанище Пегаса» был судьбоносным, а всё по тому, что их руководителю Сергею Эрастовичу Сарымсакову удалось наконец заманить к себе самого Абрамянца.
-Да, да именно того Абрамянца от которого в той или иной степени зависело практически всё население их областного центра. (   Читать дальше...   )Жанр: ДетективПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584820BE8BFA154568B12F7F845AAD53D6786975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014375   (776569) от 07.05.2016
-
-HoudahGeo 5.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776569.jpg" />
-</div>
-
-
-###  Подробнее
-
-HoudahGeo – программа для размещения географических координат в EXIF-тегах цифровых фотографий.
-HoudahGeo поддерживает множество методов геокодирования, начиная с автоматического до ручного. Используйте журнал GPS трека, справочные фотографий, сделанных с iPhone или выберите места на встроенных картах. HoudahGeo пишет метаданные EXIF, XMP, IPTC и в JPEG и RAW изображениях. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 мая 2016Разработчик: Houdah SoftwareПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C950E87D2CF60B67AA1899FAD90BA6571349F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014374   (776568) от 07.05.2016
-
-Johnny Rieger Band - Come Closer (2013) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road Trip (03:32)
-02. Good For You (04:11)
-03. I Want To Fly (04:11)
-04. Hey Boy (04:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA357C6A3D951BC1FE8236B8CD59BCC17D388171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014561   (776567) от 07.05.2016
-
-Вести в 20-00. Большие Вести. Россия HD (07.05.2016) HDTVRip
+Вести в 20-00. Большие Вести. Россия 1 (05.05.2016) SATRip
 
 >>Документалистика и Телепередачи
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776567.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 00:50:00
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:50:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC2A4D1E75B6164DBB7DC919A606EE293C9124F4
+magnet:?xt=urn:btih:A67BB20D5D60710E7E148C902C749479ABC2EE29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,28 +111,257 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014514   (776566) от 07.05.2016
+###  Публикация: 1013671   (777349) от 05.05.2016
 
-Timewarp Inc. - Ghetto Drunk (2013) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Funky Breaks, Soul, Funky House>
+Футбол. Лига Чемпионов 2015-2016. 1/2 финала. Ответный матч. Реал (Испания) - Манчестер Сити (Англия). (04.05.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777349.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 мая 2016, среда. 21:45 МСК
+1/2 финала. 2-й матч
+
+Стадион: Сантьяго Бернабеу (Мадрид, Испания) , вместимость: 85454(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Георгий Черданцев, Александр Шмурнов) / ИнтершумПродолжительность: 01:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD917520224304DF6F291726114BB80B9AD33A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013642   (777348) от 05.05.2016
+
+VA - Top Trance Anthems Vol.3 (Nation Of Epic Melodic And Progressive Hardtrance) (2016) [MP3|320 кб/с] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrakeen, Jaki Song -  Time (Original Instrumental Mix)  9:19
+02. Altek -  2nd Chance  7:46
+03. Akira Kayosa, Firestorm -  Reflections (Eldritch Project Remix)  8:05
+04. Dark Sector -  Strings of Anger (Marc De Simon Remix)  7:58(   Читать дальше...   )Жанр: TranceПродолжительность: 03:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CF21C7FA6E4459E748BB8B3A2C2E77E2415893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013637   (777347) от 05.05.2016
+
+VA - Mediterranean Chill Out Session Vol.1 (2016) [MP3|320 кб/с] <Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NLDA - Yes We Are
+02. Angela Puxi - Anima
+03. Area Code 51 - Teldrassil
+04. Florzinho - Like The First Moment(   Читать дальше...   )Жанр: LoungeПродолжительность: 02:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831DC520CA84039962CEAA222262F184A00B02CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013706   (777346) от 05.05.2016
+
+VA - San Trance Disko Vol.1 (2016) [MP3|320 кб/с] <House, Progressve, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyroom -  Stella (Blue Amazon Vocal Remix)  9:11
+02. Lucas Oggier -  That's It  7:25
+03. Kid Massive -  Creeping for Girls  7:36
+04. Matan Caspi -  Check the Windows (East Cafe Remix)  7:33(   Читать дальше...   )Жанр: House, Progressve, Tech HouseПродолжительность: 03:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074C125B7623E831BBD97710AC40AB4FC3C239B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013807   (777345) от 05.05.2016
+
+Autumn of Communion - Broken Apart By Sunlight (2016) [MP3|320 кб/с] <Ambient, Experimental, Space>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cassini’s Visible Raindrops (21:47)
+02. KELT-4Ab (21:50 )
+03. TW Hydrae Observations (21:42 )
+04. Broken Apart By Sunlight (21:45 )(   Читать дальше...   )Жанр: Ambient, Experimental, SpaceПродолжительность: 01:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99021DF9D7BA0BE804CF96C86BA7974666DEB946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013740   (777344) от 05.05.2016
+
+VA - Festival Anthems Club EDM (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scotty -  On the Move (Cj Stone Edit)  2:57
+02. StadiumX -  Mombasa (Radio Edit)  3:17
+03. Alejandro Yanni -  Grenade (Original Mix)  5:25
+04. Saccao & Stage Rockers feat. Ryan Konline -  Sweetest Memory (Radio Edit)  3:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84ADB5E60EAF6A8BE7F98F61D44B832558055081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013647   (777343) от 05.05.2016
+
+VA - Straight Up Ear Candy Vol. 2 (2016) [MP3|320 кб/с] <Electro House >
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MitiS, Fathom - Breathe feat Fathom (Original Mix) [3:12]
+02. SugarBeats - Moon Walker feat Veronica RockStar [5:06]
+03. Khai - Do You Go Up (Madnap Remix) [3:29]
+04. Kicks n Licks - Young ft Adara (Original Mix) [4:09](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2409B666BA543C9B7B08EB471FB5FFA35D2DEEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013771   (777342) от 05.05.2016
+
+Ем. Ярославский | Анархизм в России (1939) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анархист строит свои планы будущего анархического общественного устройства не на основании знания законов общественного развития, а на основании придуманной общественной организации, которая бы обеспечивала неограниченную свободу отдельной личности. В основу своей деятельности анархисты кладут не интересы общества, а интересы отдельной личности - индивидуума. Так (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1CFD5E1755AB4E19B8FE6420B785ADFCBC6072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013757   (777341) от 05.05.2016
+
+John Coltrane featuring Pharoah Sanders - Live In Seattle (1965) 2011, Verve[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776566.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bullshit (04:57)
-02. Ghetto Drunk (feat. Tonkin) (04:43)
-03. Humus (04:42)
-04. Start With an A (04:58)(   Читать дальше...   )Жанр: Nu Jazz, Funky Breaks, Soul, Funky HouseПродолжительность: 01:18:35
+01.Cosmos [10:53]
+ 02.Out Of This World [23:43]
+ 03.Evolution [35:56]
+ 04.Tapestry In Sound [06:09]Жанр: Avant-Garde JazzПродолжительность: 01:16:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C73E080B4631E9799A0B64605BF4DA02AB056A1
+magnet:?xt=urn:btih:EBD10D40883594C1236C6E9847BE8E402607B7F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,28 +369,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014171   (776565) от 07.05.2016
+###  Публикация: 1013764   (777340) от 05.05.2016
 
-Terrie Odabi - My Blue Soul (2016) [MP3|320 кб/с] <Blues, Rhythm & Blues, Jazzy>
+Germind - Antimatter, Vol. 4 (2016) [MP3|320 кб/с] <Psybient Downtempo, Ambient>
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776565.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777340.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gentrification Blues (04:37)
-02. Live My Life (03:58)
-03. Will You Still Love Me (05:02)
-04. He Wouldn't Let Go (04:58)(   Читать дальше...   )Жанр: Blues, Rhythm & Blues, JazzyПродолжительность: 01:04:50
+01. Snow Butterfly (05:58)
+ 02. Water Air Thoughts (07:47)
+ 03. Stars On Ice (06:09)
+ 04. Bird Flight Mission (07:47)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:58:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64C0FF8D4A75CBEA2DBC04FE04BA2BCDF59BA7F5
+magnet:?xt=urn:btih:E4C5F89B2589307B5EA5BAD9D8DBDE616753E685
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,25 +398,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014071   (776564) от 07.05.2016
+###  Публикация: 1013869   (777339) от 05.05.2016
 
-Реймонд Постгейт и др. | Вердикт двенадцати [сборник] (1998) [FB2]
+Haldo, Clelia Liguori & Erika Scherlin - Napoli Lounge # 1 (2016) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
 
->>Художественная литература
->>Боевики, Детективы, Триллеры
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776564.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777339.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сборник вошли замечательные произведения мастеров классического детектива: роман Р.Нокса о неудавшемся розыгрыше «Газовый свет», роман Р.Постгейта «Вердикт двенадцати», рисующий судебный процесс, и малоизвестная повесть Агаты Кристи «Зеркало покойника».Жанр: ДетективФормат: FB2
+01. Haldo & Clelia Liguori - Tu Si' 'na Cosa Grande (Lounge mix) (03:13)
+02. Haldo & Clelia Liguori - Lacrime Napulitane (Lounge mix) (04:49)
+03. Haldo & Erika Scherlin - I Say I Sto Cca' (Dream mix) (04:39)
+04. Haldo & Erika Scherlin - Torna A Surriento (Lounge mix) (03:58)(   Читать дальше...   )Производство: Rebus RecordsЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 00:51:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:177DEA06857E443838269D0F78890EE40842DD24
+magnet:?xt=urn:btih:BF492B7BB630CEAC7B117F2F0D0AC18714B85BC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,28 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014274   (776563) от 07.05.2016
+###  Публикация: 1013742   (777338) от 05.05.2016
 
-Chain - Toward The Blues (1971) Reissue, 2007, Picar ‎[MP3|320 кб/с] <Rock, Blues Rock>
+SZRP - 23 (2016) [MP3|320 кб/с] <Hip-Hop Instrumental>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776563.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777338.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thirty Two - Twenty Blues
-02. Snatch It Back And Hold It
-03. Boogie
-04. Booze Is Bad News Blues(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:13:51
+01. 11
+02. 2.12AM
+03. 143U2
+04. 1NAME(   Читать дальше...   )Жанр: Hip-Hop InstrumentalПродолжительность: 00:20:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7383E3F0742CA51DCCC1A29FEC5B5B578FD21008
+magnet:?xt=urn:btih:ECFB1C6D6D84D69CE069BCD824AEBECED44F2DBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,27 +456,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014423   (776562) от 07.05.2016
+###  Публикация: 1013752   (777337) от 05.05.2016
 
-Без страховки. №10 выпуск  (07.05.2016) SATRip
+Lingon X 4.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lingon X  - автоматический запуск приложений и сценариев
+Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 апреля 2016Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий  и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5A9DA830C5AB0D4B1124CCD75323DFD156CEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013773   (777336) от 05.05.2016
+
+В. В. Комин | Анархизм в России (1969) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный курс лекций, прочитанный на историческом факультете педагогического института - одна из первых, после долгого "молчания", попыток рассмотрения в советской исторической науке истории российского анархизма. В книге рассматривается зарождение анархизма, его идейная эволюция, роль анархистов в российском революционном движении, их участие в революциях (   Читать дальше...   )Жанр: История, политология, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8D75197EEBCF612FA7902543AD9BB25EF2559A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013232   (777335) от 05.05.2016
+
+VA - Ibiza Techhouse Weekend Session (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Explanatory - Backwater
+02. Unexpected Marvel - The Search
+03. Spiced Boogie - Another Way
+04. Riffle Shuffle - Warning Function(   Читать дальше...   )Жанр: HouseПродолжительность: 02:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A5BBD0B5DA40C372B09B6CAE04007E147FC6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013793   (777334) от 05.05.2016
+
+Место встречи. Назовём своими именами? (05.05.2016) SATRip
 
 >>Документалистика и Телепередачи
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776562.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-18 отважных знаменитостей согласились выйти из зоны комфорта и попробовать свои силы в шоу "Без страховки".
-
-"Без страховки" - это уникальное шоу, в котором известные артисты и легендарные спортсмены становятся гимнастами. Несколько месяцев участники готовились, чтобы показать высший пилотаж на брусьях, бревне, на ковре и в воздухе. Отчаянные (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 01:45:17
+Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:57:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:265DC9944B7CCFD83455178AAA8D77F795936E89
+magnet:?xt=urn:btih:D36B30062265D40E9EAF84AA2460E822E16DE4BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -712,26 +564,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014410   (776561) от 07.05.2016
+###  Публикация: 1013720   (777333) от 05.05.2016
 
-Руссо туристо (2016.05.07) SATRip (выпуск 18. Пномпень)
+VA - 50 Dance Club Full of Essential Music (2016) [MP3|320 кб/с] <Club, Hands Up, Dancecore>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776561.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Правда ли, что нашего человека без труда можно вычислить за границей?
-Новое тревел-шоу СТС «Руссо туристо» объявляет войну туристическим стереотипам, развенчивает мифы об отдыхе за границей и предлагает только оригинальные маршруты путешествий. Ведущие проводят выходные в другой стране, чтобы проверить, так ли хороши те местные красоты, о которых «кричат» все сайты (   Читать дальше...   )Телекомпания: СТСЖанр: ТВ-ШоуРежиссер: Артем ОськинПродолжительность: 00:24:30
+01. Housegeist -  This Dreams (Orange & Blue Remix)  3:58
+02. Boyz From TBG -  The Fatherland (Radio Edit)  3:44
+03. DJ Jawesome -  Street Sharks (Radio Edit)  3:29
+04. Floorfilla With P. Moody -  On & on (Radio Edit)  3:27(   Читать дальше...   )Жанр: Club, Hands Up, DancecoreПродолжительность: 03:55:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BA08B1BE351B05B6EA2108A4E32003955C0154B
+magnet:?xt=urn:btih:838AB6A7BA0F61A729F7D35B49595CB2C68FE053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013810   (777332) от 05.05.2016
+
+Право голоса. "Рецепт от Обамы" (05.05.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777332.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: ЕС нужно как можно скорее создавать вместе с США Трансатлантическое торговое партнёрство, а России выгодно будет сотрудничать с сильной единой Европой - такой рецепт на будущее дал президент Соединённых Штатов Барак Обама. Почему американцы так торопят европейцев? Как будут выстраиваться наши отношения на практике?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97CEFE76793A019F13145B9DE4072B6FF1DB968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013521   (777331) от 05.05.2016
+
+Faderhead - Black Friday (2010) [FLAC|Lossless|image + .cue] <Electro, EBM, Synth-Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obnoxiated [2:09]
+02. Escape From The Machine [4:43]
+03. Hot Bath And A Cold Razor [3:41]
+04. The Moth And The Fire [3:59](   Читать дальше...   )Жанр: Electro, EBM, Synth-PopПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1964C88EBA2645FC43B925A702563C012A1E2643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013839   (777330) от 05.05.2016
+
+Газета | Сезон у дачи №8 (210) (Апрель 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61663F7336A80FC47B2185F0E53AD0B48FFDEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013811   (777329) от 05.05.2016
+
+Журнал | Дачные сезоны №4 (Апрель 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный журнал для дачников, в котором вы найдёте много полезных советов.Жанр: Дом, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3125ECCA94FC16E2A5401211C0C41B9040A9D8B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013719   (777328) от 05.05.2016
+
+Calendar 366 Plus 1.3.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calendar 366 Plus - календарь событий и напоминаний для меню бара
+Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарям, а также сделает более легким управление  событиями и напоминаниями.
+
+Нажмите на иконку и получите (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 мая 2016Разработчик: n.spektorПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9A7007B0A06194FC313157422AD8B62F8A28D21
 ```
 
 https://mybot314.ru/tekegram_catalog/

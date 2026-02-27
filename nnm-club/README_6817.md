@@ -1,23 +1,22 @@
-###  Публикация: 1012421   (778256) от 02.05.2016
+###  Публикация: 1204476   (779022) от 28.02.2018
 
-Проекты - Проект ProShow Producer - Perspective [PSH]
+Видоизмененный углерод / Altered Carbon (2018) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) LostFilm
 
->>Проекты
->>Слайдшоу (проекты)
+>>След.
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778256.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект создан в PSP-6. Презентация широкого применения.
-Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов. Превью и саундтрек - в раздаче.Формат: PSH
+Земля, XXVII век. Мир, в котором появилась возможность «сгружать» человеческое сознание и личность из одного тела в другое. Идеальный мир и для преступников, и для полицейских, и для армии, но вряд ли идеальный для бывшего военного спецназовца Такеси Ковача, которого миллиардер Бэнкрофт нанял для расследования гибели одного из своих тел. Внешне — явное самоубийство. (   Читать дальше...   )Производство: США / Mythology Entertainment, Skydance TelevisionЖанр: фантастика, триллер, драмаРежиссер: Ута Бризвитц, Питер Хор, Ник ХарранАктеры: Антонио Марциале, Крис Коннер, Хиро Канагава, Кристин Леман, Алика Аутран, Тич Грант, Юэль Киннаман, Хэйли Лоу, Заф Пару, Джеймс Пьюрфой и др.Перевод: Многоголосый профессиональный - LostFilmСубтитры: русские, английские, немецкие, испанские, французские, итальянскиеПродолжительность: ~01:00:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09E4629DAE34633450EDE057965F58CBFB4D8CC8
+magnet:?xt=urn:btih:97130B93C24C919163930AC5B0AECB9AC0B477E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,292 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012659   (778255) от 02.05.2016
+###  Публикация: 1210130   (779021) от 01.03.2018
 
-Джон Кэмпбелл | Нечто (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778255.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Я прочитал половинуЖанр: ФантастикаПродолжительность: 02:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E451E28DFBF724660DFC6E9D025738A0C2B28C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012547   (778254) от 02.05.2016
-
-Любовь Вайткене, Ирина Барановская | Собаки (2016) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если у вас уже есть собака или вы только планируете завести щенка – эта иллюстрированная энциклопедия для вас. Книга расскажет обо всём многообразии пород: охотничьих и пастушьих, ездовых и бойцовских, сторожевых и декоративных. Вы узнаете, как правильно выбрать собаку и подготовить для нее всё необходимое, научитесь ухаживать за питомцем и сможете обучить его различным (   Читать дальше...   )Жанр: Энциклопедии, Домашние ЖивотныеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329AB431478A3B8B1C7412430012466AD4604AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012879   (778253) от 02.05.2016
-
-Сложи весь мир v1.0.8 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сложи весь мир Бумажного королевства и узнай невероятную историю о проклятии треугольника. Проведи Йоло через мир потрясающих головоломок, найди скрытые дорожки и обведи вокруг пальца коварного Повелителя Тьмы. «Сложи весь мир» - это захватывающая история Бумажного королевства, целый мир-головоломка, в котором с каждым шагом сюжет принимает все более закрученный (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 13.04.2016Разработчик: CrazyLabsПоддерживаемая ОС: Android 4.0.3+Жанр: Puzzle — Logic (Паззл, Головоломка)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168B7AD5EA637B5A41177B786DED25136F9E14E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013012   (778252) от 02.05.2016
-
-XnView 2.36 Extended Portable by PortableAppZ [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778252.jpg" />
-</div>
-
-
-###  Подробнее
-
-XnView позволяет быстро и легко просматривать, обрабатывать и переводить графические файлы из одного формата в другой. Программа распознаёт более пятисот всевозможных графических форматов. Кроме работы с файлами изображений, программа поддерживает отображение видео- и аудиофайлов, что обеспечивается за счёт кодеков, установленных в системе. Окно программы состоит (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D8D8468C8AB6052DB8AFC2ACBD358CD21DE60D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012349   (778251) от 02.05.2016
-
-Любовь, как спорт / Results (2015) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэнни, недавно разбогатевший и переживший развод, записывается в фитнес-клуб с целью привести себя в форму. Владелец зала Тревор, гуру фитнеса, уже давно воспринимающий все вокруг в пересчете на килокалории, знакомит его со своей бывшей подружкой, амбициозной и энергичной Кэт, которая должна стать его персональным тренером. Тренировки дают неожиданный эффект: Дэнни (   Читать дальше...   )Производство: США, Burn Later Productions, Houston King ProductionsЖанр: Мелодрама, комедияРежиссер: Эндрю БуджальскиАктеры: Гай Пирс, Коби Смолдерс, Кевин Корригэн, Джованни Рибизи, Элизабет Берридж, Бруклин Декер, Тишуан Скотт, Констанс Зиммер, Мэтт Следж, Зои ГрэмПеревод: Профессиональный многоголосый (Лицензия / iTunes)Субтитры: ОтсутствуютПродолжительность: 01:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE88E66798B3E51DAA813CFD9163C5CE4DF6CDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012905   (778250) от 02.05.2016
-
-CyberLink PowerDVD Ultra 15.0.2718.58 RePack by qazwsxe [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778250.jpg" />
-</div>
-
-
-###  Подробнее
-
-CyberLink PowerDVD - один из самых мощных на данный момент программных проигрывателей, позволяющий просматривать DVD-Video и Video-CD на вашем компьютере. Главными преимуществами этого проигрывателя можно назвать высокое качество изображения, удобный интерфейс с возможностью смены скинов и лёгкую настройку. Кроме просмотра фильмов с компакт-дисков (DVD и Video-CD), (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD248267B1AAA9AE43EB8BA7F80125BC780AD199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012989   (778249) от 02.05.2016
-
-Обои - Super mix wallpapers Set.97-101 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия качественных обоев на различную тематику для Вашего рабочего стола.
-В данный пак вошли выпуски 97-101.Формат: JPGРазрешение файлов: 1024x768 - 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9BAC857A158A8B9843CCE1932717BFF81FB8ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012735   (778248) от 02.05.2016
-
-Media Player Classic - Black Edition (MPC-BE) 1.4.6.1465 Beta + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Media Player Classic - Black Edition (MPC-BE) – универсальный проигрыватель аудио- и видеофайлов для операционной системы Windows. Этот проект имеет свою независимую разработку на базе оригинального кода «Media Player Classic» и «Media Player Classic - Home Cinema». Плеер имеет внушительный набор аудио-видео фильтров, который позволяет ему воспроизводить практически (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D581AC2597E6C2802F9556A2EF509337686FBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211049   (778247) от 05.03.2018
-
-VA - Chillout Sounds Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  James Mac feat. Rozie Gyems  -  I Need Your Love (VIP Mix)  4:48
-02.  Marc Moosbrugger  -  Turn It Up (Original Mix)  4:07
-03.  Paula P'cay & DJ Aristocrat  -  Nobody (Original Mix)  4:44
-04.  Nikko Culture  -  Are You Remember (Original Mix)  6:56(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BEBD8178394AE38EFAF6710208E2AEA6B826E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211041   (778246) от 05.03.2018
-
-VA - Chilling Sounds Vol.9 (2018) [MP3|320 Kbps] <Chillout, Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  MGA  -  Scorpion (Original Mix)  3:30
-02.  Breezy BZ  -  Breezy Bz (Original Mix)  6:24
-03.  Cellisto  -  Melancholy (Original Mix)  5:46
-04.  CJ Wetal  -  Paradise Dawn (Original Mix)  4:34(   Читать дальше...   )Жанр: Chillout, Balearic, DowntempoПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E654B34A4CB30D48207D159FD3AA10928193C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211059   (778245) от 05.03.2018
-
-Алексей Плещеев | Детки (1913) [JPG]
+Серафима Бажина | Доброе дело (1912) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778245.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Стихи и рассказы о детях.Жанр: Детская проза, Сказки, СтихиФормат: JPG
+Повесть для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C431DAEF2509837983943F3028E90AA4760872D5
+magnet:?xt=urn:btih:C29C0E9E628D8F16D21823DCB8294561B72E089C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,25 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211068   (778244) от 05.03.2018
+###  Публикация: 1210003   (779020) от 01.03.2018
 
-Zen - Dark Blue (2018) Altar Techno [FLAC|Lossless|WEB-DL|tracks] <Techno, Psytech>
+VA - Aquarius (2013) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental, Glitch, Minimal, Modern Classical>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778244.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dark Blue (10:43)Жанр: Techno, PsytechПродолжительность: 00:10:43
+01. Federico Durand - Una Vision Entre Los Arboles Del Bosque (05:01)
+ 02. The Green Kingdom - Pineloops3 (05:00)
+ 03. Pjusk - Skarlagen (05:00)
+ 04. Melodium - Pistoruis (05:00)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient, Drone, Experimental, Glitch, Minimal, Modern Classical •Продолжительность: 01:16:46 •
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58AA92B58D8AC69ED0751F4D27563BCC6B48DD0C
+magnet:?xt=urn:btih:B184A39B52833382E114E73329156D895D4CA2DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,25 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210824   (778243) от 05.03.2018
+###  Публикация: 1210161   (779019) от 01.03.2018
 
-Всеволод Гаршин | Сигнал (1913) [JPG]
+D'Arcangelo - Audiovisual Designs (2013) Rephlex [FLAC|Lossless|tracks+.cue] <IDM, Techno, Experimental>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778243.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказ для среднего и старшего школьного возраста.Жанр: Детская прозаФормат: JPG
+01. Color Two (04:09)
+ 02. Sep On Acid (04:10)
+ 03. External Monday (04:42)
+ 04. Bet Root (03:35)(   Читать дальше...   )Тип издания: CD •Жанр: IDM, Techno, Experimental •Продолжительность: 00:48:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80FEA442FBD3ADFA69C78BFF0BC74CB616099694
+magnet:?xt=urn:btih:B57D87126CD34997551837AC930F7DEFD118C2EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -370,141 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210866   (778242) от 05.03.2018
+###  Публикация: 1209832   (779018) от 01.03.2018
 
-VA - Redux Presents: The Uplifting Selection Vol.1 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  TrancEye  -  Lonesome Feelings (Extended Mix)  6:40
-02.  Kiyoi & Eky  -  Moon River (Extended Mix)  6:59
-03.  Riialto & F.G. Noise  -  Edgy (Extended Mix)  7:15
-04.  Fright Nite  -  Fifth Dimension (Extended Mix)  6:50(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06943A4BCEE3BC5D796B9094180CEA2CB8213055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210989   (778241) от 05.03.2018
-
-Armenian Navy Band - How Much Is Yours? (2005) D. Svota Music [MP3|192 Kbps] <Folk, World, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. Let Factories Open 4:04
-02. Let's Not Become a Copy from a Copy 6:38
-03. Let's Try a New Road 4:42
-04. I Don't Forget My Faith 4:49(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5586C104DB43ABE5FE9A9BEF10085EA86AC84A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211066   (778240) от 05.03.2018
-
-П. Елисеев | Моряки (1913) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F1A77DF32E6D1C37D7905BC6787A660D86F71E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210962   (778239) от 05.03.2018
-
-Armenian Navy Band - Sounds Of Our Life - Part One: Natural Seeds (2004) Heaven And Earth [MP3|192 Kbps] <Folk, Avantgarde>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. Water 1:28
-02. River 5:46
-03. Ocean 3:29
-04. Sun 1:04(   Читать дальше...   )Жанр: Folk, AvantgardeПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69686806CBD3A501036ECD1B0AE25FF9BEF5F591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211017   (778238) от 05.03.2018
-
-The Temperance Movement - White Bear (2016) Earache [MP3|320 Kbps] <Rock, Blues Rock, Hard Rock>
+Moaning - Moaning (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778238.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Temperance Movement - британская (вернее Шотланская) блюз рок, хард рок- группа, сформированная в 2011 году вокалистом Филом Кэмпбеллом и гитаристами Люком Поташником и Полом Сайером. Секция ритма состоит из басиста Ника Фиффа и барабанщика из Австралии Деймона Уилсона. В совокупности группа имеет богатую историю. Начало становления группы 2011 год.01. Three Bulleits 3:14
-02. Get Yourself Free 3:37
-03. A Pleasant Peace I Feel 4:35
-04. Modern Massacre 2:21(   Читать дальше...   )Жанр: Rock, Blues Rock, Hard RockПродолжительность: 00:39:59
+01. Don't Go (02:51)
+02. Tired (03:12)
+03. Artificial (03:32)
+04. Close (02:55)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:33:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46B5C594CD095722717AE166C143F9541DAFEC39
+magnet:?xt=urn:btih:CD945B3D80F2C0D913C6316D06958B8757D05CBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,28 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211077   (778237) от 05.03.2018
+###  Публикация: 1210042   (779017) от 01.03.2018
 
-VA - Empire Records - Progressive Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Nexet - Иммунитет (2017) [MP3|320 Kbps] <Rap>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778237.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Clouds Testers  -  Inhale The Love (Semenovb Instrumental Remix)  3:58
-02.  Jurgen Paape  -  Whisper Echo (Original Mix)  5:00
-03.  Luke Lucid  -  Black Star (Original)  5:28
-04.  Sebastian Davidson  -  Golden Age (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:04:07
+01. Точка (3:45)
+ 02. Иммунитет (3:30)
+ 03. Не виноваты (3:18)
+ 04. Моветон (3:11)(   Читать дальше...   )Жанр: RapПродолжительность: 00:27:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79E6DCFD737F854D79A6B683BEA372697F6847DB
+magnet:?xt=urn:btih:59C302F8E68463A36B9BD203416E6AC8E79BD103
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,28 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210880   (778236) от 05.03.2018
+###  Публикация: 1210205   (779016) от 01.03.2018
 
-VA - Total Trance Selections Vol.09 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Ellen Doty - Come Fall (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 
->>Electronic
->>Trance
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778236.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Moonsouls & Marjan  -  Until The End (Extended Mix)  6:36
-02.  Cyril Ryaz  -  Fall & Rise (Original Mix)  6:39
-03.  All Sandu  -  Joy (Original Mix)  5:32
-04.  Roman Messer & Vito Fognini  -  Ambition (Eximinds Extended Remix)  4:45(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:35:53
+01. You're Too Late 2:38
+02. Maybe I Knew 4:25
+03. Sea of Hearts 2:43
+04. September Moon 3:28(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA9FA2FF831F8870C494114C1BD5F0CCCDE841A8
+magnet:?xt=urn:btih:A4BF7AA04145D0F9938957F825357CE9739FB6AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,26 +195,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210954   (778235) от 05.03.2018
+###  Публикация: 1210159   (779015) от 01.03.2018
 
-Нодар Хундадзе | Миргородские ночи (2018) [MP3]
+D'Arcangelo - D'Arcangelo (2018) Happy Skull [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saba Tree (04:00)
+ 02. Pull Seven (04:15)
+ 03. AC - SF13 - 2 Cid - 13th Cider (04:41)
+ 04. Korty (02:40)Жанр: IDM, ElectroПродолжительность: 00:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F91AA579F09E6FA9C0E1D247853D15F324FE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209862   (779014) от 01.03.2018
+
+Cranes - Population Four (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779014.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tangled Up (05:36)
+2. Fourteen (03:15)
+3. Breeze (03:41)
+4. Can't Get Free (02:49)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBEBF8085B61C101842036E5DF66BF13CF0A35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209992   (779013) от 01.03.2018
+
+Журнал | Elle Decor [USA] №2 (март 2018) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующийся большой популярностью журнал "Elle Decor" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов и знакомство (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7C01623A18E36141DDE3C1E75B81953FD7333A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209964   (779012) от 01.03.2018
+
+Юрий Милославский | Приглашенная (2018) [MP3]
 
 >>Художественные аудиокниги и публицистика
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778235.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Миргородские ночи» — роман в новеллах о великом грузинском поэте Давиде Гурамишвили, творчество которого стало символом дружбы грузинского, русского и украинского народов.
-Нодару Хундадзе принадлежат романы: «Трещина», «Рождение радуги», «Фон», рассказы и новеллы. Во время изгнания он издал поэтические сборники: « Абхазия-наша боль», «Боль и еще раз боль», «Лирика», (   Читать дальше...   )Жанр: Классическая и современная прозаПродолжительность: 10:14:54
+Юрий Георгиевич Милославский - прозаик, поэт, историк литературы, религиовед. Уроженец Харькова - там и начинал как литератор. С 1973 года в эмиграции. Приглашенная - это роман о природе любви, о самом ее веществе, о смерти и возрождении. Читателю предлагается вслед за рассказчиком - Николаем Усовым - погрузиться в историю юношеской несчастной любви: продолжая воздействовать (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 13:54:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FE4FF36F8851472DBDF0B4A3DA30ACE96D428C5
+magnet:?xt=urn:btih:B94D2FB7BCDB82B381B84CF49CF7212FA50D4206
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,54 +305,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210694   (778234) от 05.03.2018
+###  Публикация: 1209738   (779011) от 01.03.2018
 
-VA - Soul Contact Vol.1 (Mixed by Sam Laxton) (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dan Thompson feat. Natalie Gioia  -  Be In Love (Sam Laxton's Soul Contact Remix)  3:54
-02.  Andy Moor feat. Michele C  -  We Can Be Free (Evan Pearce Remix)  6:33
-03.  Temple One  -  The 42nd Parallel (Extended Mix)  7:48
-04.  Sam Laxton feat. Noire Lee  -  Thunderstorm (Extended Mix)  5:30(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC3EDE494EE27CC3E85E5EC1E37768A64DC102D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211061   (778233) от 05.03.2018
-
-П. Елисеев | Максимка (1913) [PDF]
+Алексей Кравченко | Детские забавы (1913) [JPG]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778233.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+Сборник стихов и рассказов для детей младшего возраста.Жанр: Детская проза, СтихиФормат: JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93BE6A3C2F3117A02AB87220EAFCBD51C280A1A7
+magnet:?xt=urn:btih:29BB44F6B7E0C57AF803FDADCD4BBB86444710FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -652,28 +331,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210934   (778232) от 05.03.2018
+###  Публикация: 1209955   (779010) от 01.03.2018
 
-VA - Best Of Progressive House 2018 Vol.02 (2018) [MP3|320 Kbps] <Progressive House>
+8mm - Opener (EP) (2004) [FLAC|Lossless|tracks + .cue] <Trip-Hop>
 
->>Electronic
->>House
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778232.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Sound Quelle  -  Djerba (Original Mix)  5:43
-02.  The Midnight  -  Synthetic (We Are All Astronauts & Lost Empire Remix)  7:19
-03.  Andromedha  -  Rise (Original Mix)  6:00
-04.  Talamanca  -  Meditation (Deep Mix)  7:21(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:07:51
+01. Opener (03:51)
+02. Save Yourself (03:07)
+03. Never Enough (04:14)
+04. Nothing Left To Lose (03:09)(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 00:24:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4057623349B56A0935C016311107CC42B5C2FECB
+magnet:?xt=urn:btih:A678120C839E0242B7C32DA42A03C0C07CFAF820
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,28 +360,348 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211010   (778231) от 05.03.2018
+###  Публикация: 1209993   (779009) от 01.03.2018
 
-The Temperance Movement - The Temperance Movement (2014) Earache, Deluxe Edition [MP3|320 Kbps] <Rock, Blues Rock, Hard Rock>
+Журнал | Elle Decor [USA] №3 (апрель 2018) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующийся большой популярностью журнал "Elle Decor" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов и знакомство (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056425237FB15F3DDA7BE7EAB787DAFB2F1E1B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209965   (779008) от 01.03.2018
+
+Газета | 1000 секретов [Украина] №3 (февраль 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779008.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C246ADFEFE810DEFEBD7210AFE757813FA857E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209975   (779007) от 01.03.2018
+
+Todd Gauthreaux & Label-Pack Simulacra Records (1997-2018) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Drone, Experimental, Indie Rock, Ethereal, Shoegaze>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monochrome Frost (05:38)
+ 02. A Year Of Disappointments (04:51)
+ 03. The Trouble With Dreams (06:09)
+ 04. Theory Of Impossible Shapes (04:38)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Drone/ExperimentalПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07AF98D24ED85CDAEF353ABD5CF3231316104461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210027   (779006) от 01.03.2018
+
+VA - German Top 100 Single Charts 02.03.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779006.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Liam Payne Rita Ora - For You (Fifty Shades Freed)
+002. Bausa - Was du Liebe nennst
+003. Drake - God's Plan
+004. Eminem - River (feat. Ed Sheeran)(   Читать дальше...   )Жанр: PopПродолжительность: 05:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6565444CA90B1BE9B82FF55C4D8DB9A02AEDDF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209842   (779005) от 01.03.2018
+
+Memories Of Machines - Warm Winter (2011) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Ambient, Dream Pop>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778231.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Temperance Movement - британская (вернее Шотланская) блюз рок, хард рок- группа, сформированная в 2011 году вокалистом Филом Кэмпбеллом и гитаристами Люком Поташником и Полом Сайером. Секция ритма состоит из басиста Ника Фиффа и барабанщика из Австралии Деймона Уилсона. В совокупности группа имеет богатую историю. Начало становления группы 2011 год.01. Only Friend 4:29
-02. Ain't No Telling 3:52
-03. Pride 5:39
-04. Be Lucky 3:23(   Читать дальше...   )Жанр: Rock, Blues Rock, Hard RockПродолжительность: 01:23:51
+01. New Memories Of Machines
+02. Before We Fall
+03. Beautiful Songs You Should Know
+04. Warm Winter(   Читать дальше...   )Жанр: Progressive Rock, Ambient, Dream PopПродолжительность: 00:49:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F03E7D32A1FF7CD7DB5E57CAF2EAF43D9B2DE74
+magnet:?xt=urn:btih:33DD25B1B18B8D6B8220BF9FE762D3052688EA18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209962   (779004) от 01.03.2018
+
+Журнал | Садовод и огородник №5 (март 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779004.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Только в «Садоводе и огороднике»: самые актуальные и полезные советы от ученых, а также проверенные толковые подсказки от садоводов-любителей. Журнал знакомит своих (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A5D0518B6C6BE184A735DBB905209F0C81DDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209958   (779003) от 01.03.2018
+
+Журнал | Дом и Интерьер №3 (март 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный журнал о дизайне "Дом & интерьер" – издание для всех, кому интересны модные тенденции в области создания интерьеров; искусство, антиквариат, шедевры мировой архитектуры.Жанр: Архитектура, строительство, дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63273E2F760BBBFB88573415AF8AECBEA7EA69B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209981   (779002) от 01.03.2018
+
+Журнал | Секреты кухни №3 (127) (март 2018) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9003B5DF697E2DD6B60D58CFE7642F58103B000D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210133   (779001) от 01.03.2018
+
+Иван Билибин (илл.) | Былина об Илье Муромце (1912) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779001.jpg" />
+</div>
+
+
+###  Подробнее
+
+В городе Муроме, в селе Карачарове жил крестьянин, по прозванью Иван Тимофеевич, со своей супругой, Ефросиньей Яковлевной. Прожили они вместе пятьдесят лет, а детей у них не было. Часто старики горевали, что под старость прокормить их будет некому. Горевали-горевали, Бога молили, и родился у них, наконец, долгожданный сын. А имя ему дали Илья.
+
+И вот живут они с (   Читать дальше...   )Жанр: Детская проза, СказкиФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A94F1FF4473E507E868A4DF936AA69029CA000C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210089   (779000) от 01.03.2018
+
+WinCatalog 2017 17.45 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779000.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinCatalog - это простая в использовании программа-каталогизатор, предназначенная для каталогизации дисков, файлов и папок. Приходилось ли Вам когда нибудь просматривать содержимое десятков CD в поисках нужной программы или песни? Используя WinCatalog Вам больше никогда не придется тратить время на поиск. Достаточно один раз добавить Ваши диски в WinCatalog и поиск (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A618A0EA29A7F1EA0639BF83092DEBB916F707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209985   (778999) от 01.03.2018
+
+Журнал | 5 Колесо №1 (297) (январь 2018) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778999.jpg" />
+</div>
+
+
+###  Подробнее
+
+"5 колесо" - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей.В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE98C9660376A2973342E7680AB864B69DE4B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210207   (778998) от 01.03.2018
+
+Обои - Сборник разнообразных обоев 2560x1600 #305 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка картинок на различную тематику.Формат: JPGРазрешение файлов: 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542781409C1E7196D5E4BB0FCEB840EA4D54A561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209994   (778997) от 01.03.2018
+
+Газета | 1000 советов кулинару №3 (февраль 2018) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778997.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1000 советов кулинару» - это кулинарные хитрости от шеф-поваров и опытных хозяек, фирменные рецепты читателей, советы по здоровому и правильному питанию, экономному ведению домашнего хозяйства, покупке кухонной утвари и бытовой техники, кулинарные путешествия, мастер-классы, конкурсы и призы. Статьи о том, что делает людей ближе, объединяет разные поколения и делает (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AEE431A4CD295FD56B500E59C6578973510D6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

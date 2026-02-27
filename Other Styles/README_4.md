@@ -1,3 +1,61 @@
+###  Публикация: 1457240   (1024563) от 25.03.2021
+
+VA - Romantic Melodies: Classic In Pop (2005) [MP3|320 Kbps] <Pop, Rock, Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricky King - Mondscheinsonate (3:34)
+02. Francis Goya - Concerto Pour Une Voix (2:55)
+03. Jacques Loussier - Summer Adagio (4:21)
+04. Anthony Ventura - Menuet (3:41)(   Читать дальше...   )Жанр: Pop, Rock, ClassicalПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE53F0D514C186EDD66A7DE440084AE599F31196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457716   (1024209) от 27.03.2021
+
+Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024209.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:20] 01. Pensacola, Florida (Godzilla Theme)
+[07:26] 02. Skull Island (Kong Theme)
+[02:02] 03. Apex Cybernetics
+[02:29] 04. A New Language(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C850B3A2B042DC887972FAC5E01E9AA3A876DEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457717   (1024200) от 27.03.2021
 
 Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
@@ -687,64 +745,6 @@ Behzad (Behzad Aghabeigi) - 5 альбомов (1997-2017) [MP3|320 Kbps] <Flame
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C97D8AEB95819004DD1C683171C349B9AC1137C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464295   (1019975) от 21.04.2021
-
-Gandiva - All Your Grace (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surjya Debata
-02. All Your Grace
-03. Nijhum Rate
-04. Aum Govindaya Nama(   Читать дальше...   )Жанр: World, MantrasПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732EB8DA94AC57E17857F1F4423A0591C54095F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464254   (1019974) от 21.04.2021
-
-VA - Tribal Dreaming (2005) [MP3|320 Kbps] <NewAgе, Tribal-trance, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Prem Joshua - Dakini (Monsoon Remix)
-02. Leaving Footprints - Forefathers
-03. Daion - Pachakuteq
-04. Ariel Kalma/James Nicholas - Ano Tao Inan(   Читать дальше...   )Жанр: NewAgе, Tribal-trance, ChilloutПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D647B54A8D414895F099EC6663B537804473968B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1389050   (785111) от 08.06.2020
+
+VA - Old School Rap Classics (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biz Markie - Nobody Beats The Biz 5:03
+02. Ice-T - Colors 4:26
+03. Grandmaster Flash & The Furious Five - Gold 4:21
+04. Ultramagnetic Mcs - Traveling At The Speed Of Thought (Remix) 1:52(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B7CA622FD458C40FE8CD4729A32C9F390A49F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205171   (784008) от 08.02.2018
 
 Каста - Лучшие песни (2014) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -714,35 +743,6 @@ VA - 100 Hits The Best R&B Album (2018) [MP3|320 Kbps] <RnB, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2879CB34C7523986FBF7136DDB74854BB03703F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215806   (754473) от 28.03.2018
-
-Элджей - Sayonara Boy X (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Chat
-02. Suzuki
-03. ZEF 2.0
-04. LEGO(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E3BD07D80499942196F4FDFF3F88DEF7FD5BCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

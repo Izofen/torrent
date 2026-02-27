@@ -1,3 +1,292 @@
+###  Публикация: 1677847   (149367) от 19.11.2023
+
+Братья Радченко - Малиновый звон (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пора любви
+02. Домик окнами в сад
+03. Синенький платочек
+04. Зорька алая(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B415B0B25931B4657FBB42DAC6D63D43988640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677873   (149357) от 19.11.2023
+
+Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Water [00:04:15]
+02. What's Simple Is True [00:03:35]
+03. Hands [00:03:55]
+04. Kiss The Flame [00:03:16](   Читать дальше...   )Жанр: PopПродолжительность: 02:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5373A752147A1A88293C1AA3E308547211350936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677831   (149228) от 19.11.2023
+
+Vanessa Amorosi - Memphis Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolf [00:04:05]
+02. How Long [00:03:59]
+03. Lift Us Up [00:04:25]
+04. Don't Judge Me [00:04:37](   Читать дальше...   )Жанр: Pop, Soul, BluesПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713D92E1AEEB4B5901650A791B91191832F27A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677709   (149107) от 19.11.2023
+
+Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Want to Know (1999 Remaster) (4:07)
+02. N.Y.C. (1999 Remaster) (4:09)
+03. Your Painted Smile (1999 Remaster) (3:14)
+04. Mamouna (1999 Remaster) (5:11)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 02:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9331A7FFA9AAE22BE14363ABC6EB7902C9B8309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677917   (149071) от 19.11.2023
+
+Thomas Anders & Florian Silbereisen - Alles funkelt! Alles glitzert! (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alles funkelt! Alles glitzert!
+02. Neonfarbenwelt
+03. Alles wird gut
+04. Wir tun es nochmalЖанр: Eurodance, EuropopПродолжительность: 00:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07CB357959481E9C5D3FE982301BB45BDD26232D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677723   (148910) от 19.11.2023
+
+Josh Groban - Closer (2003) 20th Anniversary Deluxe Edition, 2023, Reprise [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oceano [00:04:03]
+02. My Confession [00:04:58]
+03. Mi Mancherai (Il Postino)Жанр: PopПродолжительность: 01:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B705530AD2DEA635927812C2F5F2726F3D82FDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969258   (148885) от 26.12.2015
+
+Ace Of Base - Cruel Summer (1998) Remastered, 2015, Mega Records [MP3|320 кб/с] <Pop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148885.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cruel Summer (03:36)
+2. Donnie (Ole Evenrude Version) (03:49)
+3. Whenever You're Near Me (US Album Version) (03:32)
+4. Everytime It Rains (04:52)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209CCB0CA6F10ECFEC9142E01B743F569D97DDC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271714   (148754) от 24.12.2018
+
+Four On The Floor - Four On The Floor (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Goes My Baby (5:08)
+02. Gypsy Woman (6:12)
+03. Any Day Now (5:18)
+04. Glimmer Twins Medley - Let's Spend The Night Together (4:16)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EB61F2EF8B6FF6163D13FFAC1887FF354B4E2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677843   (148751) от 19.11.2023
+
+Milli Vanilli - The Best of Milli Vanilli (2023) 35th Anniversary [FLAC|Lossless|WEB-DL|tracks] <Pop, Rap, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girl You Know It's True [00:03:18]
+02. Baby Don't Forget My Number [00:04:10]
+03. Blame It on the Rain [00:04:08]
+04. I'm Gonna Miss You [00:03:59](   Читать дальше...   )Жанр: Pop, Rap, Synth-popПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496E84370BED269FBA14414CC7FAECCF21EF4EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271167   (148738) от 24.12.2018
+
+VA - The Ratpack At Christmas (2012) [MP3|320 Kbps] <Jazz, Pop, Folk
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148738.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Frank Sinatra - White Christmas                         [03:26]
+2. Dean Martin - Let It Snow! Let It Snow! Let It Snow!    [01:53]
+3. Sammy Davis Jr. - A Man With A Dream                    [02:48]
+4. Frank Sinatra - Silent Night, Holy Night                [03:12](   Читать дальше...   )Жанр: Jazz, Pop, FolkПродолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D56494D672B2EE90DAF0DE0C0CB9847F06EDC63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519436   (148709) от 24.12.2021
 
 VA - Morning Motivation Pop (2021) [MP3|320 Kbps] <Pop>
@@ -452,296 +741,6 @@ VA - Female Pop Ballads (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7E23AEDFA3E17BE1F41F85BF180422740B846BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678194   (147454) от 20.11.2023
-
-VA - Hit News Vol. 2 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  L.A. Work - Crazy Boy
-02.  2 Unlimited - Jump For Joy
-03.  Mac Project - Everybody
-04.  Optical 2 - Move On Up(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0A91B5F73B198215B5CC338558D604032D1D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968635   (147414) от 27.12.2015
-
-a-ha - Hunting High And Low (1985) 2CD, Remastered, 2010, Warner Bros. Records [FLAC|Lossless|image + .cue] <Pop, New Wave, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me (03:49)
-02. Train Of Thought (04:15)
-03. Hunting High And Low (03:45)
-04. The Blue Sky (02:37)(   Читать дальше...   )Жанр: Pop, New Wave, Synth-popПродолжительность: 02:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8853AD8CA9F296272E5B76F858260940813F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678059   (147386) от 20.11.2023
-
-Мэйби Бэйби - Shawty (2023) [MP3|320 Kbps] <Teen Pop, Pop Punk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hello, My Name Is Baby
-02 - Duraga
-03 - Принцесса Диана
-04 - Ice Baby(   Читать дальше...   )Жанр: Teen Pop, Pop PunkПродолжительность: 00:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D15A91DBDE0D2E1004863F2004493896F26D4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678052   (147335) от 20.11.2023
-
-Мэйби Бэйби - Мэйбилэнд (2022) [FLAC|Lossless|WEB-DL|tracks] <Teen Pop, Pop Punk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nya-Nya-Nya ^ω^ (00:02:20)
-02 - Мэйбилэнд (00:02:22)
-03 - Дакимакура (00:03:20)
-04 - Интимки (00:02:49)(   Читать дальше...   )Жанр: Teen Pop, Pop PunkПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167DEB9BB1A58C6E0ED56947C828280788E99023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678086   (147298) от 20.11.2023
-
-James Last - The Best Of Non Stop Dancing (1998) Remastered, Reissue, 2023, Polydor [MP3|320 Kbps] <Pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Memphis Tennessee [00:01:00]
-02 - A Hard Day's Night [00:00:59]
-03 - I Feel Fine [00:01:20]
-04 - Satisfaction [00:02:42](   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 02:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5F82320E3FBE1DD3B68F38487CD12B36B39DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272025   (147245) от 25.12.2018
-
-VA - Female Pop Ballads (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston - I Will Always Love You 4:32
-02. Mariah Carey - Hero 4:19
-03. Celine Dion - It's All Coming Back To Me Now (Radio Edit 1) 5:31
-04. Alison Moyet - Love Letters (Remastered) 2:52(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E31E4EA3F0EAF5DB7B6434238B380EFF06E7C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969613   (147213) от 27.12.2015
-
-Игорь Корнелюк - Избранное Vol. 2 (2014) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Дожди
-02.  Ничего не поделать
-03.  Знал бы прикуп – жил бы в Сочи
-04.  Брось(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D87C91C32E6789E087817CAE1AF02844F924637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519706   (147162) от 25.12.2021
-
-Віктор Павлік (Виктор Павлик) - Найкраще (Лучшее) (2003) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нема з ким 3:43
-02. Все минуло 4:17
-03. Залишись на мить 3:50
-04. Не забувай 3:18(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D482A2C5EEA35F40210195B83CA0A1E02054CB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678099   (147090) от 20.11.2023
-
-James Last - The Best Of Non Stop Dancing (1998) Remastered, Reissue, 2023, Polydor [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy-Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Memphis Tennessee [00:01:00]
-02 - A Hard Day's Night [00:00:59]
-03 - I Feel Fine [00:01:20]
-04 - Satisfaction [00:02:42](   Читать дальше...   )Жанр: Pop, Easy-ListeningПродолжительность: 02:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FA51AE684128C07C4CFD16D9387646DBC1F323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969551   (147073) от 27.12.2015
-
-Игорь Корнелюк - Избранное Vol. 1 (2014) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Билет на балет
-02.  Мало ли
-03.  Маленький дом
-04.  Звезда(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92C63B919F023102AC070F49EA27BF03BC65B9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

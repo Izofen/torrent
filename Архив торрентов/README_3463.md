@@ -1,349 +1,3 @@
-###  Публикация: 826623   (453940) от 30.09.2014
-
-Angelica S & Science Deal - Nocturne (2014) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 02:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7029D98BDCAED4265871C53C93AD3C7240CE507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408648   (453919) от 13.09.2020
-
-Футбол. Лига 1. Чемпионат Франции 2020-2021. 3-й тур. Бордо — Лион (2020) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Франции по футболу (Лига 1) 2020-2021.
-11 сентября 2020, пятница. 22:00 МСК
-3-й тур
-Бордо (Бордо) — Лион (Лион)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256494F37B85751769049E26B07992E2F1BB02F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408541   (453918) от 13.09.2020
-
-Lane 8 - Sunrise Set, Grand Lake Colorado, United States (2020-09-06) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archaellum - Reflections
-02. Lane 8 - Sunday Song (Qrion Remix)
-03. Hidden Face - Need U
-04. Polar Inc. - Regal(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 02:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853CF41F6B452F2FBF1D74CDE6D64215972D7B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942758   (453902) от 01.10.2015
-
-IcoFX 2.12 RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453902.jpg" />
-</div>
-
-
-###  Подробнее
-
-IcoFX - программа для создания и редактирования иконок и курсоров с поддержкой прозрачности, которая работает в Windows XP, Windows Vista, Windows 7, 8, 8.1, 10 и Macintosh. Поддерживает статические и анимированные курсоры. Легко может создать логотип для вашего сайта или блога. Вы можете легко конвертировать ваши любимые изображения в иконки или курсоры. Поддерживаемые (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE3D9E9FAB5774E06A598A1A5B8A899EBCDC4A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942690   (453900) от 01.10.2015
-
-Николай Дмитриев | Рубин из короны Витовта (2015) [FB2, EPUB]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть поверье: драгоценные камни способны влиять на своего владельца – они могут и помочь ему в трудную минуту, и грозить смертельной опасностью, особенно если человек, в руки которого попал этот камень, слаб и не обладает должной властью. Вот и рубин, ограненный мастером Антонио Цзаппи, изменил судьбы многих людей, прежде чем попал в Великое княжество Литовское, (   Читать дальше...   )Жанр: Исторические приключенияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064023AE22FAD0EEB0434E3C3005F01E30C0C6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942708   (453898) от 01.10.2015
-
-Bryan Adams - Get Up (2015) [FLAC|Lossless|WEB-DL]<Pop Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Belong To Me
-02. Go Down Rockin’
-03. We Did It All
-04. That’s Rock And Roll(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18D3DFD69E25424D8D033F5BFC8A1B7EB732053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389361   (453887) от 19.09.2011
-
-D-Man 55 - Облака (2011) [MP3|320 kbps]<RAP>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ключ на старт
-    02. Вуфертестер (Три тонны кача)
-    03. Дух воина
-    04. Любо
-    05. Вспоминай
-    06. Жизнь продолжается (Kubrak rmx) п.у. 25-17
-    07. Свечка
-    08. Пусть
-    09. Взлётка п.у. Грот, Супец
-    10. В президенты 2(   Читать дальше...   )2011Жанр: RAPПродолжительность: 00:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB53D05FEC1EBF22CAB9696A1BEF7E177F7E33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705014   (453847) от 28.09.2013
-
-Lady Gaga - Applause (2013) French CDS [FLAC|Lossless|image + .cue]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Applause   (3:33)
-02.  Applause (Instrumental)   (3:32)Жанр: PopПродолжительность: 00:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60814F6788DAFE7B3511D0752BC5CB2EEBC23576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407747   (453794) от 13.09.2020
-
-Mania - Дискография (3 Albums, 5 Singles) (2017-2019) [MP3|320 Kbps] <R&B>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интроо
-02. Рассвет
-03. Серым облакам
-04. Отец(   Читать дальше...   )Жанр: R&BПродолжительность: 02:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93E8D0B9F522FB2D87A722F595321C65E7EAF07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408631   (453793) от 13.09.2020
-
-Футбол. Лига 1. Чемпионат Франции 2020-2021. 2-й тур. Ланс — ПСЖ (2020) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Франции по футболу (Лига 1) 2020-2021.
-10 сентября 2020, четверг. 22:00 МСК
-2-й тур
-Ланс (Ланс) — ПСЖ (Париж)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F405D1F72E194A8BF4693608482A33D6A886DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551474   (453791) от 24.09.2012
-
-VA - Phuture Funk Volume 2 (2011) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453791.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Electrosoul System & Subwave - One - (06:45)
-2. Electrosoul System - Out There - (06:06)
-3. Nookie - You Can't Hold Me Back (12 version) - (07:11)
-4. Nookie - Get Down (12 version) - (05:57)
-5. Paul T - Direct Action (12 version) - (07:09)
-6. Paul T - Heart & Soul (feat Lady Free - 12 version) - (07:44)
-7. Stunna & FX909 - Across The Divide (12 version) - (06:35)
-8. Stunna & Matizz - Walking On Air (12 version) - (06:32)
-9. Lenzman & Switch - No More Tears (12 version) - (05:46)
-10.Lenzman - Allure (12 version) - (05:37)(   Читать дальше...   )Жанр: Продолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8342F10CE30004F94D88A41EB40D0B4D36DE0D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408697   (453786) от 13.09.2020
-
-Мировой кубок по мотогонкам среди электробайков 2020. Гран-При Сан-Марино / FIM Enel MotoE World Cup 2020. San Marino GP (2020) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453786.jpg" />
-</div>
-
-
-###  Подробнее
-
-MotoE, официальное название FIM Enel MotoE World Cup, это класс мотоциклетных гонок в которых используются только электрические байки. Серия была одобрена FIM и первый сезон пройдёт на пяти европейских трассах в рамках поддержки чемпионата MotoGP в 2019 году.Жанр: СпортПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A7EB5B75D07EF0BE132E12951E57F0C52A6753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408708   (453780) от 13.09.2020
 
 Brave Browser 1.13.86 [Multi/Ru]
@@ -720,6 +374,367 @@ Opera 89.0.4447.91 Portable by Cento8 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8B5DA1B0563D23D362E743D4D416B0EB90400A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569353   (453660) от 12.08.2022
+
+AllDup 4.5.20 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453660.jpg" />
+</div>
+
+
+###  Подробнее
+
+AllDup - бесплатный инструмент для поиска и удаления дубликатов файлов на Вашем компьютере. Программа обладает специально разработанным алгоритм быстрого поиска дублирующихся файлов любого типа - текст, изображения, музыка, фильмы и т.д.
+Задайте диски или папки для анализа, и мощная поисковая система за считанные секунды обработает целые гигабайты информации, находя (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7652F6FE9BC1060FB0824ED566BB1D6B68F8AEAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569319   (453654) от 12.08.2022
+
+WinBin2Iso 5.66 Build 001 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами крошечная утилита, которая была разработана компанией Nenad Hrg с целью помочь пользователям быстро и качественно преобразовать образ компакт диска формата BIN в более распространенный и удобный для работы формат ISO, особенно пригодится если вы не хотите пользоваться для выполнения этой задачи большими программами, которые зачастую стоят денег и занимают (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C732BAA5A6B0C4DBFD6841BDCD37406A0774FC68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551467   (453626) от 24.09.2012
+
+Psidream & Pacific - Golden Oldies Selection Vol. 1 (2008) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pacific - City of Glass
+02. Pacific - Less than A Second
+03. Pacific - Lust
+04. Pacific - Shine Thru
+05. Pacific - Unspoken
+06. Psidream - Hidden Planet
+07. Psidream - Mnemonix
+08. Psidream - Pantheon
+09. Psidream - Secret Life
+10. Psidream - ShapeshiftПродолжительность: 01:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49007FD6A1AA09112840FD8F3CF58D4AF24E3E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551717   (453623) от 24.09.2012
+
+VA - Spirit del Mar Lounge Collection (2012) [MP3|320 кб/с]<Lounge, Downtempo, Ambient, Dub>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453623.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Sura Quintet - Private Pleasures (5:39)
+2. Rey Salinero - Cabo Verde (6:05)
+3. Don Gorda Project - Attractive Qualities (5:41)
+4. Silent Breeze - Codimension (5:41)
+5. Christian Hornbostel - Love Supreme (Lovelight Mix) (4:18)
+6. Enrico Donner - Forget Me Not (5:56)
+7. Cesar Martinez Ensemble - Whatever You (5:16)
+8. Blue Wave - Falling Skies (5:49)
+9. Cane Garden Quartet - Ageless (5:51)
+10. Zadar - Soul Ambitions (5:45)(   Читать дальше...   )Жанр: Lounge, Downtempo, Ambient, DubПродолжительность: 01:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DFB2611E5679D078D29CCCFBB0B69B9F948AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551537   (453622) от 24.09.2012
+
+Antillas & Dankann - Remixes 2002-2012 Vol 2 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Antillas & Dankann - Remixes 2002-2012 Vol 2 (2012)
+
+Год: 2012
+Жанр: Trance
+Продолжительность: 01:29:40Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Dash Berlin feat. Chris Madin - Silence In Your Heart (Antillas Remix) (07:16)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD216FD47DF1BEF0B75568CD05248EBCBD4C600E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551461   (453620) от 24.09.2012
+
+Rcola - Rub A Dub Wize (2009) [MP3|320 кб/с]<Dubwise, Ragga Jungle>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat the System (featuring Soultrain) - 07:16
+02. A What a Bam Bam (ft. Sister Nancy) - 05:19
+03. Lost and Found (ft. Barrington Levy) - 05:17
+04. Dancehall Operator (RCola Remix) - 05:24
+05. Azeri (ft. Swank) (RCola Remix) - 04:57
+06. A1 Sound (ft. Jimmy Riley) - 03:35
+07. Got Me Trying (ft. Belle Humble) (RCola Remix) - 04:54
+08. Warn Ya - 05:58
+09. ABomb Busted - 05:26
+10. Flamante 04:32(   Читать дальше...   )Жанр: Продолжительность: 01:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05845F4BE0C0CCD5B8D86229390BC4E260EF99D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549645   (453616) от 24.09.2012
+
+VA - Liquid V Club Sessions Vol 4 (Compiled by Kabuki) (2012) [MP3|320 кб/с]<Drum and Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453616.jpg" />
+</div>
+
+
+###  Подробнее
+
+02. Stealth - High Plane Drifter
+03. dRamatic & dbAudio - Vigilante (Level 2 Remix)
+04. Andy Skopes & Mr Joseph - Gatcherman
+05. dRamatic & dbAudio - Seduction
+06. Level 2 - No Time VIP
+07. Kabuki - Rhodesia VIP
+08. Serum & Bladerunner - Take It Back
+09. Mr Joseph - Sparkle In Your Eye
+10. DJ Chap & Level 2 - Skys The Limit
+11. Mr Joseph - Wonderful Feeling(   Читать дальше...   )Жанр: Продолжительность: 01:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA1947B22357B97FD1BD617268716C34DC0CCCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408715   (453612) от 13.09.2020
+
+Zoner Photo Studio X 19.2004.2.262 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC052EE6896BA243FA6B1B7087BEC69DF8BE76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408591   (453609) от 13.09.2020
+
+VA - The Jazz Hop Conspiracy, Vol. 3 (2020) S!X Music [FLAC|Lossless|Web-DL|tracks] <Jazz Hop, Instrumental Hip-Hop, Trip Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JK Soul – All the Beauty in This World (2:48)
+02. Funkonami – Lucid Dreams (3:04)
+03. Karmawin – Cotemplation (3:18)
+04. Josh Furey – Small Time (3:15)(   Читать дальше...   )Производство: S!X MusicЖанр: Jazz Hop, Instrumental Hip-Hop, Trip Hop, BeatsПродолжительность: 01:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244CFBDFE357F70A48DBA56E0B19F17C16D32FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408725   (453601) от 13.09.2020
+
+Unreal Commander 3.57 Build 1483 + Portable + GraphXPackv [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unreal Commander - бесплатный файловый менеджер выполненный в двухпанельном виде. Программа помогает удобнее и быстрее осуществлять навигацию по вашим файлам и папкам, а также выполнять с ними различные операции.
+
+Помимо операций копирования, перемещения, удаления и переименования файлов и папок, Unreal Commander позволяет сортировать файлы, переименовывать группу (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090A24ADA193FE1732880AA41A76A170976B1633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408760   (453600) от 13.09.2020
+
+ScreenHunter Pro 7.0.1115 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453600.jpg" />
+</div>
+
+
+###  Подробнее
+
+ScreenHunter Pro – программа для получения снимков экрана (скриншотов) с возможностью их обработки и редактирования. Можно получать изображения всего экрана, отдельных окон или областей заданной формы, но гордостью её авторов является уникальная функция получения снимков даже не отдельных окон, а только определенных объектов в них. Не уникальная, но довольно редко (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FB41C3EC233CB646A2DE9225F548AD8FFE3ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408750   (453599) от 13.09.2020
+
+Freemake Video Converter 4.1.11.75 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6BB3E6EA9E6FCD76AAD20635728168667829FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

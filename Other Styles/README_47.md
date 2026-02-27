@@ -1,3 +1,64 @@
+###  Публикация: 190247   (853018) от 11.04.2010
+
+Astor Piazzolla - The History of Tango (5CD) (2006) [APE|Lossless]<Tango>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TangoПродолжительность: 05:21:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769971   (852986) от 24.03.2014
+
+Steve Barakatt - The Best of Steve Barakatt (2004) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(3:50) 01. Flying
+(3:59) 02. California Vibes
+(3:30) 03. Rainbow Bridge
+(3:25) 04. I Believe in You
+(4:22) 05. All About Us
+(4:19) 06. Eternity
+(3:58) 07. I'm Sorry
+(3:23) 08. Day by Day
+(3:58) 09. Montreal 350
+(3:49) 10. Nuit d'Amour a Paris(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4B567BD567FD6B668BA3645330EAB74775DA1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 648526   (852966) от 25.04.2013
 
 Anthony Ventura - Love Album (2013) [MP3|256 кб/с]<Instrumental>
@@ -724,64 +785,6 @@ Diaspora - Meditation (1998) [MP3|320 Kbps] <Native American, Ethnic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC2EF1DCFBC32628F5B6D580B04F2CF853CFF7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111247   (848365) от 05.03.2017
-
-Adrian Von Ziegler - Moonsong (2016) [FLAC|Lossless|WEB-DL|tracks] <Celtic Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Storm [00:04:48]
-02. High Tide [00:04:01]
-03. Moonsong [00:03:36]
-04. Daydream Melody [00:02:10](   Читать дальше...   )Жанр: Celtic FolkПродолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B19CE20DC083C0290EF3C9D2D96D2DF3898C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111353   (848175) от 05.03.2017
-
-Vangelis - Delectus (1973-1985)  Remaster, 2017, Universal International Music, 13 CD Box Set [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vangelis - Come On (Remastered)
-02. Vangelis - We Are All Uprooted (Remastered)
-03. Vangelis - Sunny Earth (Remastered)
-04. Vangelis - He-O (Remastered)(   Читать дальше...   )Жанр: Electronic, Ambient, New Age |Продолжительность: 09:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D48D0F5A5ACED87D26947B9067D0B78D7726E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 978160   (964709) от 22.01.2016
+
+Jim Brickman - Believe (2014) [MP3|320 кб/с] <New Age, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine in the Rain
+02. The Road Before Us
+03. Daybreak
+04. As the River Flows(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3540745F64BD706D78D64BE4359632F535D8B008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359411   (964191) от 12.02.2020
+
+VA - Instrumental Moods (2002) [FLAC|Lossless|tracks + .cue] <Instrumental, Latin, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bert Kaempfert - A Swingin' Safari (3:07)
+02. Al Hirt - Java (1:56)
+03. Perez Prez Prado - Patricia (2:06)
+04. Henry Mancini - Baby Elephant Walk (2:43)(   Читать дальше...   )Жанр: Instrumental, Latin, JazzПродолжительность: 01:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB96286756BBF00DFBEAD158D64D93EFD3EB50CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978531   (963578) от 23.01.2016
 
 Gary Girouard - The Naked Piano: Transitions (2016) [MP3|320 кб/с] <New Age, Instrumental, Piano>
@@ -684,64 +742,6 @@ Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Ori
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E52BB748314627E9E9259BEE841BDD7B1121803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864449   (961826) от 24.01.2016
-
-Of Monsters And Men - 3 Albums, 4 EP & singles (2011-2015) [MP3|320 кб/с]<Indie, Alternative Rock, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Paws (04:26)
-02. King and Lionheart (04:35)
-03. Numb Bears (02:45)
-04. Sloom (04:42)(   Читать дальше...   )Жанр: Indie, Alternative Rock, FolkПродолжительность: 03:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:298A5602832D008461627A5F28FFFF93504DAF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360045   (961806) от 14.02.2020
-
-Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (Original Motion Picture Score) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961806.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:54| 01. Flying High (Birds of Prey)
-|01:32| 02. The Fantabulous Emancipation Explosion
-|03:06| 03. Harley Quinn (Danger Danger)
-|02:16| 04. Birds of Prey(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81EAB3CEFF9D4A7D6553295F154AA6AFA8263C72
 ```
 
 https://mybot314.ru/tekegram_catalog/

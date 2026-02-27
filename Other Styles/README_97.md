@@ -1,3 +1,61 @@
+###  Публикация: 1145076   (619829) от 26.06.2017
+
+VA - Zen Tracks Deep Inner Peace (2017) [MP3|320 Kbps] <Chillout, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindfulness Meditation Music Spa Maestro - Zen Tracks
+02. Meditation Mantras Guru - Positive Affirmations
+03. Rebirth Yoga Music Academy - Reiki (Healing Music)
+04. Mantra Yoga Music Oasis - Healing Your Soul(   Читать дальше...   )Жанр: Chillout, Ambient, New AgeПродолжительность: 01:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7148E40972F67867C1F3A80895102262D9F6E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145819   (619827) от 26.06.2017
+
+VA - The True Nature of Happiness: 50 Calm Relaxing Music (2017) [MP3|320 Kbps] <Chillout, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nature Meditation Academy - The True Nature Of Happiness  2:41
+02.  New Age Anti Stress Universe - Ambient Energetic Relaxation  2:52
+03.  Serenity Music Relaxation - Sanctuary Of Existence  3:13
+04.  Mothers Nature Music Academy - Bright And Shining Moment  3:17(   Читать дальше...   )Жанр: Chillout, Ambient, New AgeПродолжительность: 03:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDECC97C74805F3FD5881AA6E2AC74206CCF6E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145054   (619710) от 26.06.2017
 
 David Thomas - Edheldred (2015-2016) 2 альбома [MP3|320 Kbps] <Epic, New Age, Enigmatic>
@@ -711,64 +769,6 @@ Opii - Secrets (2015) [FLAC|Lossless|WEB-DL]<New Age, Enigmatic, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2D5CD88D6C1EF7D554BC93347469F9AF5D5878A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912045   (614401) от 24.06.2015
-
-VA - Buddha Meditation (2015) [MP3|320 кб/с]<Lounge, ChillOut, New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Northen Extreme - More Than Words
-02. Vanity in Mind - Go Get Alice - The Walz Remix
-03. Electronivrty - A Bit of Jarre
-04. The Chakras - Inside Look(   Читать дальше...   )Жанр: Lounge, ChillOut, New AgeПродолжительность: 03:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60410EF1253501C6E779AB25B6F059E087D75654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912048   (614083) от 24.06.2015
-
-Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflute, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Silverstar 5:24
-02. Chica 3:14
-03. Amigos 2:40
-04. Brothers 5:52(   Читать дальше...   )Жанр: New Age, Native American, Panflute, FolkПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D9FAC37A1D85E23831F02E6FB571A17AB163DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

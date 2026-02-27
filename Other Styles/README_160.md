@@ -1,3 +1,73 @@
+###  Публикация: 502404   (259320) от 29.05.2012
+
+VA - Drumming Planet (2003) [MP3|320 кб/с]<Ethnic, Folk, Worldbeat>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Drumming Circle (Professor Trance)
+02. Invocation (Gabriella Roth & The Mirrors)
+03. Keonukpo (Adesa)
+04. The Prodigal Son (Keiya)
+05. The Shisha Room (Solace)
+06. Utsheva (Baul Bishwa)
+07. Sister's Gonna Dance Now(Native Ground)
+08. The Owl Dance (Gomer Edwin Evans)
+09. Talking Drums (Ariel Kalma)
+10. Samhan (Phil Thornton)Жанр: Ethnic, Folk, WorldbeatПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1890E0AFC78126C2BA07606E018C193B3DAEC077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501810   (259315) от 29.05.2012
+
+Nicole feat: Brulé - Passion Spirit (2001) [MP3|192 кб/с]<Native American, New Age, Flute>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259315.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beyond The Trail Of Tears 3:37
+2. World Dance 4:14
+3. Rez Road 2:55
+4. Dawn Of Awakening 2:58
+5. Ghost Drive 3:50
+6. Ancestor's Cry 7:03
+7. Black Mountain 5:18
+8. Chidhood's Mystery 3:26
+9. A New Enlightening 2:52
+10. Dakota Rain 2:45(   Читать дальше...   )2001Жанр: Native American, New Age, FluteПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1378A7B602606DB1ED3FEA9D8F9FBD079302D1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502101   (259308) от 29.05.2012
 
 VA - Earthtone Collection Vol.1-3 (1998-2000) [MP3|320 кб/с]<New age, Relax>
@@ -775,70 +845,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11EBBC4038093744405F8DA499C34916557B1AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498635   (255778) от 19.05.2012
-
-Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chillout>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Set Free (04:34)
-02. Yoo Doo Right (07:13)
-03. Where Did You Sleeep Last Night (03:44)
-04. Like Roling Stone (06:31)
-05. Love Lies (07:11)
-06. Oh My Love (03:27)
-07. Voodoo Chile (03:48)
-08. Heart And Soul (04:03)
-09. Persuasion (06:34)
-10. Ruler Of My Heart (03:12)2001-2007Жанр: World Music, Ethnic, ChilloutПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624627   (255378) от 09.04.2023
-
-VA - American Tribal Songs (2011) [MP3|320 Kbps] <Native American, New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Vasquez - Vientos del Sur [03:04]
-02. Atahualpa - The Lonely Shepherd [04:50]
-03. Atahualpa - Pan Flute [03:12]
-04. Mato Grosso - Buffalo Trail [06:08](   Читать дальше...   )Жанр: Native American, New Age, InstrumentalПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D274D638DC396C0554067F0809FADC43443B0CF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

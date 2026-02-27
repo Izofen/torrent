@@ -1,3 +1,61 @@
+###  Публикация: 1174882   (381079) от 17.10.2017
+
+Darshan Ambient - Lingering Day: Anatomy of a Daydream (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowflake
+02. Silver
+03. Arc Of Angels
+04. White Calm(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E0A4E9525C473BEF0497674C3D1EF05AB442C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326564   (380787) от 22.09.2019
+
+VA - Modern Sound Orchestras - Moonlight Sonata (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight Sonata - Beethoven (4:44)
+02. A little must for guitar players - Diabelli, Paganini & Mertz (5:17)
+03. Fire dance / Can-Can - De Falla / Offenbach (3:37)
+04. Yesterday - McCartney / Lennon (2:36)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D6168E09DD3E8C76D042FA513DFE32951B6BF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068637   (380610) от 01.11.2016
 
 Galactic Agents - Human Contact (2002) [MP3|320 Kbps] <New Age, Worldbeat, Native American>
@@ -685,64 +743,6 @@ Howard Drossin & RZA - Человек с железными кулаками (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:630D6AEC9C03854774F04D90A42AB668CAACFBC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 33144   (375013) от 12.11.2012
-
-Music of the Shamans (Музыка шаманов)
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_375013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Shamanic Way (Путь шамана) 18:50
-02 Forest Spirit (Дух леса) 12:27
-03 La Bruja de la Cura 11:31
-04 Rain Dance (Танец дождя) 9:38Жанр: Музыка шамановПродолжительность: 52:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254365   (374945) от 13.10.2018
-
-Armik - Cafe Romantico (2004) [MP3|320 Kbps] <Flamenco>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovers Moon (5:04)
-02. Cafe Romantico (5:16)
-03. Rain Drops (5:03)
-04. Sweet Dreams (4:59)(   Читать дальше...   )Жанр: FlamencoПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90D9665BB4195D2A8FB80C52D0DF1C71B8CA920E
 ```
 
 https://mybot314.ru/tekegram_catalog/

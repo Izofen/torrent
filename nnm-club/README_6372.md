@@ -1,25 +1,22 @@
-###  Публикация: 1202215   (790561) от 28.01.2018
+###  Публикация: 1510277   (791375) от 16.11.2021
 
-Mike McGinnis - Recurring Dream (2017) Sunnyside Communications [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+Растровый клипарт - Cities And Architecture Large Selection Of Stock Photos [JPG]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790561.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mel's Drive In [07:54]
-02. Circle Dance [01:35]
-03. The Rising [09:17]
-04. Hearth [07:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:23
+Архитектура, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2697x1800-8000x5306
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:610BF80441FA6C0C557EAD2B88EC20687F2DA47F
+magnet:?xt=urn:btih:CB3033AE1CD9B844C2644D17ED6156DDED15FDF1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,597 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202214   (790560) от 28.01.2018
+###  Публикация: 1510368   (791374) от 16.11.2021
 
-Peter Weniger - Point of Departure (2014) 2016, Skip Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Point of Departure [05:25]
-02. Kinch [05:47]
-03. I Can See You from Here [05:35]
-04. Jack in the Back [17:21](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F023448844D7FE513217E514CFFAFA1ACEEB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202200   (790559) от 28.01.2018
-
-Fluxion - Upsides & Sideways EP (2018) Echocord [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En Route (07:51)
- 02. The Place (07:26)
- 03. Flick (03:50)Жанр: Dub Techno, Tech HouseПродолжительность: 00:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF26E7B83FE4FCF4FE30742926FB898543EB008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202327   (790558) от 28.01.2018
-
-Max Leonidas - Hotel Martinez v.3 Luxury Life house electro club (2007) [FLAC|Lossless|tracks] <House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Feel Alright (3:27)
-02.Mad About You (4:26)
-03.Get Up! Push Up! (3:49)
-04.In The Sunshine (5:23)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB4ACED75C85ACFA558D9CFEBD8DE1552C12437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202202   (790557) от 28.01.2018
-
-101 - Phatty Acids (2017) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams (03:52)
- 02. Darkness Upon Beautiful Souls (04:15)
- 03. Amino Acid (04:48)
- 04. Fatty Acid (03:32)(   Читать дальше...   )Жанр: Electro, Acid, IDM, TechnoПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D6F351749E5CBB2EC2A2AE81F8B46E9F8115DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202376   (790556) от 28.01.2018
-
-Robert Rich - Live At The Gatherings 2015 (2017) Industry8 [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Other Side of Twilight (11:04)
-02. Filaments (4:35)
-03. Majorana (10:30)
-04. Scintilla (3:38)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D656A81A29E9DDE0CF2F38D6FFFFF57C792D6F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202123   (790555) от 28.01.2018
-
-Hordak - Padre (2016) digipak [FLAC|Lossless|image + .cue] <Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ekleipsis - Devourer of Gods - 05:06
-02. Bloodline of the Wolves -04:29
-03. Soaring - 05:00
-04. Sol Sister -04:11(   Читать дальше...   )Жанр: Pagan Metal
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE25003D18C29DFD9E52839A2805419C7900B969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202385   (790554) от 28.01.2018
-
-VA - Smooth Summer Lounge And Chill House (2018) [MP3|320 Kbps] <Downtempo, Chill House, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Oscar Stringz  -  Diversity (Original Mix)  6:46
-02.  Popy Zeddil  -  All Night Long (Original Mix)  5:37
-03.  Mephia  -  Esperanto (Original Mix)  5:05
-04.  Riddle Of Monogamy  -  Crossing Boundaries (Original Mix)  6:55(   Читать дальше...   )Жанр: Downtempo, Chill House, LoungeПродолжительность: 01:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C7691F5AEBEC398482FF12EF796CA8D93C4A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202189   (790553) от 28.01.2018
-
-VA - Inspiring Sunrise World (2018) [MP3|320 Kbps] <Melodic, Euphoric, Blissful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dim3nsion  -  Agarimo (Extended Mix)  7:27
-02.  Omnia & Alex Sonata  -  Titans (Extended Mix)  5:48
-03.  Sam Laxton & Noire Lee  -  Thunderstorm (Extended Mix)  5:30
-04.  Denis Kenzo feat. Clara Yates  -  Other Side (Extended Mix)  6:11(   Читать дальше...   )Жанр: Trance, Melodic, Euphoric, Blissful, Energy, Tuneful, HarmonicПродолжительность: 03:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4442A6BBAFA032808F6B8C81A754E059CF761F1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202157   (790552) от 28.01.2018
-
-Tatir - Cave Of Ephyras... To The Infernal Fields (2012) [FLAC|Lossless|image + .cue] <Viking Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Under The Twelfth Moon
-02 - The Drawl Of Naiad
-03 - Vastland Of The Eternal TormentsЖанр: Viking Black MetalПродолжительность: 00:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2692894A08AE449862B2CF45F1E154ADBD6576B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202205   (790551) от 28.01.2018
-
-Михаил Круковский | Родная жизнь (1910) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы о Родине, о земле нашей русской, о бескрайних просторах родного края.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4E2C74FDC64BE6DCF926CA2B9D442376534AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202326   (790550) от 28.01.2018
-
-VA - Balearic Lounge: Fresh Nu Lounge Music Selection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Giacomo Bondi  -  Analogic  4:09
-02.  Iffar  -  Glazed (Instrumental)  3:00
-03.  Philippe Rozes  -  Evade Business  3:18
-04.  Francesco Gazzara  -  Balearic  4:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4B177412B0E377CFE9333422B19D4B92F490E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202133   (790549) от 28.01.2018
-
-VA - Damaged Presents Charged (Mixed by Jordan Suckley & Coming Soon!!!) (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashley Smith - Kick Back (Original Mix)
-02. Bryan Kearney presents Karney - Smiler (Original Mix)
-03. Jordan Suckley & Kutski - Surveillance (2nd Phase Remix)
-04. David Forbes - Panic Room (Original Mix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 05:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C332CAA2B32165FDE53CCE89462DD563D39050B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202106   (790548) от 28.01.2018
-
-VA - Ori Uplift & Marc Tatossian - Uplifting Only 259 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etasonic - When You're Gone (Intro Mix)
-02. PRE-RELEASE PICK: Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)
-03. FAN FAVORITE: InnerSync - Magnificence
-04. AirLab7 - Shy Lass (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5581E99893E81E646AF438A95CFE0A0B247D7D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202278   (790547) от 28.01.2018
-
-VA - Chill House Session vol.2 (2018) [MP3|320 Kbps] <Downtempo, Ambient, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Microwave Monkeys - The Rain (Vocal Radio Mix)
-02. Dj Absinth - Morning Sun
-03. Superluminal - Make It Better (Original Mix)
-04. Joxephad - Infinity(   Читать дальше...   )Жанр: Downtempo, Ambient, HouseПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CACCB81C4BFCD6DCF15BEAB0312623AEE170150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202338   (790546) от 28.01.2018
-
-VA - RLX 16 - The Chill Out Collection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lazy Hammock  -  Deep Sunday Bliss (Original Mix)  4:42
-02.  Marc Hartman  -  French Melody (Original Mix)  3:35
-03.  Jens Buchert  -  On The Run (Original Mix)  4:39
-04.  Lazy Hammock  -  Is This Love (Original Mix)  4:30(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BCD3E7932F093F0D197370590A36B273CDC3284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202014   (790545) от 28.01.2018
-
-Mimicking Birds - Layers of Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Acoustic, Alternative, Surf>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dust Layers (04:34)
-02. Another Time (04:28)
-03. Sunlight Daze (03:09)
-04. Island Shore (04:27)(   Читать дальше...   )Жанр: Indie, Acoustic, Alternative, SurfПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BA047164931231145071068670F8463C028364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202318   (790544) от 28.01.2018
-
-VA - The Ultimate Lounge Collection Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stuce The Sketch  -  Silver Days (feat. Wenawedwa) (Original Mix)  4:15
-02.  Maximus & Trilogy  -  Du Ar (Original Mix)  4:06
-03.  Alexandra Hampton  -  Love (feat. Ahbee) (Original Mix)  3:32
-04.  Praful  -  One Day Deep (Original Mix)  5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E766F14F235CD168C4BB19FA3B3EF8AC76C4E6FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202179   (790543) от 28.01.2018
-
-VA - Record Super Chart #521 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
-02.  Post Malone feat. 21 Savage  -  Rockstar  3:38
-03.  Katy Perry feat. Nicki Minaj  -  Swish Swish (Mikis Remix)  4:30
-04.  Don Diablo  -  Momentum  3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E310B63A9AF87AC84B52441E5ADE127D5A848C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202287   (790542) от 28.01.2018
-
-Stranger - The Bell (1985) Hot Blood Records [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790542.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Bell
-2. Wheels
-3. Midnight Angel
-4. Woman(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73ADBA9164E7DDD2C6B197A31B3916D6D7468455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202247   (790541) от 28.01.2018
-
-Macgo Mac Blu-ray Player Pro 3.2.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macgo Mac Blu-ray Player - это один из лучших (если не сказать - лучший) проигрывателей для воспроизведения Blu-ray видео и просмотра HD Blu-ray дисков, а также видео и музыки во многих других форматах в ОС Windows. Плеер очень удобен в использовании, не прихотлив, имеет приятный дизайн и интуитивно понятный интерфейс, поддерживает аппаратное ускорение, что увеличивает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2018Разработчик: MacgoПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Ангийский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A3DAB4C8B72163D79757738C29502DEDB0E6677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202367   (790540) от 28.01.2018
-
-Томас Мертон | Одинокие думы (2003) [FB2]
+Дэвид Уолтон | Сканер эмоций. Считывай. Распознавай. Управляй (2021) [EPUB]
 
 >>Разное (категория книг)
->>Религиозная литература
+>>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790540.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Томас Мертон (1915-1968), монах Ордена траппистов, - один из самых значительных духовных писателей XX века. Знаменитым его сделала вышедшая в 1947 году автобиография под названием «Семиярусная гора». Затем последовали ставшие духовной классикой сборники эссе о духовной жизни - «Семена созерцания», «Человек - не остров», дневник «Знамение Ионы», сборники статей «Спорные (   Читать дальше...   )Жанр: Духовная литератураФормат: FB2
+Неумение считывать эмоции людей приводит к ссорам, затяжному недовольству, обидам, разводам и несостоявшимся сделкам. Всего этого можно избежать, если освоить навык «эмоциональной разведки» и научиться распознавать чувства, которые вы и ваш собеседник испытываете во время общения.
+
+Дэвид Уолтон, много лет занимавший должность главного психолога при Научно-исследовательском (   Читать дальше...   )Жанр: Личная эффективность, О психологии популярно, Психологические тренингиПеревод: Валентина ЛебеденкоФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45DC81A35BF023D2593CF8D0D5A54534A4C61049
+magnet:?xt=urn:btih:B0B645B6476867ABE63532D737189FD65964F976
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,28 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202329   (790539) от 28.01.2018
+###  Публикация: 1510226   (791373) от 16.11.2021
 
-VA - Workout Mix vol.11 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Electro House, Bigroom House>
+Последнее письмо от твоего любимого / The Last Letter from Your Lover (2021) HDRip [MVO]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790539.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01-Amfree, Trash Gordon - Shimmy Shake (Again) (Extended)
- 02-Raf Marchesini - Pull Over (Original Mix)
- 03-Mercer & Mystique - Here Comes That Sound (Original Mix)
- 04-Reel 2 real, Kolya Funk - Move it Song (DJ Che Mash Up)(   Читать дальше...   )Жанр: Club House, Electro House, Bigroom HouseПродолжительность: 01:01:45
+Наши дни. В руки амбициозной журналистки попадает серия тайных писем, из которых она узнает о запретном романе двух влюбленных в 1960-е годы.Производство: Великобритания, Франция / Blueprint Pictures, Canal+Жанр: Драма, мелодрамаРежиссер: Августин ФриззеллАктеры: Шейлин Вудли, Джо Элвин, Венди Ноттинхэм, Фелисити Джонс, Джейкоб Форчун-Ллойд, Ншути Гатва, Эмма Эпплтон, Джессика Д’Арси, Энн Огбомо, Набхан РизванПеревод: Профессиональный многоголосый (Jaskier)Язык озвучки: РусскийСубтитры: Русские (harsub forced, full) отдельным файломПродолжительность: 01:50:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:989DB6E3A5655DA5559989BFD90B8F2946B21239
+magnet:?xt=urn:btih:42673B8EA2590C8AC8D3EA1F2E370704C08E5A36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -654,28 +78,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202245   (790538) от 28.01.2018
+###  Публикация: 1510330   (791372) от 16.11.2021
 
-VA - The Story Of Bossa Nova (2000) [FLAC|Lossless|tracks + .cue] <Самба, Джаз>
+Gov't Mule - Heavy Load Blues (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790538.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Leila Pinheiro - Chega De Saudade [2:36]
-02. Marcos Valle - Samba De Verao [2:30]
-03. Pery Ribeiro - Garota De Ipanema [2:13]
-04. Joyce With Gilson Peranzzetta - Corcovado [3:38](   Читать дальше...   )
+01. Blues Before Sunrise (3:44)
+02. Hole In My Soul (4:29)
+03. Wake Up Dead (5:55)
+04. Love Is A Mean Old World (4:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:17:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5867374473C11AE564C56409D4EE8BAB74CCB910
+magnet:?xt=urn:btih:DF25E774531A4C3C307CC61B840E46F9B46D2889
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -683,25 +107,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202234   (790537) от 28.01.2018
+###  Публикация: 1506727   (791371) от 16.11.2021
 
-Первая передача на НТВ. Автомобильная передача (2018.01.21) SATRip
+Вечер в опере / A Night at the Opera (1935) BDRemux [H.264/1080p]
 
->>Документалистика и Телепередачи
->>За рулем
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790537.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:30:14
+Ловкач Отис Дрифтвуд придумал способ прикарманить денежки богатой вдовы, делами которой он управлял. Вдовушка спала и видела, как бы пробиться в высшее общество и Отис подговорил её вложить круглую сумму в Нью-Йоркскую оперу. Вместо прославленного тенора Ласпари Отис нанял за «десятку» певца из хора, а остаток присвоил себе. Певец оказался действительно хорош и за (   Читать дальше...   )Производство: США / Metro-Goldwyn-MayerЖанр: мюзикл, комедияРежиссер: Сэм Вуд, Эдмунд ГулдингАктеры: Граучо Маркс, Чико Маркс, Харпо Маркс, Китти Карлайл, Аллан Джонс, Уолтер Вулф Кинг, Сиг Руман, Маргарет Дюмон, Эдвард Кин, Роберт Эмметт О`КоннорПеревод: Многоголосый профессиональныйСубтитры: русские, английские (Full, SDH), французские, испанскиеПродолжительность: 01:31:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F79C2D7A6AC6FFA7DF36AF99779EA2052ECA865
+magnet:?xt=urn:btih:EC0C42E7ADB360811A845D39B97ED71251524309
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -709,28 +133,549 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202295   (790536) от 28.01.2018
+###  Публикация: 1201779   (791370) от 26.01.2018
 
-VA - Diskoteka 2018 - Winter Weekend (2018) [MP3|320 Kbps] <House, Latino, Dance>
+Векторный клипарт - Fotolia - Seamless Pattern Collection #108 [EPS]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790536.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  John Emil  -  Rewind Replay  3:36
-02.  Elysa  -  Green Light  3:37
-03.  Klaas  -  Close To You  3:10
-04.  Enrique Iglesias & Bad Bunny  -  El Bano  3:48(   Читать дальше...   )Жанр: House, Latino, DanceПродолжительность: 04:28:52
+Векторный клипарт для дизайна.
+Коллекция бесшовных текстур
+25 EPS + PreviewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7454D77158F8DD828C6A637B431162278A20695B
+magnet:?xt=urn:btih:A6430646DBC423E4C9FCB2C391BEE7588743F3D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201853   (791369) от 26.01.2018
+
+За пропастью во ржи / Rebel in the Rye (2017) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791369.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о том, как родился Холден Колфилд, герой культового для многих поколений романа «Над пропастью во ржи», и как его автор — Джером Сэлинджер — стал величайшим писателем Америки, выбравшим удивительную судьбу.Производство: США / Black Label Media, West Madison EntertainmentЖанр: ДрамаРежиссер: Дэнни СтронгАктеры: Николас Холт, Зои Дойч, Кевин Спейси, Сара Полсон, Брайан Д’Арси Джеймс, Люси Бойнтон, Виктор Гарбер, Хоуп Дэвис, Эми Рутберг, Кэйтлин МенерПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 01:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D2DE4E70F6BDB224460A679555A2FEC9BB0110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201848   (791368) от 26.01.2018
+
+Pepakura Designer 4.0.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет программ, адресованных моделистам, которые изготавливают свои модели из бумаги. Программы предназначены для просмотра, создания и редактирования выкроек (разверток) бумажных моделей. Выкройки генерируются на основе готовых моделей, ранее созданных в программах трехмерного моделирования. Поддерживаются многие популярные форматы: 3DS, DXF, MQO, LWO, OBJ, STL, (   Читать дальше...   )Язык интерфейса: Английский. Русский или украинский - после локализации.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBB1FDA941342C93A5604C4ECA8AF6E2EB759F13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201863   (791367) от 26.01.2018
+
+Короче / Downsizing (2017) WEBRip [H.264/720p-LQ] [EN / KOR Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастическая история о неожиданном решении проблемы перенаселения планеты: норвежские ученые придумывают технологию по уменьшению людей, благодаря которой через 200 лет весь мир можно сделать миниатюрным. К тому же мини-жизнь предлагает массу финансовых выгод, так что простой парень Пол и его жена Одри, недолго думая, решают оставить свое унылое существование в (   Читать дальше...   )Производство: Норвегия, США / Paramount Pictures, Ad Hominem Enterprises, Annapurna PicturesЖанр: Комедия, Драма, ФантастикаРежиссер: Александр ПэйнАктеры: Мэтт Дэймон, Кристоф Вальц, Хонг Чау, Кристен Уиг, Рольф Лассгорд, Ингьерд Эгеберг, Удо Кир, Сёрен Пильмарк, Джейн Ходишелл, Джейсон Судейкис ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Корейские (вшитые, неотключаемые)Продолжительность: 02:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15701E992277E58F20AF3AC958C48AD4A813EC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201640   (791366) от 26.01.2018
+
+GOM Player Plus 2.3.25.5282 RePack (&Portable) by Manshet [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791366.jpg" />
+</div>
+
+
+###  Подробнее
+
+GOM Player - мультимедийный плеер со множеством функций, обеспечивающих высокий уровень воспроизведения. С GOM Player Вы сможете воспроизводить даже повреждённые или не до конца загруженные / переписанные AVI файлы. GOM Player поддерживает все современные видео и аудио форматы, включая видео мобильных устройств и цифровых камер, а также воспроизведение интернет контента (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2D6D79B0B3360C0793411EB2CED0EC2A23E22F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185862   (791365) от 26.01.2018
+
+Людмила Сенчина - Дискография (8 альбомов) (1974-2008) [MP3|320 kbps]<Советская эстрада>
+
+>>След.
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Советская эстрадаПродолжительность: 06:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3768BD37F349AE377FACB666F88E05B150A0B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201914   (791364) от 26.01.2018
+
+Проекты - VideoHive - Transitions v4.0 - 20139771 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791364.jpg" />
+</div>
+
+
+###  Подробнее
+
+С легкостью сделайте свое видео более динамичным и захватывающим, используя эти универсальные современные переходы.
+Переходы также работают с Adobe Premiere Pro через After Effects, используя Adobe Dynamic Link. В проект включен видео-урок о том, как использовать их в Premiere.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B6D80E4E86F57F7054FF0CF19BDAFA5618073B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201729   (791363) от 26.01.2018
+
+Темная башня / The Dark Tower (2017) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш мир — не единственный из существующих. Заклятые враги Роланд Дискейн, последний из ордена стрелков, и Уолтер О’Дим, известный также как Человек в черном, ведут извечную борьбу. На кону — мифическая Темная Башня, последний оплот и надежда вселенной, без которой мир будет повержен в полный хаос и разрушение. Силам добра и зла суждено столкнуться в последней схватке, (   Читать дальше...   )Производство: США / Imagine EntertainmentЖанр: ужасы, фантастика, фэнтези, боевик, приключения, вестернРежиссер: Николай АрсельАктеры: Идрис Эльба, Мэттью МакКонахи, Том Тейлор, Клаудия Ким, Фрэн Кренц, Эбби Ли, Джеки Эрл Хейли, Кэтрин Уинник, Дэннис Хэйсбёрт, Майкл БарбиериПеревод: Дублированный (Лицензия BD CEE), Авторский (Л. Володарский)Субтитры: Русские (forced, full), английские (full, SDH, SDH-Colored)Продолжительность: 01:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4868C36CA8FAD9A145C9205BD3DCECE76F36BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201824   (791362) от 26.01.2018
+
+Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: Великобритания, США / 20th Century Fox Film CorporationЖанр: боевик, комедия, приключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Марк Стронг, Джулианна Мур, Холли Берри, Педро Паскаль, Ченнинг Татум, Джефф Бриджес, Эдвард Холкрофт, Ханна АльстрёмПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (форс. + полные), украинские (форс. + повні), английские (forced+full+SHD)Продолжительность: 02:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC39E51DA7483800EB7F95CAB45720DA188E8E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201737   (791361) от 26.01.2018
+
+Интерстеллар / Interstellar (2014) UHD Blu-ray [H.265/2160p] [4K, HDR, 10-bit] [IMAX Edition] [EUR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда засуха приводит человечество к продовольственному кризису, коллектив исследователей и учёных отправляется сквозь червоточину (которая предположительно соединяет области пространства-времени через большое расстояние) в путешествие, чтобы превзойти прежние ограничения для космических путешествий человека и переселить человечество на другую планету.Производство: США, Великобритания, Канада, Исландия / Legendary PicturesЖанр: фантастика, драма, приключенияРежиссер: Кристофер НоланАктеры: Мэттью МакКонахи, Энн Хэтэуэй, Джессика Честейн, Маккензи Фой, Майкл Кейн, Дэвид Гяси, Уэс Бентли, Кейси Аффлек, Джон Литгоу, Мэтт ДэймонПеревод: Дублированный (Лицензия EUR)Субтитры: Английские, Французские, Немецкие, Итальянские, Голландские, Китайские, Корейские, Испанские, Арабские, Хорватские, Чешские, Датские, Финские, Греческие, Иврит, Венгерские, Норвежские, Польские, Португальские, Румынские, Русские, ШведскиеПродолжительность: 02:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B50FDB2B28E5EB93DCE97DB908ED7FB881EA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201830   (791360) от 26.01.2018
+
+Win 10 Tweaker 2.2 Portable by XpucT [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Win 10 Tweaker — это небольшая, но очень мощная программа, позволяющая сделать полную оптимизацию Windows 10 в несколько кликов. Не пускает пыль в глаза бесполезными настройками, а каждый пункт содержит подробную подсказку-описание. Любое действие выполняется без внешних модулей, средствами самой программы и Windows 10, поэтому антивирусы не ругаются на Win 10 Tweaker.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A0D7A7AC99C2E67E1F9436302D4D005E3DBFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201814   (791359) от 26.01.2018
+
+Скрюченный домишко / Crooked House (2017) BDRip [H.264/1080p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791359.jpg" />
+</div>
+
+
+###  Подробнее
+
+София, внучка олигарха Аристида Леонидиса, приглашает частного детектива Чарльза Хейуорда расследовать убийство ее дедушки. Она уверена: кто-то из домочадцев отравил его. Взявшись за расследование, Чарльз выясняет, что мотив мог быть у всех. Даже у Софии…Производство: Великобритания, Brilliant Films, Fred FilmsЖанр: Криминал, Драма, ДетективРежиссер: Жиль Паке-БреннерАктеры: Кристина Хендрикс, Джиллиан Андерсон, Хонор Книфси, Гленн Клоуз, Макс Айронс, Стефани Мартини, Теренс Стэмп, Джулиан Сэндс, Аманда Аббингтон, Кристиан МакКэйПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2F2D30949C1FE8FC4854E30C4AAFBC6A3D2DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201820   (791358) от 26.01.2018
+
+Скрюченный домишко / Crooked House (2017) BDRip [H.264/720p] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791358.jpg" />
+</div>
+
+
+###  Подробнее
+
+София, внучка олигарха Аристида Леонидиса, приглашает частного детектива Чарльза Хейуорда расследовать убийство ее дедушки. Она уверена: кто-то из домочадцев отравил его. Взявшись за расследование, Чарльз выясняет, что мотив мог быть у всех. Даже у Софии…Производство: Великобритания, Brilliant Films, Fred FilmsЖанр: Криминал, Драма, ДетективРежиссер: Жиль Паке-БреннерАктеры: Кристина Хендрикс, Джиллиан Андерсон, Хонор Книфси, Гленн Клоуз, Макс Айронс, Стефани Мартини, Теренс Стэмп, Джулиан Сэндс, Аманда Аббингтон, Кристиан МакКэйПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3954DA660D610BEEF17B06C8B690C19BA1886F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201730   (791357) от 26.01.2018
+
+24 часа на жизнь / 24 Hours to Live (2017) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время очередного задания погибает киллер, на совести которого много невинных жертв. Но таинственным образом он возвращается из потустороннего мира к жизни. И теперь у него есть только 24 часа, чтобы объединившись с убийцей, от руки которого он принял смерть, искупить вину и спасти свою душу.Производство: ЮАР, Гонконг / Fundamental Films, Thunder Road Pictures, Film Afrika WorldwideЖанр: Триллер, Боевик, ФэнтезиРежиссер: Брайан СмрзАктеры: Рутгер Хауэр, Итан Хоук, Пол Андерсон, Лиам Каннингэм, Натали Болтт, Таня ван Граан, Хаким Кае-Казим, Сюй Цин, Эйдан Уайток, Эндрю Моргадо ...Перевод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58A52BE5FE86A3F0C73692B1EECC00D90FE9EECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201710   (791356) от 26.01.2018
+
+Пила 8 / Jigsaw (2017) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791356.jpg" />
+</div>
+
+
+###  Подробнее
+
+В городе обнаруживают несколько тел, обладатели которых встретили определенно не лучший конец. Все улики указывают на одного человека: Джона Крамера. Но как это возможно? Человек, известный как Пила, мертв уже более десяти лет. Неужели все-таки нашелся тот, кто рискнул подобрать мантию жестокого маньяка?Производство: США, Канада / A Bigger Boat, Serendipity Productions, Twisted PicturesЖанр: Детектив, Криминал, Триллер, УжасыРежиссер: Майкл Спириг, Питер СпиригАктеры: Мэтт Пассмор, Тобин Белл, Каллум Кит Ренни, Ханна Андерсон, Кле Беннетт, Лора Вандервурт, Пол Браунштейн, Мандела Ван Пиблз, Бриттани Аллен, Джозиа БлэкПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D87527B7954E7C6C82F262D76B1D61F166B012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183083   (791355) от 26.01.2018
+
+Total War Anthology (2009-2013) [Ru/En] Repack R.G. Механики
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идет 270 год нашей эры. Череда неумелых императоров и жаждущих власти узурпаторов привели Римскую империю к глобальному экономическому кризису. Такого упадка империя еще не знала.Тип издания: RepackРазработчик: The Creative AssemblyЖанр: Strategy (Real-time, Turn-based), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE9ABBAB3C4FB2A8377D5D81CC622FD72F6D119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201668   (791354) от 26.01.2018
+
+macOS High Sierra 10.13.3 (17D47) [Multi/Ru] (Installer)
+
+>>След.
+>>macOS (Apple)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791354.jpg" />
+</div>
+
+
+###  Подробнее
+
+macOS High Sierra — следующая операционная система от Apple для компьютеров Mac.
+Новая редакция ОС не принесла обновления для внешнего вида платформы и ограничилась улучшениями на уровне функциональности. High Sierra является преемницей предыдущей версией macOS Sierra и имеет несколько заметных улучшений, таких как новая файловая система APFS и поддержка различных (   Читать дальше...   )Тип издания: InstallerРелиз состоялся: 23 января 2018Разработчик: Apple Inc.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FA9AFCAABD1A92D7A0EFC3EBC7D4111C19C001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201752   (791353) от 26.01.2018
+
+Движение вверх (2017) WEBRip
+
+>>След.
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть победы, которые меняют ход истории. Победы духа, победы страны, победы всего мира. Таким триумфом стали легендарные «три секунды» — выигрыш сборной СССР по баскетболу на роковой мюнхенской Олимпиаде 1972 г. Впервые за 36 лет была повержена «непобедимая» команда США. Никто даже помыслить не мог о том, что это возможно — обыграть великолепных непогрешимых американцев (   Читать дальше...   )Производство: Россия / Студия ТритэЖанр: спорт, драмаРежиссер: Антон МегердичевАктеры: Владимир Машков, Андрей Смоляков, Иван Колесников, Кирилл Зайцев, Джон Сэвэдж, Марат Башаров, Александра Ревенко, Виктория Толстоганова, Сергей Гармаш, Джеймс ТратасПеревод: Не требуется (Русский)Субтитры: Русские отдельноПродолжительность: 02:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3EC7B044146860AB2FF2945DD24670DDE351B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201726   (791352) от 26.01.2018
+
+Наемник / American Assassin (2017) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайный наёмник ЦРУ Митч Рэпп раздавлен потерей невесты в результате теракта. Заместитель директора ЦРУ назначает Стэна Хёрли обучать убитого горем, но серьёзно настроенного Митча для предотвращения террористических операций и охоты на преступников. Вместе они исследуют волну, на первый взгляд, случайных нападений на военные и гражданские объекты. Но позже напарникам (   Читать дальше...   )Производство: США, Гонконг / LionsgateЖанр: боевик, триллерРежиссер: Майкл КуэстаАктеры: Дилан О’Брайен, Майкл Китон, Санаа Лэтэн, Шива Негар, Тейлор Китч, Дэвид Суше, Навид Негабан, Скотт Эдкинс, Шарлотта Вега, Кристофер УэбстерПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные) (отдельно), английскиеПродолжительность: 01:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39143B9807E5615262C5B3F4B9806FB83375947C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089591   (791351) от 26.01.2018
+
+Подшивка журналов | Silicon Chip (2017) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный журнал радиолюбителей и профессионалов Австралии. На страницах журнала публикуются новости электроники, а также описания радиолюбительских конструкций различной степени сложности. В нем вы также найдете принципиальные схемы и конструкции доступные для повторения. Ориентирован на широкий круг читателей.Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68BDFC9772EA0B80DCDFD7637725A81F51F1DE13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201828   (791348) от 26.01.2018
+
+Полуночный человек / The Midnight Man (2017) [H.264/720p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алекс переехала в дом к своей бабушке, чтобы заботиться о ней. Разбираясь в хламе на чердаке, она обнаружила старинную настольную игру, с помощью которой можно вызвать мистическое существо, известное как Полуночный человек. Вместе со своими друзьями героиня фильма решает сыграть в нее, однако подростки и не подозревают о том, что Полуночный человек существует на (   Читать дальше...   )Производство: США, Канада, Bridge Finance Company, Midnight ProductionsЖанр: УжасыРежиссер: Трэвис ЗаривныАктеры: Лин Шэй, Габриэль Хоф, Грэйсон Сзакакс, Эмили Хейн, Саммер Х. Хауэлл, Луиз Линтон, Майкл Сироу, Роберт Инглунд, Логан Креран, Калли ЛэйнПеревод: Дублированный (Чистый звук)Субтитры: отсутствуютПродолжительность: 01:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D13CE2980CDEDBE3CD8BF8AFECDCA055FC660E
 ```
 
 https://mybot314.ru/tekegram_catalog/

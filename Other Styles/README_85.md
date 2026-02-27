@@ -1,3 +1,61 @@
+###  Публикация: 1028842   (686101) от 24.06.2016
+
+Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HBO Series) Season 6 (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:51)
+02. Blood of My Blood (03:35)
+03. Light of the Seven (09:49)
+04. Needle (02:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10725D38322E3AD69192FED5D4E3805D108EE2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028841   (685961) от 24.06.2016
+
+Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HBO Series) Season 6 (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:51)
+02. Blood of My Blood (03:35)
+03. Light of the Seven (09:49)
+04. Needle (02:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7101CA02016DD1847B669C6C0C30593D1BB7533B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222395   (685154) от 29.04.2018
 
 Joseph Nimoh - Reflections (2018) [MP3|320 Kbps] <New Age>
@@ -710,64 +768,6 @@ VA - Народные Золотые Хиты (2002) 2CD [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFDA6A7D6746D05F86CC49FC54163F1AC6FDFB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029656   (680339) от 27.06.2016
-
-Silvia Nakkach - Musical Massage: Inside (2007) [FLAC|Lossless|image + .cue] <New Age, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside the OM (16:04)
-02. Inside Chanting (18:06)
-03. Inside Silence (12:47)
-04. Inside Memories,Saudades (12:38)Жанр: New Age, HealingПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BB760CF3BC2070AF63BF1599D78154D6DFA9E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029389   (680258) от 27.06.2016
-
-Shastro - Lovers Night (2014) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Under the Moonlight    09:48
-02.  Lovers Night    15:45
-03.  Letting Go    12:43
-04.  Coming Back Home    10:19Жанр: New Age, Meditative, RelaxПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B64F1BD011CE8B58B0B7A45998E6C73C70D1845
 ```
 
 https://mybot314.ru/tekegram_catalog/

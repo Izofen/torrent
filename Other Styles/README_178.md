@@ -1,3 +1,67 @@
+###  Публикация: 738841   (151018) от 26.12.2013
+
+VA - Abora Chillout - Best of 2013 [MP3|320 кб/с]<Chillout, World, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Afternova - Tranquility - Orchestral Mix (03:47)
+ 02. Lea Gums - Sleepless Night - Original Mix (04:07)
+ 03. Balearia - Djanet (Saharan Paradise) - Original Mix (04:56)
+ 04. OppositePlans - In My Pocket - Original Mix (06:35)
+ 05. Gurban Abbasli - Passion Moments - Original Mix (06:48)
+ 06. Blue Horizon - Lithium - Acoustic Piano Mix (05:28)
+ 07. OppositePlans - Sid3Walks - Original Mix (06:25)
+ 08. Receptive - Hope at Dawn - Magdelayna's Chilled Remake (07:09)
+ 09. Afternova - Finding Peace - Original Mix (02:46)
+ 10. SoundLift - Arenas Blancas - Sunset Mix (04:46)(   Читать дальше...   )Жанр: Chillout, World, New AgeПродолжительность: 02:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747AB3021CA55532C7A04C7537374F8012CB9C6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677557   (150463) от 18.11.2023
+
+Dolly Parton - Rockstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockstar (feat. Richie Sambora)
+02. World On Fire
+03. Every Breath You Take (feat. Sting)
+04. Open Arms (feat. Steve Perry)(   Читать дальше...   )Жанр: Country, RockПродолжительность: 02:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE13C0369448F58880DF95D3DF8AB0CC0324C452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588849   (150433) от 14.12.2012
 
 Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
@@ -726,67 +790,6 @@ VA - Cyberpunk 2077- Radio, Vol. 1-3 (2020) OST [MP3|320 Kbps] <Films-Games, Fil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42A82FA092A506A5BE1FB46C29F572B9583DD780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739382   (147124) от 28.12.2013
-
-Maximilien Mathevon - Lotus Flower (2013) [MP3|256 кб/с]<New age, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(08:48) 1. Snowflakes
-(08:38) 2. White-Clad Stillness
-(04:48) 3. A Warm Home
-(07:04) 4. The Christmas Tree
-(08:40) 5. Ice Skating
-(06:02) 6. The Holy Night
-(18:40) 7. Heart of WinterЖанр: New age, Relax, MeditativeПродолжительность: 01:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4EABC61AE59BF62C905BA003ABB0C935C0F0AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271542   (147113) от 25.12.2018
-
-VA - Romantic Christmas Love Songs and Romantic Music Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Jazz, Easy Listening>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 L'amore perduto (From La finestra di fronte) - Andrea Guerra 03:25
-02 Once and Again (From La volpe dalla coda di velluto) (Vocal) - Piero Piccioni, Shawn Robinson 04:35
-03 Last Tango in Paris (From Last tango in Paris - Ultimo tango a Parigi) (Titles) - Gato Barbieri 03:24
-04 Why Did She Choose You (From Last Tango in Paris - Ultimo tango a Parigi) - Gato Barbieri (   Читать дальше...   )Жанр: Soundtrack, Jazz, Easy ListeningПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B221FC1ACC55CF611814FE691EAA484EB5C18D
 ```
 
 https://mybot314.ru/tekegram_catalog/

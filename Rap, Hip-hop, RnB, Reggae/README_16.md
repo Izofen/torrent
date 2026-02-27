@@ -1,3 +1,32 @@
+###  Публикация: 1289411   (683982) от 17.03.2019
+
+50 Cent - Get Rich or Die Tryin’ (2003) Vinyl [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683982.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Intro
+2 What Up Gangsta
+3 Patiently Waiting feat. Eminem
+4 Many Men (Wish Death)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:254EB8A27E01F81DB9680C0360D0FC1805D5C5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 291270   (682958) от 14.05.2015
 
 Rap Прорыв - Выпуски 1-8 (2000-2006) [MP3|320 kbps]<Рэп, Хип-Хоп>
@@ -716,35 +745,6 @@ Machine Gun Kelly - Mainstream Sellout (2022) Explicit [FLAC 2.0|48/24|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48AA6FC4EF40512354580E8B546D6DE1CCBA2351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291836   (652408) от 26.03.2019
-
-Красное Дерево - Год Дикой Собаки (2019) [MP3|320 Kbps] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Неначало (feat. Вадим Курнулли) (2:03)
-02. #МИШАВДЕЛЕ (2:47)
-03. Олдбой (feat. Janis Beatbox) (2:50)
-04. Н.О.Ж. (feat. Гена Гром) (2:56)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FEB440B1D0D6B1588FD7D4411C0D068AE94AF17
 ```
 
 https://mybot314.ru/tekegram_catalog/

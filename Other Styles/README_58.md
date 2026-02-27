@@ -1,3 +1,61 @@
+###  Публикация: 1121740   (799631) от 03.04.2017
+
+Aenigmatica - Enigmatic (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigmatic (05:42)
+02. Occulta Mysteria (05:23)
+03. Hypnosis (06:03)
+04. Lakota Myths (05:23)(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FB225874958CAE48F992A7DE825247218D1432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273797   (799396) от 03.01.2019
+
+Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down to the Moon 02:27
+02. Moon Dance 04:10
+03. Steam Forest 04:59
+04. Water Moon 02:15(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A22C00EF998AA85A4A7FF4EF996D7490D275D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272439   (799394) от 03.01.2019
 
 Doyle W. Donehoo - Battlefleet Gothic Armada (2016) Gamerip [FLAC|Lossless|tracks] <Soundtrack, Epic, Battle>
@@ -690,64 +748,6 @@ Myristica - Star-Filled Skies (2016) [MP3|320 кб/с] <New Age, Neoclassical, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6E87871642FD6051D41BFAC0C936C1EED669BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509062   (795486) от 11.11.2021
-
-VA - The Best Christmas Album In The World...Ever! 2021 (2021) [MP3|320 Kbps] <Christmas, Pop, Rock>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Thank God It's Christmas
-02. Band Aid 30 - Do They Know It's Christmas?
-03. Sam Smith - Have Yourself A Merry Little Christmas
-04. Justin Bieber - Mistletoe(   Читать дальше...   )Жанр: Christmas, Pop, RockПродолжительность: 03:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67DB638690343CEC5544BCAB38C4B3FA7FD34EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011672   (795451) от 29.04.2016
-
-Finvarra - Finvarra (2013) [FLAC|Lossless|tracks + .cue] <Folk, World, Country, Celtic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelpie / The Cliffs Of Moher 03:33
-02. The Wind That Shakes The Barley 03:11
-03. Jovano Jovanke / Ciuleandra 05:25
-04. Dimna Juda 02:22(   Читать дальше...   )Жанр: Folk, World, Country, CelticПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C129CE82B254DC37528CC016CBC9723F6193A47
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,63 @@
+###  Публикация: 1410926   (431642) от 23.09.2020
+
+Malando & His Tango Orchestra - Malando Best Selection (2019) [FLAC|Lossless|image + .cue] <Latin, Folk, World & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Danny Malando Orchestra - знаменитый голландский оркестр исполняющий музыку танго. В модернизированном оркестре играют 15 участников, удивительно слаженно исполняющих сколь сложные, столь и прекрасные музыкальные композиции.
+
+Название оркестра, начавшего творческую деятельность летом 1939 года, происходит от имени его основателя Арие Маасланда (Arie Maasland) (26 (   Читать дальше...   )Трeклист:
+01. Blauer Himmel (03:04)
+02. Ich Kusse Ihre Hand Madame (03:12)
+03. Tango Delle Rose (02:29)(   Читать дальше...   )Жанр: Latin, Folk, World & CountryПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72162AE5131325001F1D0960575C829AC3AF2204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945491   (431571) от 11.10.2015
+
+Francisco Canaro & Carlos Roldn - Que me quiten lo bailao (1944) [MP3|320 кб/с]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destellos | Destellos
+02. Naipe
+03. Esta noche de luna
+04. Por las calles de la vida(   Читать дальше...   )Жанр: TangoПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A1C1C45AA5F9A25043E9AC1016BD9D9F795155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945484   (431570) от 11.10.2015
 
 Francisco Canaro - Charlo - Con Francisco Canaro & Francisco Lomuto (1989) [MP3|160 кб/с]<Tango>
@@ -690,64 +750,6 @@ Armik - Esta Guitarra (2020) [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Guitar>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F14E4B5AC30996B6BC9B5476891FE038D458D2B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250297   (426886) от 27.09.2018
-
-VA - Золотая коллекция - Песни Нашего Кино (1998) 2CD [APE|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Берегись автомобиля' - Вальс (3:41)
-02. 'Карнавальная ночь' - Песенка о хорошем настроении (2:45)
-03. 'Карнавальная ночь' - Песенка про пять минут (3:47)
-04. 'Бриллиантовая рука' - Остров невезения (2:12)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DDA2250D4BD1F9C5D8514D7BFAF3D1AF98B4AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250140   (426764) от 27.09.2018
-
-Tariverdiev (Микаэл Таривердиев) - Film Music (2015) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys and the Sea - part one / Мальчики и море (часть 1) - 01:35
-02. Boys and the Sea - part two / Мальчики и море (часть 2) - 02:03
-03. Dance at the Stadium / Танец на стадионе - 02:59
-04. Waltz (From 'The Long day') / Вальс (из к/ф "Длинный день") - 03:28(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799F2B9DD1D67ABECBF260A1BE9203B4C3590B62
 ```
 
 https://mybot314.ru/tekegram_catalog/

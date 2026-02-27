@@ -1,3 +1,59 @@
+###  Публикация: 908097   (635287) от 13.06.2015
+
+KaOS Linux 2015.06 (Arch + Plasma KDE 5) [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект KaOS представил июньский релиз новой стабильной версии своего Linux-дистрибутива с поддержкой UEFI и разметки GPT. Plasma/KDE desktop 5. Ядро Linux Kernel 4.0.5, glibc 2.21 и Binutils 2.25, libpng 1.6 series, systemd 220
+
+Дистрибутив KaOS основан на пакетном менеджере Arch Linux — pacman. Он использует в качестве основного рабочего окружения последнюю версию (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2257FCDBDC65C80E7C30E25318686FE08727A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908314   (633336) от 14.06.2015
+
+Voyager Live X8  (легкий дистрибутив) [efi-amd64, amd64, i386] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен очередной релиз французского дистрибутива на основе текущей версии Debian 8 "Jessie" с DE Xfce 4.12. Отметим, что ранее дистрибутив базировался на текущих версиях Xubuntu.
+
+Рабочее окружение включает в себя по умолчанию Conky, Smtube, Kodi/XBMC Media Center, VLC, GIMP, Clementine, CoverGloobus, RadioTray, Slingscold, Skippy-xd, Kazam, а также (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EEC25C3FD490D21BA14DAC172B184F3B99BACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143575   (633012) от 19.06.2017
 
 Debian GNU/Linux 9.0 + nonfree Stretch [i386] 4xDVD
@@ -623,59 +679,6 @@ PCLinuxOS - один из самых популярных на Западе ва
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24083F4DAD26D0E158FA073BFF77708FCB892A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147739   (607191) от 03.07.2017
-
-Linux Mint 18.2 Sonya (KDE, XFCE, Mate, Cinnamon) [32bit] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Mint — дистрибутив операционной системы Linux, основанный на Ubuntu LTS. Цель дистрибутива заключается в предоставлении конечному пользователю максимально простой системы, которая будет готова к работе сразу после установки и не потребует загружать наиболее популярное программное обеспечение, в том числе и дополнительные кодеки для воспроизведения популярных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA6A909E556051920E4C6FD4A5B296B8D623246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297334   (604012) от 22.04.2019
-
-Ctlos Linux Openbox/i3 v2.1 — iso образ, основанный на Arch Linux 2.1 [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604012.jpg" />
-</div>
-
-
-###  Подробнее
-
-В образе два оконных менеджера, установка происходит в openbox, после установки в менеджере входа(sddm) есть возможность выбора i3.
-Конфиг i3 находится в
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4612324B909D0B589EB8FB6D2514936F4D240A
 ```
 
 https://mybot314.ru/tekegram_catalog/

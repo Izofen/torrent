@@ -1,3 +1,61 @@
+###  Публикация: 1665612   (180169) от 03.10.2023
+
+VA - The Orient Collective: Melodic Ethnic Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EASTERN WIZARD - The Mystic Lady (Mikhail Catan Remix) (6:56)
+02. Michael Simon - Umami (6:45)
+03. Michael Simon - Canzul (6:28)
+04. Mikhail Catan - Solace (OneRec Remix) (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638D67D18CE40A7F2589E0DDCE17300908839C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666184   (180151) от 03.10.2023
+
+VA - The Orient Collective: Vimana (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_180151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hansonic - Streets of Khartoum (6:40)
+02. Ibrahim Babayev - Summer Memories (4:32)
+03. DaDa Sound Project - Obuada (6:55)
+04. 2 Sides Of Soul - Oriental Coffee (7:42)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF685A32DF8AA8E5105DCABEFB069D79EE72DC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666235   (180112) от 03.10.2023
 
 VA - The Orient Collective: Ethereal Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -686,63 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A3B327E45F0032CE71333342B0E7A6970EA55C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322251   (170462) от 10.12.2019
-
-VA - The Texas Chainsaw Massacre: The Beginning / Техасская резня бензопилой: Начало (2006) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free - All Right Now
-02. The Ides of March - Vehicle
-03. The Dixon Brothers - A Church At The Foot Of The HillЖанр: SoundtrackПродолжительность: 00:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5CE58F38588D6C0F27CAE7826658F347DFC1AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344453   (170423) от 10.12.2019
-
-Shinnobu - The Trilogy (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystics Monks (4:24)
-02. Morphos (5:30)
-03. Lux Aeterna (4:47)
-04. Portal of Peace (5:17)(   Читать дальше...   )Жанр: New Age, Enigmatic, RelaxПродолжительность: 01:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAD49E7D1BA747DDDE7A27B61DD0E57D24D2C80
 ```
 
 https://mybot314.ru/tekegram_catalog/

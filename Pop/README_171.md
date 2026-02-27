@@ -1,3 +1,293 @@
+###  Публикация: 1306081   (555816) от 03.06.2019
+
+Apollo - Apollo (1979) LP [MP3|320 Kbps] <Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apollo (2:24)
+02. Right In Front Of You (3:53)
+03. Astro Disco (9:39)
+04. Never Learn (3:05)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149F08FF4FC7EC0526BAEDC2DACAA088CA8DC7C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306069   (555801) от 03.06.2019
+
+Пацаны - Не реви (2001) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пацаны - Измена (3:29)
+02. Пацаны - Кукла (4:40)
+03. Пацаны - Дурак (4:25)
+04. Пацаны - Лучший парень (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423F6BC64627116E50DE96C08BBB6F3D6585950C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306484   (555583) от 05.06.2019
+
+Samana - Ascension (2019) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before the Flood (04:44)
+02. Harvest (05:04)
+03. The Art of Revolution (05:03)
+04. The Sky Holds Our Years (04:32)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D21EF9EFB435490FE5070E8B137ABFF3C2F11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306483   (555577) от 05.06.2019
+
+Oh Shu - Big Fish (2019) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonny
+02. Lucky
+03. 0418
+04. Muzhhik(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEAB181818036E58BD3CD9584CAB597A2DAD188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306555   (555576) от 05.06.2019
+
+Charlotte Cornfield - The Shape Of Your Name (2019) [FLAC|Lossless|tracks + .cue] <Pop, Folk, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555576.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. June (03:54)
+2. Storm Clouds (04:46)
+3. Balladeer (03:42)
+4. Andrew (03:31)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A91F61A9D01B5F258EC16ABC2DFCB2A25D2AC75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306549   (555574) от 05.06.2019
+
+Ben Platt - Sing to Me Instead (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Habit (04:22)
+02. Ease My Mind (04:36)
+03. Temporary Love (03:38)
+04. Grow As We Go (04:09)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8804EF58FF4937771E0ACDE8AD5FE014D30CEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306570   (555559) от 05.06.2019
+
+VA - So Fresh: The Hits Of Autumn 2019 [FLAC|Lossless|tracks + .cue] <Pop, Dance, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - 7 rings
+02. Mark Ronson - Nothing Breaks Like a Heart (feat. Miley Cyrus)
+03. Post Malone - Wow.
+04. Dean Lewis - 7 Minutes(   Читать дальше...   )Жанр: Pop, Dance, R'n'BПродолжительность: 01:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2732D4120EE9FE089F6E1B75D0337696B766A121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306522   (555557) от 05.06.2019
+
+Meiko - In Your Dreams (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Knows (03:50)
+02. Gimme Gimme (02:32)
+03. My Brain Is a Computer (04:28)
+04. Roses (02:57)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B355FC6BD4D07BFB823ED08D4C485681DC4EC947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306821   (555477) от 06.06.2019
+
+Extensive Care - Sexy Thrills (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexy Thrills (6:38)
+02. Do It Like This (5:30)
+03. Disco Squeeze (6:55)
+04. Strict Blonde Chick (6:43)Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67884872F0CBE53C211C596237351FDA86C629C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871231   (555361) от 07.06.2019
+
+Awim - Angels Whisper In Me (2005) [MP3|320 кб/с]<Pop, indie>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom
+02. There's a secret in me
+03. Set me free
+04. Coming home(   Читать дальше...   )Жанр: Pop, indieПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E56AD9FBB6BA94F512C89536566552B4E26FD91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307109   (555226) от 08.06.2019
 
 Plastic Surprise - Bang Bang (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -455,293 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B87D647BC0F7E9464913C5E2ABE700D284296C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307605   (554439) от 12.06.2019
-
-Prince - Originals (2019) Anthology [MP3|320 Kbps] <Pop, Rock, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sex Shooter
-02. Jungle Love
-03. Manic Monday
-04. Noon Rendezvous(   Читать дальше...   )Жанр: Pop, Rock, FunkПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C05D9E77049CB32044025D738621EFA7A16A81E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307969   (554392) от 12.06.2019
-
-Madonna - Madame X (2019) Deluxe [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medellín (with Maluma)
-02. Dark Ballet
-03. God Control
-04. Future (feat. Quavo)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAAD0D70E6934C65BFC5DEAEFEC9F7E47AEBA718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664306   (554332) от 12.06.2019
-
-Ирина Бржевская - Золотая коллекция ретро (2003) [APE|Lossless]<Pop|Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554332.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Московские окна (Т.Хренников - М.Матусовский)
-2. Веснушки (Л.Печников - Л.Глазкова)
-3. Я иду (А.Островский - Е.Долматовский)
-4. Одуванчик (А.Фаттах - Ю.Полухин)(   Читать дальше...   )Жанр: Pop|RetroПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1E58B6EF7BBA2A6664A22AA28E929906689E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307978   (554243) от 13.06.2019
-
-Real O - Платье (2010) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РорПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3E08ADB4950812D6B5F5965A30A0ADDD32E371C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308305   (554121) от 13.06.2019
-
-Madonna - Madame X (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medellín (4:58)
- 02. Dark Ballet (4:15)
- 03. God Control (6:19)
- 04. Future (3:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985E0E851DB4F0F8932EC76D18D4545B14A0FA3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236651   (554056) от 19.07.2018
-
-Black Sun - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Women (5:58)
-02. Look Again (6:16)
-03. Message From The Stars (6:15)
-04. Carnaval (7:09)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C618904DF8E9FF6AD8F4ECD0CC0E520271206B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308495   (553982) от 14.06.2019
-
-Bo Katzman Chor - Zwischen Himmel und Erde (2005) [FLAC|Lossless|image + .cue] <Pop, Cover, Gospel>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's in the Book (3:38)
-02. Seek, Seek (3:10)
-03. Where Could I Go but to the Lord (3:43)
-04. Hole in the World (4:05)(   Читать дальше...   )Жанр: Pop, Cover, GospelПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632D8036A186CE1C76F6EFD3852D6331F8F13BD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308521   (553981) от 14.06.2019
-
-Rashida (Rasheeda) - 3 альбома (2001, 2002, 2005) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вспоминай (4:14)
-02. Ночь (4:26)
-03. Осень не ждёт (4:43)
-04. Ты снова один (3:58)(   Читать дальше...   )Жанр: PopПродолжительность: 02:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F23F211BAC3EB195D59C122CDC89917BAA915D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308608   (553779) от 15.06.2019
-
-VA - Ballerstyle - Mallorca Hits 2019 (Best of Mallorcastyle Schlager für die Discofox XXL Party) (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553779.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Robin - DJ auf Entziehungskur
-002. DJ Mallorca - Helikopter 117 (Mach' den Hub Hub Hub)
-003. Axel Fischer - Bella Ciao (Eric van Dust Mix)
-004. Isi Glück - Das Leben ist ne Party (Harris & Ford Remix)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 06:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94989DE02296D860219243ADB4F0ACF39F8E33AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308630   (553777) от 15.06.2019
-
-VA - Schlager-die Hits des Sommers (2019) [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553777.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Beatrice Egli - Terra Australia
-02. Kerstin Ott - Regenbogenfarben (Bassflow Remix)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0D998AF44C492ACBE27D0649738A5D5E3C6913
 ```
 
 https://mybot314.ru/tekegram_catalog/

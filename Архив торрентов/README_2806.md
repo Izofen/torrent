@@ -1,371 +1,3 @@
-###  Публикация: 1039441   (595955) от 01.08.2016
-
-VA - Goa Year 2016 Vol.4 (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sixsense, Vimana Shastra & GoaStream -  Acid Drops 6:19
-02. Retronic -  Young and Restless 7:29
-03. Nosfer -  Kill Them All (Atomic Pulse Remix) 8:23
-04. D-Tek -  U96 7:17(   Читать дальше...   )Жанр: Trance, Psy-Trance, GoaПродолжительность: 03:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE3BF8C3B3967F35692BBE12D83A39456B25142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039439   (595950) от 01.08.2016
-
-Jack The Smoker - Jack Uccide (2016) [MP3|320 Kbps] <Hip-Hop, Trap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - V(a)iking
-02 - Burial
-03 - 666
-04 - Grazie a me (feat. Gemitaiz & Madman)(   Читать дальше...   )Жанр: Hip-Hop, TrapПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CCD63738F93CAF0B4467D7DA49BBCEF7C274EB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039508   (595943) от 01.08.2016
-
-Смешанные единоборства. Invicta FC 18: Grasso vs. Esquibel. (29.07.2016) WEB-DL [H.264/720p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все бои турнира "Invicta FC 18: Grasso vs. Esquibel", прошедшего 29 июля 2016 года в "Scottish Rite Temple", Канзас-Сити, штат Миссури, США.Телекомпания: FOX SportsЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 03:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68BB6387D0A6BF52FA9595465CEF30A47F9D184D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526877   (595941) от 25.07.2012
-
-Bill Miller - Spirit Wind North (2009) [MP3|320 кб/с]<Native American, Ethno, Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595941.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Birds of Pray 4:06
-2. Together as One 5:11
-3. High Eagle Prayer 7:13
-4. Lost Canyon 6:59
-5. Vision Quest 6:42
-6. Tranquil Fire 4:23
-7. Journey Into Prayer 4:26
-8. Amazing Grace 3:59
-9. Reconciliation Prayer 5:07Жанр: Native American, Ethno, RockПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38773A3CED53623D41D8DB39A64A0C42A0994789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527183   (595938) от 25.07.2012
-
-Журнал | ХлебСоль №8 (август 2012) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595938.jpg" />
-</div>
-
-
-###  Подробнее
-
-"ХлебСоль" — это еще одна возможность рассказать о еде как творчестве. И появление журнала — это удивительное стечение обстоятельств, потому что в одном месте собрались энтузиасты, которые очень любят готовить и экспериментировать на кухне. Все рецепты неоднократно тестируются на редакционной кухне. Штатные повара журнала выверяют необходимое количество (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B8644086888BE6D8EF24B1F4A226EB621796EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526236   (595936) от 25.07.2012
-
-VA - TMP: Clear Sky 080 (2012) [MP3|320 кб/с]<Vocal Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595936.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ferry Corsten vs. Armin van Buuren - Brute (Darren Porter Remix)
-002. Moonbeam feat. Avis Vox - Disappearance (Kollektiv SS Remix)
-003. Max Graham & Susana - Down To Nothing (Original Mix)
-004. Evol Waves - Evolver
-005. Johan Vilborg - Fall (Original Mix)
-006. Gal Abutbul & Liri - Golden Globe (Original Mix)
-007. Julian Vincent & Shannon Hurley - Lost In Space (Mark Otten's Original Mix)
-008. Jake Shanahan feat. Tyler Sherritt - On The Otherside (Original Mix)
-009. Glideslope - Sunstone (Original Mix)
-010. Maor Levi - Won't Say NoЖанр: Vocal Trance, TranceПродолжительность: 01:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65175629F9B866488AB2EF5DF242408321B26251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526244   (595935) от 25.07.2012
-
-VA - TMP: Vanilla Dreams 080 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595935.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Morris & Sequentia - Blind (Vocal Mix)
-002. Masoud feat. Nicole McKenna - Fix The Broken (Original Mix)
-003. Chicane - Going Deep (Club Mix)
-004. Cathy Burton & Omnia - Hearts Connected (Original Mix)
-005. Andrew Bayer & Matt Lange feat. Kerry Leva - In And Out Of Phase (Club Edit)
-006. Faruk Sabanci - Oriental Sentiment (Original Mix)
-007. Allure feat. Emma Hewitt - Stay Forever (Nitrous Oxide Remix)
-008. Bartlett Bros., Matt Loki & Tiff Lacey - Sweet Child (Lele Troniq Remix)
-009. Alexey Omen feat. Volodya Aspirin - When The Heavens Cry (Original Mix)
-010. Andy Moor & Ashley Wallbridge feat. Gabriela - World To Turn (Club Mix)Жанр: Vocal TranceПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A91968D12E50AFFC2AE67B69416252A37A045FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525718   (595932) от 25.07.2012
-
-VA - Black World Mix - Mixed By Rezonanz (2012) [MP3|320 кб/с]<Drum & Bass, Dubstep, Drumstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - C.A.2K - Moredanb
-02 - NLB aka Renegade Scientist - Horn Related
-03 - C.A.2K - Push a Little Harder
-04 - Exiva & TerrorЖанр: Drum & Bass, Dubstep, DrumstepПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFF38C06DFDDA475329FDD50144A92A0FDECD19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526860   (595928) от 25.07.2012
-
-Журнал | Marie Claire №8 (август / Украина) [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Marie Claire" - воплощение живой девушки, которая работает, неплохо зарабатывает, ни перед кем финансово не отчитывается и деньги тратит исключительно на свои прихоти. Может быть, у нее сейчас есть постоянный друг - мужчина, которого она по-настоящему уважает. Мы с вами знаем эту девушку, потому что она такая же, как мы. Думает, в чем пойти на работу, и при этом периодически совершает безумные покупки, знает значение слов "статусно" и "пафосно" и при этом любопытна до крайности. Все попробовать самой, везде побывать, по любому поводу иметь свою точку зрения. Ее зовут Marie Claire, и она - отражение эпохи, девушка,которой можно все.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5BCA730B1C79899E9DFB1DEE70FD378D87CDEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527132   (595926) от 25.07.2012
-
-DJ Kocmoc - Russian Dance vol.9 (28.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595926.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кипелов - Я свободен (DJ Mariya Malyakina DubStep Remix)
- 2. Алина Гросу – Взрослая (BennStep Remix m.u. Radio Edit)
- 3. Nutella - я тебя люблю (DJ Johnny Clash & DJ Grant Electro remix)
- 4. Sexy Liya & Bob Rovsky - Фильтруй,что говорят
- 5. Иракли vs Бьянка - Белый Пляж (DJ Ruin remix)
- 6. Иван Дорн - Стыцамен (Viento & Mutti Remix)
- 7. Пара Нормальных & Snoop Dogg - Вставай (Anton Orf & Muztrend Remix)
- 8. Планеты - Любовь!(Alex Neo Remix)
- 9. DJ Gold Sky feat. A&K - Rock Star 2012 (Russian Version)
- 10. Вася Обломов - Магадан (Dj Slon Remix)(   Читать дальше...   )Жанр: Electro House, Electro ProgressiveПродолжительность: 01:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C7A2DF7F6284AE9D77A30E08551B8AE6A54A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527126   (595924) от 25.07.2012
-
-AtmAsfera - Internal (2012) [FLAC|Lossless]<World Music, Folk-Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
- 02. Where Sould I Go
- 03. Bala
- 04. Almost
- 05. Lonely Night
-
-Tetralogy Apocalypse :
- 06. Wart (Part I)
- 07. Inside (Part II)
- 08. Inspiration (Part III)(   Читать дальше...   )Жанр: World Music, Folk-RockПродолжительность: 01:05:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039553   (595921) от 01.08.2016
-
-Manuel Rocca - Mochima (2016) Single [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mochima (Original Mix) 06:44
-02. Mochima (Airsoul Remix) 06:05
-03. Mochima (Sunlight Project Remix) 07:39
-04. Mochima (Factoria Remix) 06:57(   Читать дальше...   )Жанр: TranceПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E66678B425DF0C19CFBE1E904E8AB12049A1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039527   (595918) от 01.08.2016
 
 Dirty Heads - Dirty Heads (2016) [MP3|320 Kbps] <Reggae, Ska, Hip-Hop>
@@ -735,6 +367,351 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCE7C966A4D88B2C626CD0C240B3333D24BAFDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914831   (595846) от 03.07.2015
+
+Tor Browser Bundle 4.5.3 Final [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5B0F9D27370854E4F4912EBAC68E7FE9B32EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526509   (595839) от 25.07.2012
+
+Потерянный Век - 2 Альбома, 1 ЕР (2006-2012) [MP3|128-320 кб/с]<Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy MetalПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F4E15F6C4C5250C2C1C6AA2FDA4DAC76D027E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526896   (595837) от 25.07.2012
+
+Санктум - Санктум (2012) [MP3|320 кб/с]<Modern-Heavy-metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595837.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Не оборачивайся, не возвращайся
+2 Падая в бездну
+3 Радиоактивная зима
+4 История убийцы
+5 Пленник снов
+6 Путь души
+7 Разговор с ангеломЖанр: Modern-Heavy-metalПродолжительность: 00:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6AE3B1CE3BF7D51D547075AB53F03A477991E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526716   (595836) от 25.07.2012
+
+VA - Русские Новинки PiratMP3  (2012) [MP3|128-320 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595836.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Palaraga - Мой город не спит
+ 2. Арчи-М - О Боже
+ 3. F. Jay ft. Olesya - Держи Меня За Руку (DJ Melnikoff ft. DJ Prado Remix)
+ 4. RI - Все Решено
+ 5. Шима - Океан
+ 6. Градусы - Заметает (Seal De Green Winter Mix)
+ 7. Женя Юдина feat. Pawbeat - Небо Это Я
+ 8. Ляна Новак - В Ритме Мира (DJ Sender & Alex Vives Mix)
+ 9. Пыльца - Красная Пелена
+ 10. Palaraga - Отпусти меня(   Читать дальше...   )Жанр: PopПродолжительность: 03:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545278C97535BA103068483A54D314F4586B532E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527334   (595833) от 25.07.2012
+
+Журнал | Just ceo №6 (июль) [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание, содержащее самую актуальную информацию о разных сторонах нашей жизни - от ведения бизнеса и изменениях в законодательстве до ярких мероприятий, новинок моды и красоты, местах отдыха, редких хобби и видов спорта.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51AD9EAAE22C38B3B155B859028A71B1D7ECF7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526874   (595830) от 25.07.2012
+
+Вселенная: За горизонтом (Адаптация) / Universe: The Infinite Frontier Adaptation (1995) SATRip [серии 2-4]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вселенная - Бесконечные рубежи" состоит из 26 получасовых эпизодов о космосе.
+В это релиз вошли серии:
+02. Истоки современной астрономии / The Origin of Modern Astronomy
+03. Атомы и свет / Atoms and Light
+04. Инструменты астрономии / The Tools of AstronomyЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 x ~ 00:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8127BDA74A31BFF0870D5DFF8AFE10A7760160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527055   (595829) от 25.07.2012
+
+Reencuentros - The Secret of the Dancing Spirits (2004) [MP3|320 кб/с]<Native American, Ethno, Folk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Flying Condor (5:11)
+02.  Tatanka (5:44)
+03.  The Secret of the Dancing Spirits (3:46)
+04.  Ananau (5:11)
+05.  Love Mountain (5:43)
+06.  Rain Dance (4:06)
+07.  WayrapaMuspuynin (6:36)
+08.  Five Spirits (5:34)
+09.  All the Prety Things (4:43)
+10.  Sunquyman (6:26)(   Читать дальше...   )Жанр: Native American, Ethno, FolkПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5C45D93C57CB5A48E4E6D54607520D571FA2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526866   (595826) от 25.07.2012
+
+NG: Самые удивительные фотографии: Секретные голоса / Nat Geo's Most Amazing Photo. Secret Voices (2009) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный цикл, рассказывает о сложной работе фотографов журнала "National Geographic". Каждая серия посвящена отдельному специалисту. Многие из них работают уже не один десяток лет, стараясь донести до нас, красоту нашей планеты. Они снимают в самых красивых и экзотических местах, часто в труднейших условиях, которые просто трудно себе представить. Их жизнь часто подвергается опасности, но они идут на риск, потому что их работа является смыслом их жизни. Травмы, болезни, одиночество и месяцы, проведённые вдали от родных и близких - вот расплата и цена, данной профессии. Ведь на них постоянно лежит ответственность за фотографии, публикуемые в одном из самых престижных журналов мира.Жанр: Документальный, научно-познавательный, путешествие, география, фотография, исследованиеПеревод: ДублированныйПродолжительность: 00:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7FFA729A329212B123285F5233734122BE517BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526939   (595822) от 25.07.2012
+
+[EN] Дикий Билл / Wild Bill (2011) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билл Хейворд, досрочно выйдя из тюрьмы, после 8-ми лет заключения узнает, что его 11-ти и 14-ти летние сыновья больше не живут с матерью. Старший Дин старается заменить младшему Джимми родителей, но в свете освобождения Билла социальные службы рассматривают вопрос о переводе их в детский дом. Сын и отец заключают соглашение. Билл остается жить с мальчиками на неделю, чтобы успокоить социальные службы. Череда событий приводит к тому, что Биллу придется делать выбор, быть хорошим отцом и снова пойти в тюрьму или бросить своего сына в трудной ситуации.Жанр: ДрамаРежиссер: Декстер ФлетчерАктеры: Чарли Крид-Майлз, Уилл Поултер, Лиз Уайт, Сэмми Уильямс, Лео ГрегориПеревод: ОтсутствуетПродолжительность: 01:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD3E67AB101EF36245C0113C6FA67BF263CA506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039627   (595817) от 01.08.2016
+
+Panda Free Antivirus 2016 16.1.3 DC 31.07.2016 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Panda Free Antivirus - антивирусная программа, которая защищает компьютер без ущерба для его производительности: он всегда предоставляет максимальную производительность и вступает в действие только тогда, когда это необходимо. Это лёгкий и быстрый антивирусный сервис. Он борется с новыми угрозами без необходимости обновления, так как сочетает локальные технологии (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50443E87AE44ACF11079287FCC61326D451FF6AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039456   (595811) от 01.08.2016
+
+Desiigner - New English (2016) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Trap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro
+02 - Caliber
+03 - Make It Out
+04 - Shooters(   Читать дальше...   )Жанр: Hip-Hop, TrapПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD185E8D4E8B0F436C8EA084104D4BB529F28A24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038831   (595805) от 01.08.2016
+
+Формула 1. Гран-При Германии. 1, 2, 3 практики. Квалификация. Гонка (2016) HDTVRip [H.264] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595805.jpg" />
+</div>
+
+
+###  Подробнее
+
+29-31 июля 2016 года.
+Этап 12. Гран-при Германии
+Арена: Автодром Хоккенхаймринг (Хоккенхайм, Германия)Телекомпания: Матч Арена HDЖанр: Спорт, автоПродолжительность: 07:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E66D8C54373E5AB323FCAD701A40EE6934D20D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

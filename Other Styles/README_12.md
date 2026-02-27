@@ -1,3 +1,64 @@
+###  Публикация: 164052   (981529) от 11.01.2010
+
+Eric Serra - The Fifth Element / Пятый элемент (Complete Score) (2CD) (1997) [MP3|192 kbps]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: OSTПродолжительность: 02:14:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165531   (981439) от 11.01.2010
+
+VA- Охотники за привидениями / Ghostbusters (1984) [FLAC|Lossless]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Ray Parker Jr - Ghostbusters (4:07)
+02. The Bus Boys - Cleanin' Up The Town (3:00)
+03. Alessi - Savin' The Day (3:24)
+04. Thompson Twins - In The Name Of Love (3:20)
+05. Air Supply - I Can Wait Forever (5:09)
+06. Laura Branigan - Hot Night (3:23)
+07. Mick Smiley - Magic (4:21)
+08. Elmer Bernstein - Main Title Theme (3:01)
+09. Elmer Bernstein - Dana's Theme (3:32)
+10. Ray Parker Jr - Ghostbusters (Instr. Version) (4:47)1984Жанр: OSTПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613940   (981148) от 05.02.2013
 
 VA - Волшебные мелодии. Коллекция Ридерз дайджест (5CD) (2006) [MP3|320 кб/с]<Instrumental>
@@ -715,70 +776,6 @@ Briza (David Arkenstone) - Ambient Cafe (2006) [FLAC|Lossless|image + .cue] <New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D43EA98BEC65DD4C4801CDAA2906AEEA054F687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973706   (978942) от 09.01.2016
-
-Almudena Merino Mino - Dejolull, La Cepa Magica (2015) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amanecer
-02. Reina Guerrera
-03. Oscuridad
-04. Reina Guerrera - Amanecer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9C0E06345E2C1808B08C77871E5703E9EDCCA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742432   (978853) от 06.01.2014
-
-Музыкальный коллектив Петра Налича - Кухня (2013) [MP3|320 кб/с]<Jolly Baburi>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Your Music
-02. Boubalezi
-03. Kiki
-04. Frenchmarch
-05. Gasqerigimdym
-06. A+P
-07. Boomerang
-08. Dead Husband
-09. Don Bon Brown
-10. RRR(   Читать дальше...   )Жанр: Jolly BaburiПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78261D23BC8B9462F55712753AEAB7FE4320D912
 ```
 
 https://mybot314.ru/tekegram_catalog/

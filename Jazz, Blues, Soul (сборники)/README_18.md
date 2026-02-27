@@ -1,3 +1,32 @@
+###  Публикация: 1259107   (323257) от 02.11.2018
+
+VA - Love Is Endless: Blues Rock Collection (2018) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323257.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beth Garner - Alright By Me
+002. Boz Scaggs - Rock And Stick
+003. Black Stone Cherry - Built For Comfort
+004. Lawrence Lebo -  Old School Girl(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 10:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C696C9D45930F656DD07B25A507B61F1F506D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075948   (315667) от 24.11.2016
 
 VA - Sentimental Rock Blues Story (2016) [MP3|192-320 Kbps] <Rock Blues>
@@ -716,35 +745,6 @@ VA - Late Night Jazz Chill: Staring At The Moon (2016) [MP3|320 Kbps] <Jazz, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6517784190F9DBB5B64EBDB13BB8EDEB781A4A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265524   (274071) от 28.11.2018
-
-VA - Blues Metropolia (2018) [MP3|320 Kbps] <Blues, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274071.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Steve Odum - Built For Comfort
-002. A.L. James & Spare Change - Satisfaction Guaranteed
-003. American Standard - Sugathang
-004. Booba Barnes - Heartbroken Man(   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 12:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1506F599337F089845078B51A9CFEED14412071C
 ```
 
 https://mybot314.ru/tekegram_catalog/

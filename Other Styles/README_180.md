@@ -1,3 +1,58 @@
+###  Публикация: 739606   (144382) от 29.12.2013
+
+Arthur Lyman - With a Christmas Vibe (1996) [FLAC|Lossless]<Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Easy Listening, InstrumentalПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC91CCEDF32896E9BB7888C2BF567FDC7B2BF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739427   (144328) от 29.12.2013
+
+David Arkenstone - Celtic Chillout (2010) [FLAC|Lossless]<New Age, Lounge, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call of the Sea (5:01)
+02. Beyond the Ruins (5:16)
+03. The Long Road (5:11)
+04. Carrickfergus (4:44)(   Читать дальше...   )Жанр: New Age, Lounge, CelticПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7666DD192AA59DD5E14A9C95D60D76929009B9A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087216   (144324) от 28.12.2016
 
 Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Score, Soundtrack>
@@ -742,70 +797,6 @@ Gregorian - Masters Of Chant Chapter V (2006)Japan [FLAC|Lossless]<Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F682298B7AA0BDFACA917012AD58DD278401EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556910   (139162) от 31.12.2013
-
-Amberfern - 4 albums (2009-2013) [MP3|320 кб/с]<New age, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(5:26) 01. Avon Beach
-(4:49) 02. Rythm of the Sea
-(5:23) 03. Underwater World
-(5:09) 04. Sirens
-(5:12) 05. Floating
-(4:04) 06. Spindrift
-(5:00) 07. Across the Blue Bay
-(4:56) 08. Driftwood
-(5:18) 09. Ocean Sunrise
-(4:00) 10. Farawway Shore(   Читать дальше...   )Жанр: New age, Relax, MeditativeПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7866C43EFF66DBE2DDEC4B5903A8110B80B008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436138   (138721) от 30.12.2020
-
-Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Forest (Symphonic Version)
-02. Cafe Europa (Symphonic Version)
-03. Night Bird (Symphonic Version)
-04. Bulgarian Melody (Symphonic Version)(   Читать дальше...   )Жанр: Ambient, Downtempo, New AgeПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC1A651966C38850B7FBAE358B7B71B05BD24C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

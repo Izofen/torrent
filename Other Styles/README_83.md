@@ -1,3 +1,61 @@
+###  Публикация: 1134081   (691069) от 14.05.2017
+
+Terry Oldfield and Carlos Garo - Sky Dancer (2017) [MP3|320 Kbps] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky Dancer
+02. Reach Out
+03. Orbital
+04. The Man with No Face(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237FB0B37098948431ABF6F2644C864FBA5355B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134199   (690879) от 14.05.2017
+
+Audiomachine - Worlds of Wonder (2017) [MP3|320 Kbps CBR] <Soundtrack, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby of the Siren [02:42]
+02. No Retreat, No Surrender [03.24]
+03. The Wandmaker [01:52]
+04. Peculiar Magic [02:39](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Classical CrossoverПродолжительность: 01:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D932D64AAE948747AB8DC116195BCB1B04603A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028317   (690873) от 22.06.2016
 
 Amy Janelle - Shining True (2010) [FLAC|Lossless|tracks] <New Age, Piano>
@@ -705,64 +763,6 @@ Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FC445D549101F0DE1C7E78C225E3F9F901F1476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133906   (689090) от 15.05.2017
-
-The Romantic Strings Orchestra - Thanks For The Memory (1995) [MP3|320 Kbps] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689090.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Embraceable You (2:31)
-2. Over The Rainbow (3:16)
-3. Sunrise Serenade (3:00)
-4. I'm Gettin' Sentimental Over You (2:52)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:650CE1BEE4DFB411DF518F67ACA4E42A5F71633B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133876   (689082) от 15.05.2017
-
-Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Series Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - Genius (00:51)
-02. Lorne Balfe - Proving the Theory (01:40)
-03. Lorne Balfe - Forbidden Love (03:05)
-04. Lorne Balfe - Nobel Prize (01:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4890C61467294260D8E3AD9664081E18CC158588
 ```
 
 https://mybot314.ru/tekegram_catalog/

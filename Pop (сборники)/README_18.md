@@ -1,3 +1,148 @@
+###  Публикация: 994798   (887384) от 09.03.2016
+
+VA - Best hits of 90! Лучшие Хиты 90-х Vol.2 (2016) [MP3|256-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887384.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Руки Вверх - Крошка Моя
+002. Demo - Солнышко
+003. Шатунов Юрий - Белые розы
+004. Вирус - Попрошу тебя(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 28:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F48A0ABF3CFA690EC24C405F3018555ADCE217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103175   (887250) от 11.02.2017
+
+Newton Family - The Best Of (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 California Dreamin
+02 Santa Maria
+03 Adam, Almodj Csak Tovabb
+04 Hijack(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 02:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46EE175E46A0086DAB998D62179A5E4AD1098BF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995130   (886234) от 10.03.2016
+
+VA - Лучшие новинки. Non-Stop Весенний (2016) [MP3|256-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886234.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yanka - Skip A Little Love
+002. Shami Feat. Gidayyat - В Сердце У Меня
+003. Анна Добрыднева - Пасьянс
+004. Pitbull Feat. Bebe Rexha - This Is Not A Drill(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE7909937C295DFE179001F441A27647B52AEDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103347   (885658) от 12.02.2017
+
+Goombay Dance Band - The Best Of (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Born To Win
+02 Cherokee
+03 Eldorado
+04 Golden Veil(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75252F7408830B880DDC36ABB35573C2FB3E8AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372030   (885206) от 03.04.2020
+
+VA - Roller Disco: Remix And New Generation (2020) [MP3|320 Kbps] <Disco, Pop, Remix>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885206.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Steaming Jeans - Men's Figure Skating
+002. Sidiku Buari - Power To My People
+003. Miko Vanilla - Change Your Mind
+004. Captain Apollo - It Wasn't Right(   Читать дальше...   )Жанр: Disco, Pop, RemixПродолжительность: 12:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913D3F86E61203F4455183514DF3BD4BDC1305C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103845   (883642) от 13.02.2017
 
 VA - Снегопад новинок. Часть № 9 (2017) [MP3|256 Kbps] <Pop>
@@ -597,151 +742,6 @@ VA - A Day for Love: Special Valentines Day Selection. Acoustic Versions of Love
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C663D72E3B908ACB4D413FF53759D6870F4B20B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104178   (880153) от 15.02.2017
-
-VA - Дискотека зимних дорог. Индустрия поп музыки. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880153.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Катерина Красильникова - Пусть Станет Раем 3:34
-002. Анна Уайборн - Мечта 3:38
-003. Николаос Feat. Кристина - Каждую Ночь 3:58
-004. Женя Вилль - Что Ты Наделал 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B818D9479C13B1DF46D05506E0F179CAE83EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104079   (880038) от 15.02.2017
-
-VA - Только хиты. Русский сборник на Hit FM. Версия № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880038.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ксения Луговая - Мать Жены Моего Брата 3:02
-002. Mainstream One - Пьяная 2:53
-003. Митя Фомин Feat. Fomka - Мобилка 2:52
-004. Дискотека Авария & Филипп Киркоров - Яркий Я 3:28(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51B8672D6EA6E1FFF5D3D154423D8C48FEDD95D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373346   (879933) от 06.04.2020
-
-Smokie - 100% Smokie (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Think You Know How to Love Me
-02. Living Next Door to Alice
-03. It's Your Life
-04. Don't Play Your Rock 'N' Roll to Me(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0667662AE92EB5C13305A707E10ABDADC502EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996310   (879400) от 14.03.2016
-
-VA - Оп-оп... Послушай поп (2015) MP3 (2015) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lx24 - Сегодня Пьяным Буду Вновь
-02. Mario Jefferson Feat. Jojo - Disaster
-03. Mark Sixma - Adagio For Str0ngs
-04. Master Spensor & Leila - Сила Любви(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D09552AA1499FFC5E54224B7365A05B90D2F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996685   (878985) от 14.03.2016
-
-VA - Популярный хитовый музыкайф. 100 хитов (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix Jaehn Feat. Jasmine Thompson - Ain't Nobody
-02. T-Killah - Доброе Утро
-03. Mozgi - Полицаи
-04. РЭЙ feat. Tonystar - Вселенная(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1544B01EA34948B2B8491060972AE67F5C13EB1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1732394   (52202) от 24.06.2024
+
+Lindsey Stirling - Duality (2024) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening, Electronic>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скрипачка Lindsey Stirling описывает свой последний альбом с метким названием Duality (Двойственность) как два альбома в одном. Идея этого названия заключается в том, что двенадцать треков Duality исходят, по словам американской артистки, из двух совершенно разных сторон ее самой. В результате получился самый разносторонний альбом Stirling за последние годы, в котором, (   Читать дальше...   )01. LEvil Twin (3:47)
+02. Eye of the Untold Her (3:40)
+03. Surrender (3:21)
+04. Serenity Found (4:23)(   Читать дальше...   )Жанр: Instrumental, Easy listening, ElectronicПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFF88EDED7E711B9BD73699CDB28317234582DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821202   (52092) от 02.10.2025
+
+Gallows Bound - Gallows Bound (2014) [MP3|320 Kbps] <Americana, Bluegrass, Country, Folk punk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Widow Woman
+02. The Damaged
+03. Sink in the Soil
+04. Dominion Flowers(   Читать дальше...   )Жанр: Americana, Bluegrass, Country, Folk punkПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A04D94860BEAD4A2ED2D7D69586C96C7CD220B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732453   (52029) от 25.06.2024
 
 Tom Holkenborg (Junkie XL) - Furiosa A Mad Max Saga OST (2024) OST [MP3|320 Kbps] <Techno,Ambient>
@@ -685,64 +743,6 @@ David Arkenstone - Fairy Fantasy (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1754DC70DC281ABF8D9085395C85291DFDEFC171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757688   (38926) от 29.10.2024
-
-Medwyn Goodall - Rhythm of the Ancients 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38926.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Following the Rhythm (5:26)
-2. The Dream (7:04)
-3. Pathfinding (6:22)
-4. Wise Woman (5:36)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88579F20CCAE15D3BF2A77C8A83E565BA62900E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758814   (38291) от 04.11.2024
-
-Олег Гребенкин - Русский век (2008) [FLAC|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		Любо, братцы, любо
-02		Ах, ты, степь широкая
-03		Две гитары, зазвенев...
-04		Ой, то не вечер...(   Читать дальше...   )Жанр: FolkПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC67DFC8655B2BBAE75364A4D5F936F05C2AF88
 ```
 
 https://mybot314.ru/tekegram_catalog/

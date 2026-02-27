@@ -1,3 +1,148 @@
+###  Публикация: 1566394   (211668) от 29.07.2022
+
+Yaki-Da - Compilation (2022) [MP3|320 Kbps] <Pop, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_211668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Better World
+02. Let Me
+03. A Small Step For Love
+04. Whatever It Takes(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4992130CC3B373ABABFF817F8BB7FD3E51673BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645429   (209308) от 09.07.2023
+
+VA - German Top 100 Single Charts 07.07.2023 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209308.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Udo Lindenberg & Apache 207 - Komet (2:47)
+002. Ski Aggu, Joost & Otto Waalkes - Friesenjung (2:26)
+003. Yung Yury & Damn Yury - TABU. (2:15)
+004. Luca-Dante Spadafora, Niklas Dee, Octavian, Peter Plate & Ulf Leo Sommer - Mädchen auf dem Pferd (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 04:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602BC7B897A08143667700273CF1C9844DD2421A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607567   (208925) от 27.01.2023
+
+VA - Workout Music 2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. twocolors - Heavy Metal Love (2:28)
+02. Glockenbach - Dirty Dancing (2:40)
+03. Felix Jaehn - Call It Love (2:34)
+04. MEDUZA - Bad Memories (2:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C90B74C02797877615E12634C08ADDA481433F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573274   (208873) от 05.09.2022
+
+VA - Вечеринка 'Ласковый Май' (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юрий Шатунов - Седая ночь (DJ Pressure Remix) (7:12)
+02. Ласковый Май Next - Goodbye Baby (4:07)
+03. Илья Гусев - А я всё жду (3:46)
+04. Семён Розов - Абонент недоступен (3:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D1D9C9C79516C0EF211C3AA651413F48AC1250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574489   (208825) от 05.09.2022
+
+VA - Pop Hits (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta - I'm Good (Blue) (2:55)
+02. Elton John - Hold Me Closer (3:22)
+03. James Hype - Ferrari (Oliver Heldens Remix) (3:08)
+04. Lizzo - About Damn Time (Purple Disco Machine Remix) (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04CDCB82ED9BA2379E24387F7F41D18BA7F39AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574444   (208796) от 06.09.2022
 
 VA - Workout Motivation (Retro Edition)[Mixed by Sergey Sychev ] (2018-2022) [MP3|320 Kbps] <Remix ,EuroDance ,90e ,80e>
@@ -600,151 +745,6 @@ VA - Pop 3 Remix NNM (2023) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADEBE046AC365B1329D7A38382E5D614B14EC969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645087   (195889) от 11.07.2023
-
-VA - Музыка для машины Vol.30 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aisha - Время Лечит (02:42)
-02. La Zarra Feat. & Katerina Stikoudi - Evidemment (Duet Version) (03:00)
-03. Besomorph Feat. & Mougleta - Heartbreak Fever (03:13)
-04. Rasa Feat. & Nlo - Нагуляться (02:46)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60C3DC4A38B70FAAB8C4BB1246D884CF9EE915B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647493   (195543) от 19.07.2023
-
-VA - Relax FM for a Good Evening 2 (2023) [MP3|320 Kbps] <Pop, Easy Listening>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lake Street Dive - Rich Girl (5:24)
-02. Ed Sheeran - Thinking out Loud (4:56)
-03. Aly & AJ - Slow Dancing (4:27)
-04. Luke Combs - Fast Car (4:25)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 03:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3AA02E1A7C5223084F4B7041E9A4B220C0F68D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648586   (195353) от 23.07.2023
-
-VA - Summer Hits (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mau P - Drugs From Amsterdam (5:23)
-02. Luis Fonsi - Despacito (4:41)
-03. SZA - Kill Bill (4:35)
-04. Sam Smith - Unholy (feat. Kim Petras) (4:35)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D020CBDE6335B769E9724F50B7EACB1D35FE448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648648   (195314) от 24.07.2023
-
-VA - Лето на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jax Jones feat. Calum Scott - Whistle (3:01)
-02. Amirchik - Молчание (2:55)
-03. Filatov & Karas - Мимо Меня (3:03)
-04. Dua Lipa - Dance The Night (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88E0F6144685F7B1BF16A011DF50759644E8D77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649909   (194892) от 31.07.2023
-
-VA - Свежий Русский Хит от ALEXnROCK часть 13 (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я небольшой почитатель современной поп музыки. Может что то зацепить, но выветривается очень быстро. Пока выбирал песни для сборника, переслушал много лажи. И ведь стараются, творят подобную шляпу. Музыки нет, есть звуки. Мужская лирика превратилась в примитивное нытье. Подростки непонятно что, мямлят дебильными голосами блеющих баранов, маты пихают везде. Подобное (   Читать дальше...   )01. Сергей Лазарев - Вкус Малины
-02. Ella - Танцевать
-03. Те100стерон - Нет Ответа
-04. Минаева feat. Егор Сесарев - Где Не Будет Слез(   Читать дальше...   )Жанр: PopПродолжительность: 04:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E3F55CB0B5176B0AD5607EF7DF6AD4342F7FE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

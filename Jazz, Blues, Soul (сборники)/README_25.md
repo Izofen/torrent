@@ -1,3 +1,32 @@
+###  Публикация: 1752495   (41909) от 30.09.2024
+
+VA - Smooth Jazz. Music Without Irritation (2024) [MP3|320 Kbps] <Smooth, Jazz, Downtempo>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41909.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Digo - Old Days - (01:32)
+ 002. Heimlich - Arcadia - (02:04)
+ 003. Serena Forni - Ecliptic Echo - (02:15)
+ 004. Jikuru - Drifting On Chords - (02:15)(   Читать дальше...   )Жанр: Smooth, Jazz, DowntempoПродолжительность: 09:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F41B7ECA12058A68723159EC3A72CEBAA719AEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752513   (41902) от 30.09.2024
 
 VA - Blues And Roll (2024) [MP3|320 Kbps] <Blues, Rock Blues>
@@ -716,35 +745,6 @@ VA - On top of THE BLUES (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FF981E2804AC674BE8A00FB081DF83DCBACE3C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768139   (21676) от 12.04.2025
-
-Eric Clapton - Compilation (1966-2024) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Ain't Gonna Stand For It (Reptile 2001)
-02. 32-20 Blues (Me & Mr. Johnson 2004)
-03. Angel (Old Sock 2013)
-04. Anyway The Wind Blows (& JJ Cale) (The Road To Escondido 2006)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 06:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AAC3494885BC95B056CAAB5BB650A3AC1EE0D20
 ```
 
 https://mybot314.ru/tekegram_catalog/

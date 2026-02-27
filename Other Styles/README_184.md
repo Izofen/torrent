@@ -1,3 +1,61 @@
+###  Публикация: 1699250   (117968) от 12.02.2024
+
+Kevin Costner & Modern West - Turn It On (2010) [FLAC|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117968.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Turn It On
+2. Ashes Turn to Stone
+3. Moon So High
+4. Maria Nay(   Читать дальше...   )Жанр: CountryПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967DBF74FFD31A69AE6F7C22A17108FCF4351086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697694   (117890) от 13.02.2024
+
+VA - Atomic Heart, Vol.4 (Original Game Soundtrack) (2024) [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Progressive, Electronic, Metal>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_117890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Братство Атома, BassnPanda & Квашеная - Звенит январская вьюга [00:03:17]
+02. Альянс, Братство Атома & BassnPanda - На Заре [00:03:30]
+03. Geoffplaysguitar - Cookie Crumbler [00:04:22]
+04. Geoffplaysguitar - Goose Run [00:05:31](   Читать дальше...   )Жанр: Breakbeat, Progressive, Electronic, MetalПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520A8EA59285ED544EC63E4F6D8B0AD39372919E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698383   (117805) от 13.02.2024
 
 Shindhu (Шинду, Sri Chinmoy) - Eternity’s Dream (Мечта Вечности) (2001) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
@@ -686,64 +744,6 @@ Saxophone Dreamsound - Today's Top Hits on Saxophone (2022) 2CD [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A384097BCEAE7DD1615530201BD3D1D2D1A5F19C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720488   (110325) от 03.05.2024
-
-VA - Nomadica 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juantxo Munoz & Robric & Tibetania - Desert Moon (Original Mix) (6:42)
-02. DJ Arte & Alsur & Tibetania feat. DJ Mell - Eunoia (Original Mix) (5:07)
-03. Juantxo Munoz & Robric & Tibetania - Oman (Original Mix) (6:22)
-04. Indiano & Tibetania - White Love (Original Mix) (7:18)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD09ABE447896D9B65E5D806A2DA0214451CD84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720612   (109889) от 09.05.2024
-
-El Mental - Стакан наполовину дичь, Часть 1-2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Водил меня Серёга на капище Сварога [00:03:03]
-02. Я как Дичеслав (Из былины) [00:02:21]
-03. Про короля [00:02:14]
-04. Ярость топора [00:04:02]Жанр: Folk RockПродолжительность: 2 CD, 00:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B0C900CF92DC58C92668DC371AFE5652EE9D22
 ```
 
 https://mybot314.ru/tekegram_catalog/

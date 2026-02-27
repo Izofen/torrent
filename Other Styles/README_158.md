@@ -1,3 +1,61 @@
+###  Публикация: 1339199   (266874) от 18.11.2019
+
+Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Оригинальный саундтрек / Делюкс версия) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - Introduction (01:00)
+02. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - The Northuldra (02:36)
+03. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - Sisters (01:06)
+04. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - Exodus (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429B54DB55C4BB228E540228631C7C832DE9AF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339194   (266868) от 18.11.2019
+
+Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motion Picture Soundtrack) (2019) Deluxe Edition [FLAC 2.0|96/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christophe Beck - Introduction (01:00)
+02. Christophe Beck - The Northuldra (02:36)
+03. Christophe Beck - Sisters (01:06)
+04. Christophe Beck - Exodus (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF243289236070B24CFB99A7F2A3DF20FABC8F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266560   (266727) от 06.12.2018
 
 Simonetti, Morante, Pignatelli - Tenebre (1982) The Complete Original Motion Picture Sound Track, 1997, CD [MP3|320 Kbps] <Electronic, Disco, Stage & Screen>
@@ -685,64 +743,6 @@ Eva Cassidy - Acoustic (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7D2C59505D7D7DD9B3FF7F5E9803942AEB93237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192498   (263100) от 17.12.2017
-
-Gipsy Kings - Instrumental Best (1995) [FLAC|Lossless|image + .cue] <Flamenco, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inspiration (3:47)
-02. Ritmo De La Noche (3:33)
-03. Luna De Fuego (3:45)
-04. Pharaon (4:07)(   Читать дальше...   )Жанр: Flamenco, InstrumentalПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83575BD258EB493AA39A895053676A41618C9519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340462   (262918) от 26.11.2019
-
-Seymour Light Orchestra - That Ole Devil Called Love (1987) [FLAC|Lossless|image + .cue] <Instrumental, Ballad, Contemporary>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Smile Without You - Barry Manilow (3:15)
-02. Crying - Joe Melson (3:06)
-03. First Time Ever I Saw Your Face - Joe Melson (3:23)
-04. Hard to Say I'm Sorry - Joe Melson (2:59)(   Читать дальше...   )Жанр: Instrumental, Ballad, ContemporaryПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA80903DFB42EBE2CD64FB46B930B584ACA79DE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

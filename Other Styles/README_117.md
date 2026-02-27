@@ -1,3 +1,65 @@
+###  Публикация: 539369   (504867) от 28.08.2012
+
+Mandala - 3 albums (2003-2009) [MP3|160-320 кб/с]<Relax, Meditative, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504867.jpg" />
+</div>
+
+
+###  Подробнее
+
+(30:03) 1. Raga Jhinjhoti
+(27:30) 2. Raga DarbariЖанр: Relax, Meditative, InstrumentalПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9AE7003FFBB5955B30AB2D377EFB9579781A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538375   (504856) от 28.08.2012
+
+Red Indian Chill - Shaman (2007) [MP3|~245 кб/с (V0)]<Native American, Ethno, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Medicine Power
+2. Wilderness
+3. Chief White Bears Trance Dance
+4. Red Indians Right To Live
+5. Wolfsong
+6. Choctaw Shadownese Song
+7. Medicine Energy PowWow
+8. Mother Earths Tartaruga Song
+9. Medicine Mans Other Room
+10. Hinayana Vision(   Читать дальше...   )Жанр: Native American, Ethno, Ambient, New AgeПродолжительность: 01:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF78188E3092BF3BC1A6537B68EB49CE7B57820F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538006   (504839) от 28.08.2012
 
 Ethereal Pilgrim - Free Diving (2012) [MP3|192 кб/с]<New Age, Enigmatic, Ambient>
@@ -730,67 +792,6 @@ VA-New Age Style - Mystic Lounge (2012) [MP3|320 кб/с]<New Age, Tribal, PsyCh
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE5D5426D2892AD9B090933DAD465388BCA0B699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541946   (499121) от 02.09.2012
-
-David Hicken - 3 albums (2007-2008) [MP3|192, 320 кб/с]<New age, Instrumental, Relax, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499121.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:07) 01. Faylinn
-(4:08) 02. Rhoslyn
-(4:31) 03. Titania
-(3:47) 04. Oberon
-(4:29) 05. Ellette
-(4:28) 06. Rusalka
-(3:49) 07. Donella
-(4:06) 08. Alberich
-(3:40) 09. Arethusa
-(3:43) 10. Lorelle(   Читать дальше...   )Жанр: New age, Instrumental, Relax, PianoПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629E9B7E0AC6830E04553DB96DEDAC9D0B265B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138501   (498763) от 04.09.2009
-
-Iasos - 9 albums (1975-2001) [MP3|256-320 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New ageПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

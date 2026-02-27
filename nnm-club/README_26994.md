@@ -1,25 +1,25 @@
-###  Публикация: 1819207   (1590) от 21.09.2025
+###  Публикация: 1818795   (1956) от 19.09.2025
 
-VA - Tanzlokal-Musik - Premium Playlist (int) [b003, Bonus] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+VA - Dancefloor Sessions, Vol. 04 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1590.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Bob Marley - Bad Boys (Arefiev Remix) (Radio Edit).mp3
-002. Boba - Redbone (Kvinn Remix).mp3
-003. Bobby Farrell ft. Monica Bay - Gotta Go Home (Original mix).mp3
-004. Bobina - Invisible Touch (Dmitry Glushkov Remix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 08:54:14
+01. Wgnr & Wegner - Step By Step 02:53
+02. Mbnn - Neon Skies (Extended Mix) 05:16
+03. One Man Sound & Brooke Lee - Don't Stop The Music (Extended Mix) 04:47
+04. The Man With The Oranges Eyes - Can You Feel It? (Retro Festival Mix) 03:18(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:35:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAC2D74636EBB855DDB971F817223D77747D822B
+magnet:?xt=urn:btih:6E76956000444E21C93C8F8667D9A7C5514F1417
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,229 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819029   (1589) от 21.09.2025
+###  Публикация: 1818941   (1955) от 19.09.2025
 
-VA - Tanzlokal-Musik - Premium Playlist (int) [a008, Bonus] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погружайтесь в атмосферу Buddha-Bar: танцуя, лежа на диване с закрытыми глазами, медитируя на полу или слушая фоном.
-P.S. Раздачи из серии Premium Playlist - симбиоз жанров: Chillout/Lounge, Dance, EDM, New Age, Pop, Folk, Alternative/Indie, Ballads, Surf, Classical Crossover (Neoclassical, Operatic Pop), Instrumental, Easy Listening, Retro, Oldies etc.001. At 1980 - Oblivion.mp3
-002. Ata Oztuna - I Feel.mp3
-003. Atakan Celik - Devran (Mustafa Cantekin 8th March International Women's Day Remix).mp3
-004. Atakan Eser - Changing Time.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 08:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFAE2A54A40B4F2F696C671FC45DDC45E431BB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819199   (1588) от 21.09.2025
-
-Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы забытых голосов [2011, Movie] DVDRemux 576p raw+rus
-
->>Аниме разное
->>Аниме DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Асуна живет с вечно пропадающей на работе матерью и после школы любит забираться на скалу, чтобы послушать радио, доставшееся от умершего отца. Однажды в этом своем секретном месте она знакомится с загадочным юношей Сюном, который говорит, что пришел из далекой страны Агартхи. Эта встреча становится началом полного приключений путешествия в волшебный мир, где (   Читать дальше...   )Производство: CoMix Wave FilmsЖанр: приключeния, фэнтeзи романтикаОзвучка: Original (Commentary)Язык озвучки: Японский и РусскийСубтитры: Русские by Reanimedia (Полные | Надписи | Комментарии)Продолжительность: 111 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBC2899B123718D5EBF6BBD3FE9F294E34C0D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819377   (1587) от 21.09.2025
-
-Шрифты - GGBotNet - Delta Block Font [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Delta Block Font содержит 2 стиля (курсивный и обычный) и 534 глифа.
-Шрифт выполнен в стиле курсива с наклоном влево.
-Этот шрифт лицензирован по лицензии Creative Commons Zero v1.0 Universal.
-Материал раздаётся с официальной документацией.Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A896B7803AAA4E5DC74686928791A23A371374BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819303   (1586) от 21.09.2025
-
-Lolita (Edith "Ditta" Einzinger) - Sailor, Sailor And Lolita's Greatest Hits (1961) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1586.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sailor (Your Home Is The Sea)
-A2 La Luna (The Moon)
-A3 Lieber Jonny, Komm' Doch Wieder (Paper Roses)
-A4 Souvenir D'Amour (Memory Of Love)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDC18F99BB11232D658BE3BA9C7636040F7E81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819365   (1585) от 21.09.2025
-
-Robin Ross - Robin Ross & The Bluesberry Jam (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  High Time (2:44)
-02.  Restless (3:20)
-03.  All Talk (3:51)
-04.  Good Boy (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF96087E408DA4C143129476ED730EBF7C951074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819316   (1584) от 21.09.2025
-
-Damiano David - FUNNY little FEARS (DREAMS) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Talk to Me (feat. Tyla, Nile Rodgers) [3:14]
-02 - Cinnamon (feat. Albert Hammond Jr) [2:25]
-03 - Naked [2:38]
-04 - Mysterious Girl [3:22](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4690E00FAE75D2C829B8582977AC567ADEF1DFB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819364   (1583) от 21.09.2025
-
-Mike Tramp - Songs Of White Lion, Vol. III (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dirty Woman (3:35)
-02.  Warsong (6:06)
-03.  Fight To Survive (5:05)
-04.  She's Got Everything (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142B6E618329D132EAD8EE6FF839BBC34916B0E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819281   (1582) от 21.09.2025
-
-Take it Down - Культ (2025) [MP3|320 Kbps] <technical deathcore>
+Electric Land - Love 67 (2025) [MP3|320 Kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1582.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 - В пустоту [00:04:31]
-2 - Культ [00:05:00]
-3 - Один шаг [00:04:39]
-4 - Прибытие [00:04:48](   Читать дальше...   )Жанр: technical deathcoreПродолжительность: 00:34:33
+01 - Scars on the Hearts [00:04:04]
+02 - (No More) Mr. Misunderstood [00:03:00]
+03 - Low Winter Sun [00:04:03]
+04 - Supersonic Baby [00:04:26](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A43C7560BED2E605E22561B701BC0DEF9D74D122
+magnet:?xt=urn:btih:CD5F1E1A8B559EAA0563034C46AE5EF2207114AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,54 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819360   (1581) от 21.09.2025
+###  Публикация: 1818808   (1954) от 19.09.2025
 
-Few Miles On - Mother Lode (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  So Lonely (3:34)
-02.  She Might Be (4:34)
-03.  Mother Lode (4:11)
-04.  Second Hand Blues (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1D6A902387BEA257277B6EC8C1AE5FE1379350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818996   (1580) от 21.09.2025
-
-Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных слов [2013, Movie] DVD9 480p raw+rus
+Byousoku 5 Centimeter | 5 Centimeters per Second | Пять сантиметров в секунду [2007, Movie] DVDRemux 576p raw+rus
 
 >>Аниме разное
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1580.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15-летний Такао Акидзуки словно бы родился слишком поздно – он не любит токийскую суету, не особо ценит блага цивилизации, а на жизнь мечтает зарабатывать, став обувным мастером. Старшую школу Акидзуки тоже считает бессмысленной, потому не упускает случая пропустить уроки дождливым утром – ведь в парке в это время безлюдно, и можно спокойно насладиться природой, (   Читать дальше...   )Производство: CoMix Wave FilmsЖанр: романтика, драмаОзвучка: Original 2.0Язык озвучки: Японский и РусскийСубтитры: Русские by Reanimedia (Полные и Надписи)Продолжительность: 46 мин.
+"Отрывок о цветущей сакуре", "Космонавт" и "5 сантиметров в секунду"...
+Три главы одной простой и точной истории о человеческих отношениях.
+Зарисовки о нашем мире потерявшем веру в чудо, но ещё не лишившемся мечты.
+(   Читать дальше...   )Производство: CoMix Wave FilmsЖанр: романтика, драмаЯзык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи) by ReanimediaПродолжительность: 61 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68EFB10A6A64A7D19C89505241EB9B7218AA4D86
+magnet:?xt=urn:btih:8C01A06E0199F7C403545113E66D259412C53B46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,141 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819331   (1579) от 21.09.2025
+###  Публикация: 1818959   (1953) от 19.09.2025
 
-Чудо техники с Сергеем Малозёмовым (21.09.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правда ли, что выгоднее покупать дом-лодку вместо квартиры и насколько безопасно жить на воде.
- Инноваторы из Калифорнии сделали компактный домашний принтер для еды.
- Ученые из Японии предложили новый метод борьбы с желтыми пятнами подмышками.
- 5 сомнительных товаров! Крем с человеческой плацентой, заморозка лишнего жира на диване и уколы красоты: все это обещает заменить (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059E8ACCF3E2FF7DE5CC93590509C16C9B16846D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819368   (1578) от 21.09.2025
-
-Sleepwell Citizen - This Is Only A Test (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro (1:11)
-02.  Thunderheart (2:35)
-03.  Men, Women, and Dogs (5:33)
-04.  Double Helix (4:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAE3BA81F5B03A1533E2EE3183A4F46EA1BB9BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819246   (1577) от 21.09.2025
-
-Шрифты - Creative Market - Kinsley - Modern Elegant Sans Serif - 92040958 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт Kinsley отличается чёткими линиями и элегантным дизайном, излучающим уверенность. Он идеально подходит для брендинга высококачественных продуктов и услуг, стремящихся к вневременной и изысканной эстетике.Формат: OTF, TTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C22EC19A18BD3436170AFB650C27CD46ECA46B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819355   (1576) от 21.09.2025
-
-Daisychain - All In A Name (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Shadowfax (3:42)
-02.  G String (3:01)
-03.  Eve (2:09)
-04.  Rivers (3:49)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C994CB40A96B8EFF4E201BDAF971E648039D5D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819369   (1575) от 21.09.2025
-
-Jelusick - Apolitical Ecstasy (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+Arjen Anthony Lucassen - Songs No One Will Hear (2025) [MP3|320 Kbps] <Prog Rock, Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1575.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jaws Of Life [00:04:44]
-02. Power To The People [00:04:01]
-03. Hangman [00:03:53]
-04. Seasons [00:04:35](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:44:05
+01 - The Clock Ticks Down (No Narration) [00:06:47]
+02 - Goddamn Conspiracy (No Narration) [00:04:41]
+03 - The Universe Has Other Plans (No Narration) [00:05:31]
+04 - Shaggathon (No Narration) [00:02:45](   Читать дальше...   )Жанр: Prog Rock, Progressive MetalПродолжительность: 00:46:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96FD28F14F4931C99FDE64C2ACC1C8E0A62E1901
+magnet:?xt=urn:btih:F7DAC6F08EDD9BC02CE7B1DC85AD6413F7A93EDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -454,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819350   (1574) от 21.09.2025
+###  Публикация: 1818963   (1952) от 19.09.2025
 
-Band Of Friends - Ballroom Of Dreams - Band Of Friends - Ballroom Of Dreams (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Clara Mae Hollins & The Royal Blues - Clara Mae Hollins & The Royal Blues – Blues & Soul Anthology (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1574.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  In Too Deep (5:34)
-02.  Stand Your Ground (4:54)
-03.  Under The Gun (4:13)
-04.  When You Lose A Friend (4:22)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:55
+01.  Heartbroken Blues (4:21)
+02.  Drown My Feelings (3:02)
+03.  Heavy Heart (2:47)
+04.  It's Gonna Rain Again (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E526245EFDBEDF8015442F080A8C7D0D20B5F13
+magnet:?xt=urn:btih:3C1E361BE7A4AA87D7117754B08B906E7E897C36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -483,169 +143,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819161   (1573) от 21.09.2025
+###  Публикация: 1818930   (1951) от 19.09.2025
 
-Sakura - Матрос на стройке (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Загляни в глубину [00:04:24]
-02. Позывные [00:04:16]
-03. Время придет [00:04:34]
-04. Эго в агонии [00:04:43](   Читать дальше...   )Жанр: Indie, Alternative RockПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0707EF2B626C1701F2A605A59CABD2F4837F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819352   (1572) от 21.09.2025
-
-Brandon Isaak - Walkin' With The Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Walkin' With The Blues (4:12)
-02.  Good and Blue (4:14)
-03.  Hold Me Baby (3:22)
-04.  Forever And A Day (4:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A124B10969C9AE647018B4D66F7334399814F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819349   (1571) от 21.09.2025
-
-Bad Wolves - Die About It (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Metal, Alt.Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro (1:04)
-02.  Bad Friend (3:31)
-03.  Die About It (3:31)
-04.  Savior (2:59)(   Читать дальше...   )Жанр: Alt.Metal, Alt.Rock, Hard RockПродолжительность: 01:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE794F9986715206620F4275A2614EF85B20CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819262   (1570) от 21.09.2025
-
-Ui Kits - UI8 - Travela - Travel & Booking Mobile App UI Kit [FIG]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Travela — это комплексный набор пользовательского интерфейса, призванный ускорить разработку вашего следующего мобильного приложения для путешествий и бронирования.
-
-Он отличается понятным и удобным интерфейсом и ориентирован на бесперебойную навигацию, охватывая все аспекты пользовательского пути: от поиска пункта назначения и рейсов/отелей до безопасного бронирования (   Читать дальше...   )Формат: FIG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185E5A28B11270F3CCEF96CF370CDCF1D479CB79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819321   (1569) от 21.09.2025
-
-Damiano David - FUNNY little FEARS (DREAMS) (2025) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Talk to Me (feat. Tyla, Nile Rodgers) [3:14]
-02 - Cinnamon (feat. Albert Hammond Jr) [2:25]
-03 - Naked [2:38]
-04 - Mysterious Girl [3:22](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202D78541E07D69C3427EEF34B2B07B5723F9176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819263   (1568) от 21.09.2025
-
-Пресеты - Splice  - Serum 2 Dreampop [SerumPreset]
+Звуковые библиотеки - Samy Beatz - AfroHits [WAV]
 
 >>Материалы для мультимедиа и дизайна
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1568.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эти тщательно проработанные пресеты Serum 2 передают неземную привлекательность многослойных и эффектных дрим-поп-ландшафтов. Эти звуки, вдохновлённые шугейзом, пост-панком и инди-попом, отличаются сочными гитарными партиями, варп-басом, тёплым ленточным фуззом, ретро-синтезаторами, а также обилием реверберации и гитар с задержкой. Если вы ищете атмосферную текстуру, (   Читать дальше...   )Формат: SerumPreset
+AfroHits | Набор ударных инструментов Afrobeat от Samy Beatz и EmeraldP.
+
+AfroHits поможет вам ускорить рабочий процесс и подарит массу вдохновения для следующего бита. Используйте эти высококачественные сэмплы ударных, сбивки, лупы ударных и мелодий, чтобы вывести свой трек на новый уровень!Формат: WAV
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F3A1E06BF8411BDA16E1E50CA35B712A05B1BB4
+magnet:?xt=urn:btih:BCDEFC32A9D09DD3C14A9679E5BA842252795664
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,25 +171,165 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818995   (1567) от 21.09.2025
+###  Публикация: 1818885   (1950) от 19.09.2025
 
-Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных слов [2013, Movie] DVDRemux 480p raw+rus
+Sins Of Omission - Studio Albums (2 releases) (1999-2001) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sins Of Omission - рок-группа из Стокгольма, Швеция. Образовалась в 1996 году1999 - The Creation
+2001 - Flesh On Your BonesЖанр: Melodic Death MetalПродолжительность: 01:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D73380091BA6939F041E1BE8C65A1D1BA970BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818866   (1949) от 19.09.2025
+
+VA - Ori Uplift - Uplifting Only Episode 658 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cedric Paul - Aurora (Intro Mix)
+02. Sergey Nevone & Simon O'Shine - Apprehension (Orchestral Uplifting Classic)
+03. Trance Classics & Esmee Bor Stotijn - Heaven Is A Place Inside
+04. Tycoos & Mike Zaloxx with Sharon Valerona - Dive Into You(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A14F71DE7168BEC2771643ECAC994AC7FB3417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818947   (1948) от 19.09.2025
+
+Аста Нильсен. По закону / Nach dem Gesetz / Efter Loven (1919) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще одна встреча с Астой Нильсен. Киноведы говорят, что создатели фильма находились под впечатлением от творчества Ф.М. Достоевского. Не знаю, можно ли утверждать это наверняка, но вполне возможно. По вопросам поднимаемым в фильме, по настроениям, по идеям. Да и прямой намек на это есть - в одной из сцен героиня читает книгу Достоевского под названием "Раскольников" (   Читать дальше...   )Производство: Германия / Cserépy-Film Co. GmbHЖанр: драма, криминал, немое киноРежиссер: Вилли ГрюнвольдАктеры: Аста Нильсен, Бернхард Гёцке, Теодор Лоос, Отс Толлен, Фриц Хартвиг, Джорджина Собеска,  Вилли Кайзер-Хейл, Гуидо Херцфелд, Генри Питерс-АрнольдсПеревод: немой с интертитрами (Субтитры: голландские (интертитры), русскиеПродолжительность: 01:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167F3B4ECDF95B8995F3206AB4374241561BEA6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818955   (1947) от 19.09.2025
+
+Ben Rice & the PDX Hustle - Fallen Angel (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Good Lord Bad Lord (4:44)
+02.  Get Down (5:16)
+03.  Even on a Good Day (5:33)
+04.  Trust (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F993C5B230CDBDBD7F25F43472DF5C1CB04BF87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818973   (1946) от 19.09.2025
+
+Arjen Anthony Lucassen - Songs No One Will Hear (No Narration) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog Rock, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Clock Ticks Down (No Narration) [00:06:47]
+02. Goddamn Conspiracy (No Narration) [00:04:41]
+03. The Universe Has Other Plans (No Narration) [00:05:31]
+04. Shaggathon (No Narration) [00:02:45](   Читать дальше...   )Жанр: Prog Rock, Progressive MetalПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB9BE3B8A61601A3D579BEE7E96D44BBAF47B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818954   (1945) от 19.09.2025
+
+Summer Wars | Летние Войны [2009, Movie] DVDRemux 480p raw+rus
 
 >>Аниме разное
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1567.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15-летний Такао Акидзуки словно бы родился слишком поздно – он не любит токийскую суету, не особо ценит блага цивилизации, а на жизнь мечтает зарабатывать, став обувным мастером. Старшую школу Акидзуки тоже считает бессмысленной, потому не упускает случая пропустить уроки дождливым утром – ведь в парке в это время безлюдно, и можно спокойно насладиться природой, (   Читать дальше...   )Производство: CoMix Wave FilmsЖанр: романтика, драмаОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: Русские by Reanimedia (Полные и Надписи)Продолжительность: 46 мин.
+В недалёком будущем почти треть планеты переселилась в виртуальную «страну ОЗ», где миллионы аватаров день за днем играют, общаются, торгуют, работают и даже творят высокую политику. Многие чувствуют себя в ОЗ куда увереннее, чем «в реале», и среди них 17-летний Кэндзи Койсо – типичный юный математик и программист. В свои последние летние каникулы Кэндзи привычно (   Читать дальше...   )Производство: MadhouseЖанр: комeдия, романтикaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: Русские by Reanimedia (Полные и Надписи)Продолжительность: 115 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:759AA18AF77A6F24901A1AABC1EA42D72A096705
+magnet:?xt=urn:btih:FA486416A2B63A521268AA94ED4E32DCA9E54F64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,28 +337,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819344   (1566) от 21.09.2025
+###  Публикация: 1818958   (1944) от 19.09.2025
 
-7 Names Remain - Malcolm Ave (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+Catfish John Tisdell - Rust and Rain (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1566.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Indigo Sky (4:49)
-02.  Peace of Mind (5:08)
-03.  Rescue Me (4:40)
-04.  Let's Run Away (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:12
+01.  Don't Ask Me Why (3:12)
+02.  Rust and Rain (4:34)
+03.  Rise Like Thunder (3:38)
+04.  Whiskey on My Mind Tonight (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8139C8D9F76CD0CBE438C800815F6A08E0225B66
+magnet:?xt=urn:btih:3FC8E159CF8C7D1B9DECA974BFEE9AFFDD7019CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,28 +366,342 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819346   (1565) от 21.09.2025
+###  Публикация: 1819096   (1943) от 20.09.2025
 
-Alan Arena - Deceived (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Ведьмина доска / Witchboard (2024) WEB-DL [H.264/1080p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1565.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Raised on Radio (3:05)
-02.  Believe in Yourself (4:35)
-03.  Deceived (3:18)
-04.  Big Black Cat (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:08
+Новый Орлеан. Готовясь к открытию кафе, Эмили и Кристиан находят старинную спиритическую доску, пробуждающую в Эмили одержимость духом Королевы ведьм. Кристиан пытается помочь невесте, ведь с каждым колебанием маятника начинается опасная игра, на кон которой поставлена её душа. За помощью он обращается к медиуму, не зная о его тайной связи с ведьмами.Производство: США / A-Nation Media, Gala FilmЖанр: ужасы, детективРежиссер: Чак РасселАктеры: Мэдисон Айсмен, Аарон Домингес, Мелани Джарнсон, Чарли Тахэн, Антония Деспла, Джейми Кэмпбелл Бауэр, Давид Ла Эй, Виктория Ленхард, Райли Расселл, Каден ВуПеревод: Дублированный (Dragon Money Studio)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:52:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA261768ACFD821354D57F728B0266903DF23050
+magnet:?xt=urn:btih:12DC066CA6A25600BCB2854A48B76901E5DEE75C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818936   (1942) от 20.09.2025
+
+Бункер для богачей / El refugio atomico / Billionaires' Bunker (2025) WEB-DLRip [H.264] (сезон 1, серии 1-8 из 8) Videofilm Int.
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа миллиардеров с семьями укрывается в роскошном бомбоубежище перед началом глобальной ядерной войны. Пока они наблюдают за уничтожением мира через экраны телевизоров, между двумя семьями вновь вспыхивает давняя вражда.Производство: Испания / Vancouver Media, Netflix StudiosЖанр: триллер, драма, криминалРежиссер: Давид Баррокаль, Хесус Кольменар, Хосе Мануэль КравиоттоАктеры: Хоакин Фуррьель, Наталия Вербеке, Мирен Ибаргурен, Карлос Сантос, Алисия Фалько, Самуэль Лопес, Алекс Вильясан, Монтсе Гуайяр, Омар Фернандез, Агустин ОтонПеревод: Дублированный (Videofilm Int.)Язык озвучки: РусскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67FB5105F1869332DF1360181542165DC1397702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330654   (1941) от 20.09.2025
+
+Неизвестный солдат (1984) DVDRip (серии 1-3 из 3)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1941.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной повести А.Рыбакова.
+Продолжение телефильма "Каникулы Кроша". Не попав в институт, Сергей Крашенинников приезжает к деду в небольшой городок и начинает работать в дорожной строительной бригаде. В ходе работ строители обнаруживают солдатскую могилу. Сергею поручают выяснить личность погибшего. Он начинает поиск...Производство: СССР / ТО "Экран"Жанр: драма, приключения, экранизацияРежиссер: Григорий Аронов, Вадим ЗобинАктеры: Василий Фунтиков, Николай Гринько, Людмила Новосёлова, Роберт Спиричев, Юрий Оськин, Иван Шабалтас, Игорь Класс, Павел Белозёров, Артур Богатов, Эрнст Романов и др.Продолжительность: 01:06:54 + 01:09:10 + 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE392D69ADCB9E739B67D5534309379A45CA2C0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796570   (1940) от 20.09.2025
+
+StarVaders (2025) [Ru/Multi] (1.1.1) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторжение пришельцев разбило вдребезги защиту Земли. Пилот, теперь судьба всего человечества зависит от тебя. Пришло время использовать силы мощного робота и побороть вторжение - карта за картой. StarVaders совмещает тактические сражения на поле, поделенном на клетки, и построение колоды. Станьте командиром боевого робота и помогите человечеству побороть вторжение (   Читать дальше...   )Тип издания: LicenseРазработчик: PengonautsЖанр: Приключенческие игры, Инди, СтратегииЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BFD2D9ADBBBB6E50D83D83D9C8DA9747973909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819092   (1939) от 20.09.2025
+
+Торнадо / Tornado (2025) BDRemux [H.264/1080p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британские острова, 1790 год. Банда жестоких грабителей преследует японскую девушку Торнадо и местного мальчика-воришку, которые украли у них золото. Когда бандиты убивают отца Торнадо, она, вооружившись самурайским мечом, решает отомстить.Производство: Великобритания / Tea Shop Productions, BFI Film Fund, National LotteryЖанр: Боевик, триллер, драма, вестерн, криминалРежиссер: Джон МаклинАктеры: Мицуки Кимура, Тим Рот, Джек Лауден, Такэхиро Хира, Рори Макканн, Нэйтан Мэлоун, Дуглас Расселл, Джек Моррис, Джоэнн Уэлли, Дэннис Оквера, Джэми МичиПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22ED4D3B01BE001D511E31DECB8502B098DF957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818841   (1938) от 20.09.2025
+
+Подсчитай дозу / Na plech / On a Plate (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой и амбициозный парень устраивается в компанию Мангаис. Вместе с работой ему дают жильё недалеко от офиса, но вскоре он понимает, что его новый дом — настоящий приют для десятков наркозависимых.Производство: Чехия / Bonton Film, Drive Film Factory, Magic Lab, BratriЖанр: комедия, криминалРежиссер: Мартин ПоглАктеры: Жан Хофман, Юлиус Орако, Karel Oracko, Marek Milko, Владимир Скултети, René Oracko, Томаш Жерабек, Роберт Небренский, Daniel Ferenc, Милан ШтайндлерПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, ЧешскийСубтитры: Чешские, АнглийскиеПродолжительность: 01:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27DC304250B6FA38092211E1D8C177A3E42288D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814849   (1937) от 20.09.2025
+
+Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3 Build 19869727/dlc) Repack seleZen [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Римейк выпущенной в 2004 году игры METAL GEAR SOLID 3: SNAKE EATER. Та же захватывающая история и увлекательный мир, но с абсолютно новой графикой и трёхмерным звуком, которые ещё лучше передают атмосферу джунглей. Вас ждёт невероятное сочетание выживания, экшена и стелса.Тип издания: RepackРазработчик: KONAMIЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014670F5E04A215BF045E7AF55E02B9074141DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252236   (1936) от 20.09.2025
+
+Убить Дрозда (2012) WEBRip [H.264/1080p] (серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихий, занудливый и недотепистый агент по недвижимости Ярик Дрозд даже не подозревал, что заурядная командировка, в которую его отправил шеф для покупки здания местного планетария, обернется для него сущим кошмаром. Ведь в тот же город в то же самое время для участия в том же аукционе отправился еще один Дрозд — спецагент силового ведомства — красивая, жестокая, (   Читать дальше...   )Производство: Россия / "Азъ-Арт Фильм", кинокомпания "Гера"Жанр: фантастика, комедияРежиссер: Дмитрий ГерасимовАктеры: Даниил Спиваковский, Анна Снаткина, Вадим Колганов, Александр Рапопорт, Ефим Банчик, Владимир Кошевой, Юрий Воробьев, Марина Куделинская, Александр Терешко, Владимир Щербаков и др.Продолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF68558BD32FD77923667A0E8384EAB0811FE2E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817752   (1935) от 20.09.2025
+
+Долгая прогулка / The Long Walk (2025) Telecine [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1935.jpg" />
+</div>
+
+
+###  Подробнее
+
+В стране проводится ежегодное соревнование «Долгая прогулка», в котором участвуют сто молодых людей. Они должны идти со скоростью выше трёх миль в час, после трёх нарушений участник выбывает. Главный приз - крупная сумма и исполнение всех желаний до конца жизни.Производство: США / Lionsgate, Manitoba Film and Video Tax Credit Program, Media Capital TechnologiesЖанр: триллер, драмаРежиссер: Фрэнсис ЛоуренсАктеры: Купер Хоффман, Дэвид Джонссон, Гарретт Вэрэйнг, Tut Nyuot, Чарли Пламмер, Бен Ван, Джордан Гонсалес, Joshua Odjick, Марк Хэмилл, Роман Гриффин ДэвисПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:49Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918971B719339A59BC2E7E3AA414B565DEC2D90E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817751   (1934) от 20.09.2025
+
+Долгая прогулка / The Long Walk (2025) Telecine [H.264/1080p] [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1934.jpg" />
+</div>
+
+
+###  Подробнее
+
+В стране проводится ежегодное соревнование «Долгая прогулка», в котором участвуют сто молодых людей. Они должны идти со скоростью выше трёх миль в час, после трёх нарушений участник выбывает. Главный приз - крупная сумма и исполнение всех желаний до конца жизни.Производство: США / Lionsgate, Manitoba Film and Video Tax Credit Program, Media Capital TechnologiesЖанр: триллер, драмаРежиссер: Фрэнсис ЛоуренсАктеры: Купер Хоффман, Дэвид Джонссон, Гарретт Вэрэйнг, Tut Nyuot, Чарли Пламмер, Бен Ван, Джордан Гонсалес, Joshua Odjick, Марк Хэмилл, Роман Гриффин ДэвисПеревод: Дублированный (звук с TS)Язык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:42:49Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017F3EDFB805053060AF497845FA8D9F97589085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 421060   (1933) от 20.09.2025
+
+Фрида / Frida (2002) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фриде было 20 лет, когда она вышла замуж за самого знаменитого художника Мексики Диего Риверу, немолодого, богатого и развратного. Пройдет всего несколько лет, и она завоюет Париж, а о его скандале с Рокфеллером напишут все американские газеты!
+Их многочисленные любовные романы не помешают им покорить мир, а вот смогут ли они укротить друг друга?!..Жанр: драма, мелодрама, биографияРежиссер: Джули Тэймор / Julie TaymorВ ролях: Сальма Хайек (Frida Kahlo), Альфред Молина (Diego Rivera), Валерия Голино (Lupe Marín), Эшли Джадд (Tina Modotti), Антонио Бандерас (David Alfaro Siqueiros), Эдвард Нортон (Nelson Rockefeller), Саффрон Берроуз (Gracie), Джеффри Раш (Leon Trotsky), Миа Маэстро (Cristina Kahlo), Амелия Запата (Maid), Алехандро Усигли (Professor), Диего Луна (Alejandro 'Alex') (   Читать дальше...   )Перевод: Профессиональный (полное дублирование)
+Оригинальная звуковая дорожка
+Профессиональный (многоголосый закадровый) -Субтитры: Русские (внешние *.srt)
+Английские (внешние *.srt)Формат: MatroskaКачество: BDRip-AVCПродолжительность: 02:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FDCCC1D91DC9461A1C8304A1F934E9644061843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714343   (1932) от 20.09.2025
+
+Wingspan  / Крылья (2020) [Ru/Multi] (283/dlc) License GOG [Special Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wingspan - стратегическая карточная игра про птиц, предназначенная для 1–5 игроков. Это официальное цифровое издание одноимённой настольной игры, получившей престижную немецкую премию Kennerspiel des Jahres как лучшая игра 2019 года. В этой игре Вы выступите в роли орнитологов, коллекционеров, знатоков и наблюдателей, желающих отыскать и приманить в природные заповедники (   Читать дальше...   )Тип издания: LicenseРазработчик: Monster CouchЖанр: Стратегии, Казуальные игрыЯзык озвучки: Английский, Польский, Китайский (упрощённый)Язык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7F2B7B9CCB5695A471D2BD648BF49D4D58CA14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466796   (1931) от 20.09.2025
+
+Кровавый четверг / Thursday (1998) BDRip [H.265/1080p] [10-bit] [GER Transfer]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_1931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший торговец наркотиками, прошедший через все круги ада, решает выйти на пенсию и забыть о своём тёмном прошлом. Переехав из Лос-Анджелеса в Хьюстон, он резко меняет свой имидж и в глазах окружающих становится обыкновенным гражданином, которого трудно заподозрить в чём-либо криминальном. Однако судьба готовит очередной, самый неожиданный сюрприз бывшему наркодилеру. (   Читать дальше...   )Производство: США / PolyGram Filmed Entertainment, Propaganda FilmsЖанр: боевик, триллер, драма, комедия, криминал, детективРежиссер: Скип ВудсАктеры: Томас Джейн, Аарон Экхарт, Паулина Поризкова, Джеймс ЛеГрос, Пола Маршалл, Майкл Джитер, Гленн Пламмер, Микки Рурк, Люк Хари, Бари К. УиллерфордПеревод: профессиональный многоголосый (R5, LostFilm, ОРТ), профессиональный двухголосый (НТВ+, Союз Видео, 1+1), авторский (Юрий Сербин, Юрий Живов, Дмитрий Пучков, Михаил Яроцкий, Сергей Визгунов)Язык озвучки: русский, украинский, английскийСубтитры: русские (full, SDH 18+), английские (full, SDH)Продолжительность: 01:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57C3A3311374981AD4D352C0AC7430AE185883E
 ```
 
 https://mybot314.ru/tekegram_catalog/

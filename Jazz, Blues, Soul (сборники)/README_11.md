@@ -1,3 +1,32 @@
+###  Публикация: 1131163   (708430) от 05.05.2017
+
+Steve Vai - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues Rock, Instrumental Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's a Fire in the House
+02. Little Wing
+03. The Crying Machine
+04. Love Blood(   Читать дальше...   )Жанр: Blues Rock, Instrumental RockПродолжительность: 02:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:932389191FAB44D062DD3B84AE1A8087D70B6CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287277   (705070) от 06.03.2019
 
 VA - Smooth Lounge Music In Boudoir (2019) [MP3|320 Kbps] <Smooth Jazz, Lounge>
@@ -716,35 +745,6 @@ VA - Modern Jazz Piano (2016) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CE64F158A43A9D2099A969E84FA3ED0452CB0AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292022   (646669) от 29.03.2019
-
-VA - Coming Back To You (2019) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZZ Top - Blue Jean Blues
-02. T. Rex - Lean Woman Blues
-03. Jimi Hendrix - Electric Church Red House
-04. Fleetwood Mac - Just The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 02:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:231AA0023F046136B2EE9ED414A06812D2A16FBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

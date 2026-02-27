@@ -1,3 +1,61 @@
+###  Публикация: 1588642   (191063) от 06.11.2022
+
+VA - Knockin' on Heaven's Door (1997) [FLAC|Lossless|image + .cue] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gedanken Ьber Das Meer (0:45)
+02. Knockin' on Heaven's Door (4:02)
+03. Love And Rockets (3:24)
+04. Silver Whale (Single Version) (3:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43F4DF302B64818B4141733306852335C9B1785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588749   (191061) от 06.11.2022
+
+VA - Ambient for Relaxation & Meditation Vol. 2 (2022) [MP3|320 Kbps] < Meditation, Relaxing, Spa Music, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_191061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skifi - Rainbow Catchers
+02. Yu Nothing - Gathering on the Island  (Day Dream Mix by Masa)
+03. Inerflaya - Osti Reisen
+04. Chris Hauer - Sweet Sun(   Читать дальше...   )Жанр: Meditation, Relaxing, Spa Music, New AgeПродолжительность: 03:45:26 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85235082E5D274F0ED26F89021D386E9EC64EACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588100   (191048) от 06.11.2022
 
 James Last - Ocean Drive (Easy Living) (2001) [FLAC|Lossless|image + .cue] <Instrumental>
@@ -687,64 +745,6 @@ Daft Punk - Трон: Наследие / TRON: Legacy (Original Motion Picture S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:603149A2D82FF324BC65320C6BE2B8E90EC8F133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665612   (180169) от 03.10.2023
-
-VA - The Orient Collective: Melodic Ethnic Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EASTERN WIZARD - The Mystic Lady (Mikhail Catan Remix) (6:56)
-02. Michael Simon - Umami (6:45)
-03. Michael Simon - Canzul (6:28)
-04. Mikhail Catan - Solace (OneRec Remix) (5:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638D67D18CE40A7F2589E0DDCE17300908839C31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666184   (180151) от 03.10.2023
-
-VA - The Orient Collective: Vimana (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hansonic - Streets of Khartoum (6:40)
-02. Ibrahim Babayev - Summer Memories (4:32)
-03. DaDa Sound Project - Obuada (6:55)
-04. 2 Sides Of Soul - Oriental Coffee (7:42)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF685A32DF8AA8E5105DCABEFB069D79EE72DC00
 ```
 
 https://mybot314.ru/tekegram_catalog/

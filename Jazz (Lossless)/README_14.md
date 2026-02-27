@@ -1,3 +1,293 @@
+###  Публикация: 1465878   (1018827) от 28.04.2021
+
+André (Andre) Manoukian - Les pianos de Gainsbourg (2021) [FLAC|Lossless|WEB-DL|tracks] <Chanson, Cool Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018827.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. La Javanaise
+2. L'eau A La Bouche
+3. Ce Mortel Ennui
+4. Black Trombone(   Читать дальше...   )Жанр: Chanson, Cool JazzПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF586F8590150F8F8597B095DED65E9A89E5448C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466024   (1018803) от 28.04.2021
+
+V.A. - Super Soul Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ray Charles – Come Rain or Come Shine
+02. Joshua Redman & Wallace Roney – The Sidewinder
+03. Harry Arnold, Quincy Jones & The Swedish Radio Studio Orchestra – Doodlin’
+04. Chris Connor & Maynard Ferguson – Black Coffee(   Читать дальше...   )Жанр: JazzПродолжительность: 02:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4E5D15CC830EB1245DB305AC88BA4BF1763C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466420   (1018592) от 29.04.2021
+
+VA - Simply Swing (2012) Box Set, 10 CD [FLAC|Lossless|image + .cue] <Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018592.jpg" />
+</div>
+
+
+###  Подробнее
+
+С этим воксетом происходили прям чудеса. Долгое время при риповании второй диск выдавал ошибку. И все мои танцы с бубном не приводили к успеху. И вот не так давно на одном из форумов я прочитал, что иногда новые диски нужно протереть тампоном, смоченным в водке, чтоб удалить заводскую пыль, иногда мешающую правильному воспроизведению диска. И, о чудо! После протирки (   Читать дальше...   )CD1:
+01. Nat King Cole - Route 66  (3:04)
+02. Count Basie - One O’Clock Jump  (3:04)
+03. Louis Armstrong - Jeepers Creepers  (2:41)(   Читать дальше...   )Релиз состоялся: февраль 2012 годаЖанр: Jazz, SwingПродолжительность: 07:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B29DF59320C4B8806F30F0F960FE3C56274C3E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466543   (1018445) от 30.04.2021
+
+VA - Jazzclub Highlihts: Night And Day (2010) Verve JazzClub, original recordings digitally remastered [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну куда же в Международный день джаза (ссылку см. ниже), да ещё и в 10-й, юбилейный без джазового релиза. На этот раз из собственных запасов представляю замечательный , спокойный и расслабляющий сборник джазовых мелодий, которые исполнили такие великие джазисты как Oscar Peterson, John Coltrane, Chet Baker, Stan Getz - собственно, здесь можно было бы перечислить (   Читать дальше...   )01. Paul Desmond - From The Hot Afternoon  (3:32)
+02. The George Shearing Trio - No Moon At All  (5:21)
+03. Oscar Peterson Trio - Happy-Go-Lucky (Aka Night Train)  (4:51)
+04. John Coltrane - Stardust  (10:43)(   Читать дальше...   )Тип издания: Original recordings digitally remasteredПроизводство: Boutique, Universal Music Group International – 06007 5330949 (Label Code: LC 10651)Жанр: Jazz, Smooth JazzПродолжительность: 01:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E0580DAF4D0D420F4D125710D2B830726C3C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466541   (1018441) от 30.04.2021
+
+Norah Jones - ‘Til We Meet Again (Live) (2021) Japan [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold, Cold Heart
+02. It Was You
+03. Begin Again
+04. Those Sweet Words(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97DD368B7E5CF25F338AD07C2069C60E86F5EC95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466737   (1018304) от 01.05.2021
+
+Diana Dors - Swingin' Dors (1960) 2012, Norma [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Point of No Return [2:20]
+02. That's How It Is [2:30]
+03. Let There Be Love [2:15]
+04. Namely You [2:28](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FBBFC3CB6FA482F1D0BE6EE695C2A39D129E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466850   (1018303) от 01.05.2021
+
+Stan Getz - Compact Jazz: Stan Getz with Strings (1992) [FLAC|Lossless|tracks + .cue] <Cool Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Rider (4:00)
+02. Nursery Rhymes for All God's Children (5:15)
+03. The Thrill Is Gone (5:03)
+04. Whisper Not (5:03)(   Читать дальше...   )Жанр: Cool JazzПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74AF5DD0F2F6969249CF22E608D1171137B241F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466987   (1018125) от 02.05.2021
+
+Dave Frishberg & Jim Goodwin - Double Play (1993) Arbors Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Russian Lullaby [3:29]
+02. Easy Come, Easy Go [4:15]
+03. There Ain't No Sweet Man That's Worth the Salt of My Tears [2:49]
+04. One, Two, Button Your Shoe [3:27](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D229C1196955F8F982D622524F5213473BAA3EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466991   (1018119) от 02.05.2021
+
+Bud Freeman - Swingin' With The Eel (1927 - 1945) 1998, ASV [FLAC|Lossless|tracks + .cue] <Swing, Dixieland, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. China Boy [2:49]
+02. Nobody's Sweetheart [3:11]
+03. Fare Thee Well [3:17]
+04. Crazeology [3:00](   Читать дальше...   )Жанр: Swing, Dixieland, Big BandПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D11B9E88B50BD1BBE86B0253972445DA4AB7930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467112   (1018093) от 02.05.2021
+
+VA - Verve JazzClub: I Love Jazz (2008) Box Set, 3 CD [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018093.jpg" />
+</div>
+
+
+###  Подробнее
+
+На известном трекере данный бокссет уже почти 11 лет находится в розыске в разделе Verve Jazzclub, а мы представляем одноклубникам его первыми в российском сегменте музыкальных клубов. Конечно, он заслуживает большого интереса не только для тех, кто уже полюбил джаз, но и для всех любителей хорошей и спокойной музыки. Может быть и новых имен в нем не так уж много, (   Читать дальше...   )CD1:
+01. Louis Armstrong - I Love Jazz  (2:24)
+02. Ella Fitzgerald - 'Deed I Do  (2:43)
+03. Antônio Carlos Jobim - Agua De Beber  (2:50)(   Читать дальше...   )Жанр: Jazz, CoolПродолжительность: 03:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B37935DC6BFBB5CA6210318A711201AC4BE534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466921   (1018091) от 02.05.2021
 
 Threestyle - Perfect Combination (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
@@ -455,296 +745,6 @@ Goat’s Notes - Machine (2020) [FLAC|Lossless|image + .cue] <Free Jazz, Free Im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4044EBC379D227FF5A7328D98AADD1E23406F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469444   (1016458) от 12.05.2021
-
-Djinn - Transmission (2021) [FLAC|Lossless|WEB-DL|tracks] <Free Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Ooze (05:53)
-02. Creator of Creation (07:47)
-03. Transmission (03:48)
-04. Nights with Kurupi (04:29)(   Читать дальше...   )Жанр: Free Jazz, Free ImprovisationПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C0FFAE5EE9BFC798F346B30694B9E32AC42742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468665   (1016437) от 12.05.2021
-
-Ella Fitzgerald & Louis Armstrong - Oldies Selection: Gold Records (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock, Extreme Female Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Fine Romance [00:03:51]
-02 - April in Paris [00:06:35]
-03 - Bess, You Is My Woman Now [00:05:24]
-04 - Can't We Be Friends [00:03:46](   Читать дальше...   )Жанр: Jazz Rock, Extreme Female Vocal JazzПродолжительность: 01:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D926A7DE2376ABD9B30986D38465EACC845C80F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469630   (1016305) от 13.05.2021
-
-Emmet Cohen - Future Stride (2021) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphonic Raps [3:08]
-02. Reflections at Dusk [5:12]
-03. Toast to Lo [6:42]
-04. Future Stride [5:54](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D177C0FAB1FC72C53ED7EB117EFF563D7B7AE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469832   (1016150) от 14.05.2021
-
-Bill Evans - The Secret Sessions: Recorded At The Village Vanguard (1966 - 1975) 8CD, 1996, Milestone [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016150.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Very Early [5:21]
-02. 'Round Midnight [7:59]
-03. One for Helen [6:20](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 09:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A50618CE85CCA64DB6C5BD27A0873D22B7C8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469950   (1016057) от 14.05.2021
-
-Frank Sinatra - Reprise Rarities - Vol. 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Dance
-02. The Second Time Around
-03. Moment To Moment
-04. In The Shadow Of The Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F28918974856DBA3AC8A0968EEE1B8FC432C57A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470051   (1015996) от 15.05.2021
-
-Robert Hohner Percussion Ensemble - Far More Drums (2000) [FLAC|Lossless|tracks + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ogoun Badagris (4:28)
-02. Staves (3:53)
-03. Drummers of Dagbon (3:11)
-04. Lift-Off (9:06)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A7FE1D72AB1397A8C13F05C8CEC82550EC8173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470125   (1015972) от 15.05.2021
-
-Lester Young - 1936 - 1943 (2003) Columbia [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoe Shine Boy [2:59]
-02. Boogie Woogie [3:15]
-03. He Ain't Got Rhythm [2:51]
-04. I Must Have That Man [2:56](   Читать дальше...   )Жанр: SwingПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15289C0F8D5E9905B1FA8BCE95253739625B1511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470130   (1015816) от 16.05.2021
-
-Kelly Broadway - In Concert (1996) Pillar Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeysuckle Rose [4:03]
-02. Body and Soul [7:01]
-03. I Want to Talk About You [6:55]
-04. Almost Like Being in Love [5:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F039E105C2B9CD294551B223A74236F0191319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470098   (1015803) от 16.05.2021
-
-Karima - No Filter (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk on the Wild Side
-02. Feel Like Making Love
-03. The Scientist
-04. Come Together(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C896DB000AAC5E7245554EAB88A1253DC8861466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470545   (1015651) от 17.05.2021
-
-Lester Young - The Classic Albums Collection (1955 - 1958) 4CD, 2017, Enlightenment [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015651.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Somebody Loves Me [5:00]
-02. Come Rain or Come Shine [3:13]
-03. Rose Room [4:11](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 05:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D0F2F069A8C7F21B35D0F278BC416F747A537D
 ```
 
 https://mybot314.ru/tekegram_catalog/

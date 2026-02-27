@@ -1,3 +1,61 @@
+###  Публикация: 952194   (352767) от 02.11.2015
+
+Thomas Newman - Spectre (Original Motion Picture Soundtrack) (2015) [FLAC|tracks+.cue]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Los Muertos Vivos Estan - featuring Tambuco Percussion Ensemble [02:48]
+02. Vauxhall Bridge [02:19]
+03. The Eternal City [04:34]
+04. Donna Lucia [02:02](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961526667E66C90180AAA44D7DEA4BB225EF70B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072134   (352482) от 13.11.2016
+
+Curtis Macdonald - Breeze (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Expedition [00:04:12]
+02. Breeze [00:04:09]
+03. The Sun and Your Smile [00:04:02]
+04. Shadows on the Shore [00:05:30](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFFC65AA537B7E83B1472D5C8D04AAB166DFF8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329604   (352374) от 05.10.2019
 
 Thomas Barquee - The Sound of Om (2003) [FLAC|Lossless|tracks + .cue] <Mantras>
@@ -693,64 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18A95D1552413BDFD543AAFC74990B3387E65132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577511   (348057) от 22.09.2022
-
-TagTräumer (TagTraumer) - Zuviel ist nicht genug (2001) Remaster, 2018, West 7 [FLAC|Lossless|WEB-DL|tracks] <Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tausend Tage [00:03:46]
-02. Ich vermisse dich [00:03:46]
-03. Träumen und Hoffen [00:03:40]
-04. Für immer [00:03:22](   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3176370123033E80338BD31D00354C21AEAF65B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577625   (347762) от 22.09.2022
-
-Paul Mauriat - Sayonara Concert (2003) [OGG Vorbis|484 Kbps] <Pop, Classical, Stage & Screen>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Race
-02. My Heart Will Go On
-03. Invitation To The Dance
-04. Etude In A New Form(   Читать дальше...   )Жанр: Pop, Classical, Stage & ScreenПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536BBE896BE4ECB9FF36D4F6FB7E849079077ECA
 ```
 
 https://mybot314.ru/tekegram_catalog/

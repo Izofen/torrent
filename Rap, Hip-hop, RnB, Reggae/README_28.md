@@ -1,3 +1,32 @@
+###  Публикация: 1646669   (227694) от 30.07.2023
+
+АК-47 - Третий (2015) [FLAC|44.1/16,24|tracks|WEB-DL] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_227694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Большая дама [00:03:29] 16/44.1
+02. Дай 5 [00:04:48]
+03. No Pasaran!!! [00:04:14]
+04. Домашняя работа [00:04:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F905A2C80CD8F9DDD9E6C1187D97E57440502E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965158   (227633) от 13.12.2015
 
 Не будите спящих - Делай свое дело (2015) [MP3|320 кб/с]<Hip-Hop>
@@ -728,35 +757,6 @@ Big Russian Boss - G.O.L.D. (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B120EE0F47F766A834AE6D2387D4D2C010E409C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269702   (218090) от 16.12.2018
-
-THEY. - Fireside (2018) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Trap, Grime>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What I Know Now (feat. Wiz Khalifa) (3:00)
-02. Broken (feat. Jessie Reyez) (2:15)
-03. Wilt Chamberlin (feat. Jeremih) (3:05)
-04. Tell Me (feat. Vic Mensa) (2:54)(   Читать дальше...   )Производство: Mind of a Genius/Warner Bros. - 093624902942Жанр: Hip-Hop, Trap, GrimeПродолжительность: 00:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C336B0942C3A7BC21FB84C6CF875A2EBAFBB2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

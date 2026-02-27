@@ -1,22 +1,25 @@
-###  Публикация: 957233   (797217) от 26.04.2016
+###  Публикация: 1508124   (798017) от 07.11.2021
 
-CSI: Киберпространство / CSI: Cyber (2015) HDTV [H.264/720p-LQ] (сезон 2, серии 1-18 из 18) HamsterStudio
+VA - Bar Essentials, Vol. 3 (2020) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
 
->>След.
->>Место преступления / CSI
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797217.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Технологии изменили наш мир до такой степени, что безликие преступники совершают злодеяния глобального масштаба одним нажатием кнопки. Специальный агент Эвери Райан должна раскрывать преступления, которые зарождаются в головах, происходят онлайн и отражаются на реальном мире.Производство: СШАЖанр: драма, криминалРежиссер: Эгил Эгилссон, Эрик Ла Салль, Алек СмайтАктеры: Патриция Аркетт, Джеймс Ван Дер Бик, Чарли Кунц, Бау Вау, Хейли Кийоко, Питер МакНикол, Тед Дэнсон и др.Перевод: Двухголосный закадровый, любительский - HamsterStudioОзвучка: Вячеслав Айсберг и Ариса ЛебедеваПродолжительность: ~00:45:00 серия
+01. Area Code 51 - Hurt Again (3:14)
+02. Charles Edison - Find You (3:18)
+03. Peter Pearson - Distant Waves (4:38)
+04. The Soul Crusaders - Open Sea (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D79E0CAC505B3E10F0ACEF7CEE6ED48ED70618F1
+magnet:?xt=urn:btih:2694935749C0357E44FA79D2BCCDD7D2088F8EE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,26 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010763   (797216) от 26.04.2016
+###  Публикация: 1508196   (798016) от 07.11.2021
 
-MyLifeOrganized PRO 4.3.3 [Ru/En]
+VA - Chilling Winter Best Playlist (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
 
->>3
->>4
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797216.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Таск-менеджер на основе идеологии GTD
-MyLifeOrganized — это приложение под различные устройства с облачной синхронизацией. Оно позволяет планировать задачи, управлять списком дел и быстрее достигать поставленных целей. Работать с ним легче, как и настраивать интерфейс.Язык интерфейса: Русский, английский
+01. Aktnuance - Beautiful Beginning (5:53)
+02. Habermohl - An Immense Feeling (5:44)
+03. Performative Mode - Morning Air (6:24)
+04. Cesar Martinez Ensemble - Sol y Sombra (5:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:290AE0060611A156E03308A425D3B67317665740
+magnet:?xt=urn:btih:476D92F955DBC2EE18464B45BC943248E9A6C399
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010421   (797215) от 26.04.2016
+###  Публикация: 1508132   (798015) от 07.11.2021
 
-Navitel / Навител Навигатор v9.6.2385 RePack [Ru/En] - только программа навигации
+VA - Beach Grooves Maretimo, Vol. 3 - House & Chill Sounds to Groove and Relax (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
 
->>3
->>4
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797215.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 24.04.2016Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский / Английский
+01. Phil Kinley - I Got the Feeling (Rock da Pool Cut) (6:32)
+02. Adriatic Grooves - Ibiza Overflight (Vibes & Bytes Mix) (6:14)
+03. Pascal Dubois - House on the Beach (Chillers Mix) (4:36)
+04. Groove Gauchos - Conga Morena (Latin Bossa Cut) (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:42:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42015AA5C6EB2C1768E127AF2B8577F7AD1C6164
+magnet:?xt=urn:btih:54F50061E9897060F34E980775FBD00CD3F1DCE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010932   (797214) от 26.04.2016
+###  Публикация: 1508127   (798014) от 07.11.2021
 
-Зодиак / Zodiac (2007) BDRip [H.265/1080p-LQ] [Director's Cut]
+VA - Bar Essentials, Vol. 4 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
 
->>След.
->>Зарубежные Фильмы (HD, FHD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797214.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798014.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На протяжении почти 25 лет он держал в страхе весь Сан-Франциско. Общаясь с властями через репортеров, он в своих письмах и шифрах жестоко упрекал полицию в бездействии. "Зодиак" то пропадал на время, то появлялся вновь. Порой полиция начинала сомневаться в том, что за очередным убийством стоял именно тот, за кем они так тщетно охотились, а не какой-нибудь (   Читать дальше...   )Производство: США / Paramount Pictures, Phoenix Pictures, Warner Bros. PicturesЖанр: Детектив, Драма, Криминал, ТриллерРежиссер: Дэвид ФинчерАктеры: Джэйк Джилленхал, Марк Руффало, Энтони Эдвардс, Роберт Дауни мл., Брайан Кокс, Джон Кэрролл Линч, Ричмонд Аркетт, Роберт Дж. Стефенсон, Джон Лэси, Клоэ Севиньи, Джон Гетз, Джон ТерриПеревод: Дублированный (с форсированными субтитрами на непереведенные места)Язык субтитров: Итальянский, русский, английскийПродолжительность: 02:42:37
+01. Living Room - Waikiki Beach Dreaming (2:10)
+02. Roberto Bronco - Monkeys (4:51)
+03. Pier-O - Humble Bumblebee (5:38)
+04. Chillson - Pappas do Pappas Don t (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05531273609B968750E501C1CF76715982C90470
+magnet:?xt=urn:btih:3B4B61F77A866964FF999F6B3497972E88FEE6E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,25 +114,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000193   (797213) от 26.04.2016
+###  Публикация: 1508307   (798013) от 07.11.2021
 
-Windows 7 Максимальная Ru x86-x64 Orig w. BootMenu by OVGorskiy® 03.2016 1DVD
+SiteSucker Pro 4.2 [Multi]
 
->>3
->>4
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797213.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798013.jpg" />
 </div>
 
 
 ###  Подробнее
 
-обновленные оригинальные русские образы ОС "Windows® 7™ Максимальная" от Microsoft разных разрядностей (x86 и x64), объединенных в один образ стандартными средствами от Microsoft (AIK) на 1 DVD. Включает в себя "чистые" не модифицированные образы ОС Windows 7 Ultimate x86/x64 и расширенный загрузчик Stop SMS Uni Boot от Core-2. Интегрированы: (   Читать дальше...   )Язык интерфейса: Русский (Russian)
+SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: Richard CraniskyПоддерживаемая ОС: macOS 11.1 +Язык интерфейса: Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:044969793A6D07C9A2A5EE2B2BC91979BE4C0FD9
+magnet:?xt=urn:btih:BABB0110B1AFD44E2A444DF5A9C539073DD8C8F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,25 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010584   (797212) от 26.04.2016
+###  Публикация: 1508137   (798012) от 07.11.2021
 
-Герой (2016) WEB-DL [H.264/1080p-LQ]
+VA - Lounge Theme (Sofa Grooves), Vol. 1 (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
 
->>3
->>4
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797212.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Начало ХХ века. Юная княжна Вера Чернышева и поручик Андрей Долматов знакомятся при весьма странных обстоятельствах. Симпатия, любовь… впереди, казалось, счастливая жизнь. И вдруг — катастрофа. Первая мировая война уводит его на фронт, а ее — медсестрой в госпиталь. Мир перевернулся, он охвачен ненавистью, злобой, жаждой власти. Одна война сменяет другую. Люди делятся (   Читать дальше...   )Производство: Россия, Фонд киноЖанр: Драма, ВоенныйРежиссер: Юрий ВасильевАктеры: Дима Билан, Светлана Иванова, Александр Балуев, Татьяна Лютаева, Юлия Пересильд, Александр Головин, Марат Башаров, Александр Адабашьян, Лилита Озолиня, Александр ВасильевПеревод: Не требуется (русский) iTunesПродолжительность: 01:16:08
+01. Jane Maximova - Puppets (Original Mix) (4:58)
+02. Velvet Dreamer, Tim Gelo, Mike Tourne - No More Tears (Original Mix) (5:00)
+03. FIN Project - Mind Travel (Original Mix) (5:41)
+04. Weber - The Meaning (Original Mix) (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:19:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:681D6A7DA6351B870D890A24A9F7D52F195821CF
+magnet:?xt=urn:btih:5D518C0257754CB6EE3448AF207F0255A1229BDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -155,25 +169,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 946996   (797211) от 26.04.2016
+###  Публикация: 1508177   (798011) от 07.11.2021
 
-Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/Multi] (1.8-37786/dlc) Repack =nemos= [Collector's Edition]
+Screen Wonders 1.9.3 [Multi/Ru]
 
->>3
->>13
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797211.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сюжет Героев VII повествует о кровавой войне, которая привела к смене правящей династии Священной Империи. После смерти императрицы страна полыхает в пламени раздора: многочисленные противники сражаются за трон. В это время герцог Иван созывает шесть доверенных советников. Этот совет призван помочь ему выбрать правильный путь, чтобы положить конец войне за престолонаследие.Тип издания: RepackРазработчик: Limbic EntertainmentЖанр: Strategy (Turn-based), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский и другие
+Если вам надоели неподвижные картинки на рабочем столе, если вы готовы приветствовать волшебство разных мест по всему миру и даже параллельных вселенных, мы собрали лучшие живые обои в этом приложении. Вам обязательно придется по душе разнообразие тем, времен года и праздничных сцен и это все - Screen Wonders.
+Говорят, красота требует жертв, но вам не о чем беспокоиться, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2021Разработчик: 3PlanesoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60B2512363677460073939A71C832D98E29F40FF
+magnet:?xt=urn:btih:CF17FCF5EE397EE702289918590CDEB296432952
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,28 +196,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010566   (797210) от 26.04.2016
+###  Публикация: 1508131   (798010) от 07.11.2021
 
-Windows XP Pro SP3 VLK Rus (x86) v.16.4.24 by VIPsha [Ru]
+VA - Beach Grooves Maretimo, Vol. 2 - House & Chill Sounds to Groove and Relax (2019) [AAC|~326 Kbps] <Lounge, Chill Out, Chill House>
 
->>3
->>14
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797210.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Образ на основе Micrоsoft Windows XP Professional with Sеrvice Pack 3 VL Russian
-В данную сборку интегрированы:
-- Критические обновления безопасности для Windows по 1 мая 2014 г.
-- Internet Explorer 8 с обновлениями по 3 мая 2014 г.(   Читать дальше...   )Язык интерфейса: Русский
+01. DJ Maretimo - Costa Balear (The Beachfloor Cut) (5:42)
+02. Poolwave - African Market (Jazzman´s Cut) (6:11)
+03. Airstream - Back in Time (The Golden Beach Cut) (6:54)
+04. Pascal Dubois - Send Me Away (The Chillhouse Mix) (4:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:44:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7B50B9BE51C2F350DAB31EFA365E5304BA37617
+magnet:?xt=urn:btih:5D05CC0F954E46C12B7F38111DFA07BF4058DB92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,25 +225,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385575   (797209) от 25.05.2020
+###  Публикация: 1508194   (798009) от 07.11.2021
 
-Татьяна Гармаш-Роффе | Частный детектив Алексей Кисанов (Книга 21). Сердце не обманет, сердце не предаст (2020) [MP3, Светлана Сенчева]
+VisualDiffer 1.8.3 [En]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797209.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Никого нынче не удивишь убийством, замаскированным под самоубийство… Но частный сыщик Алексей Кисанов был весьма озадачен, услышав, что имеет дело с самоубийством, замаскированным под убийство. Погиб Михаил Козырев, уважаемый психиатр, – то ли сам выбросился в окно, то ли его столкнули. Впрочем, Алексей не сомневался – он быстро разберется с этим делом… И ошибся! (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:37:24
+VisualDiffer сравнивает бок-о-бок папки и файлы с помощью цвета, чтобы визуально показать различия. Из интерфейса можно выполнять операции с папками и файлами, такие как копирование или удаление.
+Это можно сравнить с быстрым выбором базы каталогов папки из контекстного меню. Использование фильтра файлов особенностью является возможность скрыть от визуализации конкретных (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 07.11.2021Разработчик: © 2021 Davide FicanoПоддерживаемая ОС: macOS X 10.12 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D02C046B49D2485B3107A90F79E1DA22FFC48AE0
+magnet:?xt=urn:btih:580FD98EFA89FD1C66FFB3713DAC1EDC896641DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,28 +252,226 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385649   (797208) от 25.05.2020
+###  Публикация: 1508133   (798008) от 07.11.2021
 
-Cymande - Second Time Round (2014) [FLAC|Lossless|tracks + .cue] <Funk>
+VA - Beach Grooves Maretimo, Vol. 4 - House & Chill Sounds to Groove and Relax (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airstream, Phil Kinley - Coffee Bar (Sunnys Pool Mix) (4:50)
+02. DJ Maretimo, Vladi Strecker - Rio (Take Me on Mix) (5:31)
+03. Cinematic - Sunset Love (The Funky Light Mix) (4:32)
+04. Jazzy James Jr. - Get on Funky (Cosmo Cut) (4:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D4F2CCAAB6EDEB7AA9C96ACBBCDE50482B803F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508121   (798007) от 07.11.2021
+
+VA - Bar Essentials, Vol. 1 (2018) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bes & Meret - Love Yourself (5:47)
+02. Tom Appl - Arabian Rose (Radio Cut) (3:40)
+03. Ralf Harris - I Get It (4:49)
+04. Buben - Point in History (5:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2C19C8AD996554CE0E15A259F996B5E8D56214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508219   (798006) от 07.11.2021
+
+File Juicer 4.96 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798006.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Juicer - уникальная утилита, позволяющая извлекать мультимедийные документы, вложенные в другие файлы. Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
+File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F00F3C49F1F571EBDE2F67E9C22F0878863210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508297   (798005) от 07.11.2021
+
+Коко выводит цыплят / Koko Gets Egg-Cited (1926) WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коко решил заняться птицеводством. Ну, там курочки, яички всякие. Инкубатор конечно же. Только он ведь клоун. Вот у него все и получается по-клоунскиПроизводство: США, Out of the Inkwell FilmsЖанр: Рисованная анимацияРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E7446D9489A25BFDB7BC84AE4CCAE53995FDCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508329   (798004) от 07.11.2021
+
+Stormbreaker - Strike The Match (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Standing On The Edge
+02. The Voice Inside
+03. Never Again
+04. Give In To Me(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C147DD11A8BFDFD111ACFFF7FDC702690AB52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508135   (798003) от 07.11.2021
+
+VA - Ski Resort Best Lounge Music Playlist (2021) [AAC|~292 Kbps] <Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aktnuance - Beautiful Beginning (5:53)
+02. Habermohl - An Immense Feeling (5:44)
+03. Kalokagathia Union - Ascending Mind (6:00)
+04. Performative Mode - Morning Air (6:24)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B276153419C9BFF41901556B53333F742C5E0706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508129   (798002) от 07.11.2021
+
+VA - Beach Grooves Maretimo, Vol. 1 - House & Chill Sounds to Groove and Relax (2018) [AAC|~324 Kbps] <Lounge, Chill Out, Chill House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Kinley - Partylife (Glitterpool Cut) (6:45)
+02. Housework - Culture Vibes (Drumflow Cut) (6:12)
+03. Clublife - Different Things (Poolside Mix) (6:17)
+04. Poolwave - Seaside (Laid Back Waves Cut) (5:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 05:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE662F83AA63C7B8A27604721A8FFECE1B0376C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508150   (798001) от 07.11.2021
+
+Joe Henderson - The Complete Blue Note Studio Sessions (1963 - 1967) 5CD, 2021, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797208.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anthracite 5:32
-02. Willie's Headache 4:50
-03. Genevieve 3:13
-04. Trevorgus 3:25(   Читать дальше...   )Жанр: FunkПродолжительность: 00:48:12
+CD1:
+01. Una Mas (One More Time) [15:19]
+02. Straight Ahead [8:58]
+03. Sao Paulo [7:20](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 06:10:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1893F80C28C85D11E76F99604DDB636F9E29E5D2
+magnet:?xt=urn:btih:A48810A48C9B88542DD7E283DE302AF0B6F07C0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,26 +479,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385372   (797207) от 25.05.2020
+###  Публикация: 1508207   (798000) от 07.11.2021
 
-Виктор Розов | Вечно живые (1957) [MP3]
+Гидеон Стерер | Ночные рыцари (2019) [PDF]
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797207.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Борис Бороздин уходит добровольцем на фронт: «Если я честный, я должен». Уходит накануне дня рождения своей невесты Вероники, которую он зовёт Белкой.
-На фронте Борис пропадает без вести. Вероника, потеряв любимого, родителей, родной кров, с отчаяния выходит замуж за Марка, двоюродного брата Бориса. Этот брак не становится для неё утешением…Жанр: Радиоспектакль, драмаПродолжительность: 01:45:41
+Красивая и атмосферная сказка о том, что ночью не надо бояться чудищ, ведь ночные рыцари всегда начеку.
+Книга начинается с заката: солнце садится, и мальчик волн волнуется из-за наступления темноты, призывая ночных рыцарей. Каждый дом превращается в замок, на страже которого встают смелые рыцари, лучники, капитаны и волшебные существа. У них одна цель — защитить (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A500550E0B453B6226C8EF74EC0B61420D68C20
+magnet:?xt=urn:btih:89D46A6EC1FB575B4767279B440259B60D1297CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,25 +506,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385579   (797206) от 25.05.2020
+###  Публикация: 1508202   (797999) от 07.11.2021
 
-Татьяна Гармаш-Роффе | Частный дeтектив Алексей Кисанов (Книга 20). И нет мне прощения (2020) [MP3, Светлана Сенчева]
+Сто к одному (07.11.2021) WEBRip [H.264/1080p-LQ]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797206.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если б людям было дано умение предугадывать ход событий!.. Тогда бы Аида не пошла на свидание в сад «Аквариум», тогда бы Манон, ее сестра, не согласилась на встречу со своим новым поклонником! И не случилось бы беды, и не пришлось бы частному сыщику Алексею Кисанову отложить долгожданный отпуск… Но полиция просит его помощи. Два жестоких и загадочных убийства. Исчезновение (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:30:38
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3AF1B9B6658FAF39C3C05CD54F6428D1D4AD5CC
+magnet:?xt=urn:btih:C754470FAF8E3148A601175543B51CCD65BD0C87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,28 +532,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385547   (797205) от 25.05.2020
+###  Публикация: 1508323   (797998) от 07.11.2021
 
-VA - Bare Essentials Vol. 2 (2003) [FLAC|Lossless|tracks + .cue] <Deep House>
+Dangerous Curves - Summertime Highs (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797205.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aquanote – Nowhere (Crazy P's Heatwave Mix)
-02. Arvid Feat. Ernestos – Try (Fenomenon Remix)
-03. Blue Six – All I Need (Jimpster Remix)
-04. Central Living – Inside(   Читать дальше...   )Жанр: Electronic, House, Future Jazz, Deep House, DiscoПродолжительность: 01:12:42
+01. In Those Eyes
+02. My Oh My (Get What You Need)
+03. I Like it
+04. Good And The Bad(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3752C1A28D2833C197E5048F7ED12BB9E3A7351E
+magnet:?xt=urn:btih:A171CFC1BF1E001DB3E943630EDD53469306E7B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,28 +561,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385609   (797204) от 25.05.2020
+###  Публикация: 1508096   (797997) от 07.11.2021
 
-Mel & Kim - F.L.M. (1987) LP [MP3|320 Kbps] <Electronic, Pop>
+Thanatos - Violent Death Rituals (2020) [WavPack|Lossless|image + .cue] <Thrash Metal>
 
->>Pop
->>Зарубежная поп-музыка
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797204.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. F.L.M. (3:58)
-02. Showing Out (5:12)
-03. Respectable (5:43)
-04. Feel A Whole Lot Better (4:25)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:38:20
+01 Violent Death Rituals
+02 The Silent War
+03 Unholy Predators
+04 The Outer Darkness(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BCEE8349576CA305E2D6AB79885E044EC21A420
+magnet:?xt=urn:btih:E2BED4E49378EB9FDE4E4DA62C87D5344ACA9A84
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,28 +590,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385558   (797202) от 25.05.2020
+###  Публикация: 1508311   (797996) от 07.11.2021
 
-VA - Beatport Drum & Bass: Electro Sound Pack #91 (2020) [MP3|320 Kbps] <Drum & Bass, Bass, Bassline>
+Pacifist 4.0 [En]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797202.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Sullen - Can't Escape
-002. Hothead - Dark Side
-003. Shodan - Gobsmacked
-004. Drum Boss - Core (Original Mix)(   Читать дальше...   )Жанр: Drum & Bass, Bass, BasslineПродолжительность: 10:33:14
+Pacifist — удобная распаковка .pkg
+Если вы являетесь активным пользователем Mac OS, то вполне вероятно, что однажды вам уже было необходимо открыть файл с расширением .pkg. Сделать это можно при помощи нескольких способов, но приложение под названием Pacifist позволяет сделать это наиболее быстро и удобно.
+Pacifist – приложение, которое открывает пакеты Mac OS X (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 CharlesSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B93DB1CF9BAF63C2CEE32EE0942E74D95FDFFDD
+magnet:?xt=urn:btih:6C174294C8CD339DD39B4A252488DF9BACD86A9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,28 +618,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385539   (797201) от 25.05.2020
+###  Публикация: 1508164   (797995) от 07.11.2021
 
-Aquanote - The Pearl (2002) [FLAC|Lossless|tracks + .cue] <House>
+Сборная Союза - Смешной апрель (2021) [AAC|~277 Kbps] <Chanson>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797201.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Water Psalm I
-02. Waiting
-03. True Love
-04. All Over You(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:06:14
+01. Смешной апрель (4:19)
+02. Росли в штанах с заплатами (4:01)
+03. По матери я русский (2:57)
+04. С простреленной грудью на вылет (4:34)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:55:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38A885CC1DB0119CECF1EFA666D28D6173E6BE57
+magnet:?xt=urn:btih:A4239EB5DB409187B8726C9AE68E125CF22B8B3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,25 +647,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385580   (797200) от 25.05.2020
+###  Публикация: 1508218   (797994) от 07.11.2021
 
-Татьяна Гармаш-Роффе | Частный детектив Алексей Кисанов (Книга 23). Легкое дыхание лжи (2020) [MP3, Светлана Сенчева]
+Энн Мэри Хауэлл | Дом с сотней часов (2021) [FB2, EPUB, MOBI]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797200.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Старший сын детектива Алексея Кисанова Роман приезжает в деревенский дом своего друга. В окне соседнего особняка он видит девушку… А вскоре выясняется: Милу там держит насильно некий «спонсор», обманом заполучивший ее в свои сети. Она просит Романа о помощи. Памятуя методы своего отца-детектива, Роман старается детально и технично продумать план побега, предусмотрев (   Читать дальше...   )Жанр: ДетективПродолжительность: 07:07:19
+Хелена знала, что уезжать из Лондона – не лучшая идея. Но она и не представляла, какое испытание ждёт её семью. Отец девочки устроился в дом мистера Уэсткотта хранителем часов и подписал ужасный договор: если хоть одни часы остановятся, то их семья потеряет всё своё имущество! Кто же знал, что часов в доме больше сотни?! Хелена не понимает, почему мистер Уэсткотт (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: Е.Ю. РыбаковаФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6837DD7E18B4FF617187CA3697E4C935CE015BC7
+magnet:?xt=urn:btih:E185E0F666BBF3FFC7411381E0AF2E3FEEE2C332
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,28 +673,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385615   (797199) от 25.05.2020
+###  Публикация: 1508173   (797993) от 07.11.2021
 
-VA - Music News vol.8 (2020) [MP3|320 Kbps] <Progressive Rock, Rock, Pop>
+iNet Network Scanner 2.8.5 [En]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797199.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Asammuell - Всем Для Тебя (03:03)
- 02. Asking Alexandria -  Lorazepam (04:02)
- 03. Asking Alexandria - All Due Respect (03:55)
- 04. Asking Alexandria - Antisocialist (03:36)(   Читать дальше...   )Жанр: Progressive Rock, Rock, PopПродолжительность: 03:20:25
+iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
+iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: BananaGlueПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Испанский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C320B9F8734E8845E90CDD71C48B7754448ABF18
+magnet:?xt=urn:btih:F69D1F2CED19A044D563471039CE52F9308346C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,222 +700,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385676   (797198) от 25.05.2020
+###  Публикация: 1508192   (797992) от 07.11.2021
 
-VA - Jazz For Kids - Sing, Clap, Wiggle, And Shake (2004) [MP3|320 Kbps]<Джаз для детей>
+Алекс Астер | Остров эмблем. Проклятие Ночной Ведьмы. Книга 1 (2021) [FB2, EPUB, MOBI]
 
->>Аудио для детей и родителей
->>Музыка и песни для детей
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797198.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ella Fitzgerald - Old McDonald
-02. Louis Jordan and His Tympany Five - Ain't Nobody Here but Us Chickens
-03. Louis Prima - Yes! We Have No Bananas
-04. Slim Gaillard - Chicken Rhythm(   Читать дальше...   )Жанр: Джаз для детейПродолжительность: 00:28:21
+На острове Эмблем все люди с рождения знают свою судьбу. Линии жизни на ладонях людей показывают ход их жизни, а разноцветные символы, проступающие на запястьях, указывают будущую судьбу и профессию.
+12-летний Тор Луна, сын правительницы города, родился с эмблемой лидера. Это означает, что в будущем он унаследует власть над городом. Но Тор ненавидит свою судьбу. (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: А.В. ЗахаровФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88BB79F54974831B82EE744EFAFF5186790B07A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385472   (797197) от 25.05.2020
-
-Heaven42 - Dancing And Moving (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing And Moving (Original Power Mix) (7:16)
-02. Dancing And Moving (Album Mix) (5:07)
-03. Dancing And Moving (Single Mix) (3:34)
-04. Dancing And Moving (Steve Burbon Remix) (5:06)(   Читать дальше...   )Жанр: Euro-Disco, DanceПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8D805298AA342702DD6E0FB9EAF5CB1E3EEDF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385582   (797196) от 25.05.2020
-
-VA - HIIT Workout Mix (2020) [MP3|320 Kbps] <House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Killers - Mr. Brightside 03:43
-02. Baker Boy - Move 02:47
-03. Martin Solveig, Tkay Maidza - Do It Right 03:32
-04. Capital Cities - Safe And Sound 03:11(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D007753C348C5E7EE0844F592D192AB41A7F32C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385588   (797195) от 25.05.2020
-
-Галина Куликова | Ураган по имени Глаша, или Рецепт дорогого удовольствия (2020) [MP3, Лилия Малчевская]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Босс Глаши Медвянской Петр знал, что девушка она бесстрашная и находчивая. А значит, найдет его пропавшую жену Сузи. В милицию он не заявлял – боялся огласки, ведь в прошлом Сузи была девушкой по вызову. Решив, что супруга взялась за старое, Петр следил за женой. Последний раз он видел ее ночью на кладбище. Чуть позже сам Петр был убит в собственной квартире. В этот (   Читать дальше...   )Жанр: Иронический детективПродолжительность: 05:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53CAD7684C4243E84B5989284F3C601B021B904F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385583   (797194) от 25.05.2020
-
-Татьяна Гармаш-Роффе | Частный визит в Париж (2020) [MP3, Светлана Сенчева]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Победитель Каннского фестиваля, знаменитый русский режиссер Максим Дорин вдруг с удивлением узнает, что не менее знаменитый французский актер Арно Дор приходится ему дядей. Максим летит в Париж, чтобы встретиться со своим легендарным родственником. Поговорив на съемочной площадке нового фильма всего полчаса, они расстаются до вечера. Однако Арно загадочным образом (   Читать дальше...   )Жанр: ДетективПродолжительность: 12:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C2D70E40F0A4AB5F647720A8E9DFAC90269E190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385611   (797193) от 25.05.2020
-
-VA - Top 40 Beatspot Summer '20 (2020) [MP3|320 Kbps] <House, Future House, Bass House, Tech-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniele Francesco - Rock To The Rhythm (Jay Lutwen Remix) 4:25
-02. Junior XL - Bring Back To Life (Dub Mix) 4:23
-03. Fishbird - Desire (Original Mix) 4:56
-04. Dave Sparks - Shake Like That (Dub Mix) 4:59(   Читать дальше...   )Жанр: House, Future House, Bass House, Tech-HouseПродолжительность: 03:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584211216961A944C8768101E08DAF25A617485B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385572   (797192) от 25.05.2020
-
-Наиль Абдуллазаде | Саваран (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оставшись сиротой, он заключает сделку с дьяволом, берёт себе новое имя и поступает на службу в персидскую конницу – саваран. Он хочет найти своего отца, о котором знает, что тот один из лучших военачальников персидской армии. Все его тело испещрено шрамами, и теперь он сам похож на демона. Сможет ли он вернуть себе человеческий облик и разорвать сделку с дьяволом (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 03:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5576489FE01F6D3A1EA7AB307ABFBBE2DA3CD528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385710   (797191) от 25.05.2020
-
-VA - Summer Pop 100 (2020) Explicit [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797191.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Veronicas - Untouched 4:15
-002. Duran Duran - Rio (U.S. Remix) 5:25
-003. Urban Bossa Club - Goosebumps 3:04
-004. LCD Soundsystem - Daft Punk Is Playing At My House 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 06:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590D57E01F495A2CB7D7DC7C4F5DA3D30CE68792
+magnet:?xt=urn:btih:505BF6EAEA278732FD1F67E48EDEC3C3B850BA34
 ```
 
 https://mybot314.ru/tekegram_catalog/

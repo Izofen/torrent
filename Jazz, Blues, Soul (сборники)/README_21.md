@@ -1,3 +1,32 @@
+###  Публикация: 1514104   (219063) от 02.12.2021
+
+VA - Blues Velour (2021) [MP3|320 Kbps] <Blues, Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219063.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Monkeyjunk - All About You
+002. Roger Hammer - Walkin' Round Blues
+003. Bob Margolin - Good Driving Song
+004. Steve Baker - Now Youre Here(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 08:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0422F27799389D81A1AEC570DF0B05DE3250BF2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343377   (218148) от 06.12.2019
 
 VA - Velvet Evening Jazz (2019) [MP3|320 Kbps] <Jazz, Instrumental, Blues>
@@ -716,35 +745,6 @@ Dave Weckl - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Jazz Rock)>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64480E5E60DD4341C70233DADA02D42C324AAB62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827357   (186355) от 21.10.2025
-
-Dark Blues Society - To Walk Like a Gangster (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Streets Warm Blood [03:25]
-02. Gangster Monologue [04:03]
-03. Sharp Silence [02:14]
-04. Built in the Dark [04:00](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09109DE23D2FA0ED18206E40A147C9AE10CE25F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

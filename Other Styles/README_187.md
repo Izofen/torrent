@@ -1,3 +1,61 @@
+###  Публикация: 1822676   (101575) от 08.10.2025
+
+Radio Wolf and Parallels - Proximity (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break The Silence [04:29]
+02. Pure Lies [04:25]
+03. Let Me In [03:53]
+04. Lost Angel [05:08](   Читать дальше...   )Жанр: OSTПродолжительность: 00:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3387063CCDB14FC04E17AEA03A27A3126FA20315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765585   (101411) от 13.12.2024
+
+VA - The Orient Collective: The Guardian (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_101411.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Darles Flow - Atreides (5:20)
+2. Florian Gasperini - No Need to Know More (8:00)
+3. Tibetania - Dau Ayuni (6:06)
+4. The Friend - The Road to Egypt (6:36)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C4969557B1D22E1784BAA505C00A5D44D4504F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765892   (101295) от 15.12.2024
 
 VA - The Orient Collective: Skylands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -778,70 +836,6 @@ Thors - Tantra & Love (2001) [MP3|320 кб/с]<New age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BCE06A491C7BAA47707A24204E7006C48F84E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457630   (94708) от 26.02.2012
-
-Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takaya Mija (05:36)
-02. Farias (05:26)
-03. Gerda (05:59)
-04. Benga (04:44)
-05. Sagrabat (Diumgo) feat. Julien Jacob (03:34)
-06. Oikoumene (07:41)
-07. Tapachula (07:09)
-08. Intifadah (05:13)
-09. Clean Kron (03:25)
-10. Sol De Morte (03:44)(   Читать дальше...   )2012Жанр: Rock, Folk, DarkwaveПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A66B199848D1339B4B472134E2F224F0B41A098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821995   (94701) от 04.10.2025
-
-VA - The Orient Collective: Ancient Spirits (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
-02. Inessa, Tibetania - Kalahari (Original Mix) (5:45)
-03. Ildar Bik, Tibetania - Kids (Original Mix) (6:08)
-04. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C943EB4F92FF9021AD759457C15F6034C005D08
 ```
 
 https://mybot314.ru/tekegram_catalog/

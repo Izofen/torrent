@@ -1,3 +1,32 @@
+###  Публикация: 1121443   (794255) от 05.04.2017
+
+Øfdream (Ofdream) - Real Answer (2016) [MP3|320 Kbps] <Сhill Trap, Liquid Trap, Future Bass>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Answer
+02. Fallen Angel
+03. Out Of Trouble
+04. First Woe(   Читать дальше...   )Жанр: Сhill Trap, Liquid Trap, Future BassПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C155F96B947D8278BAABE19194829D0F6575FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509704   (793860) от 13.11.2021
 
 Oxxxymiron - miXXXtape III: Смутное Время (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ Run The Jewels - RTJ4 (2020) [FLAC 2.0|48/24|tracks|WEB-DL]  <Hip - Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EA1324611A46EF8F06F1098F5582C25845072B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389050   (785111) от 08.06.2020
-
-VA - Old School Rap Classics (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biz Markie - Nobody Beats The Biz 5:03
-02. Ice-T - Colors 4:26
-03. Grandmaster Flash & The Furious Five - Gold 4:21
-04. Ultramagnetic Mcs - Traveling At The Speed Of Thought (Remix) 1:52(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B7CA622FD458C40FE8CD4729A32C9F390A49F4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

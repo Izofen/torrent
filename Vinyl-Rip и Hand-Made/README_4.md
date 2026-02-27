@@ -1,3 +1,204 @@
+###  Публикация: 1464927   (1019454) от 24.04.2021
+
+Andy White - Himself (1990) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019454.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 In A Groovy Kind Of Way
+A2 1000000 Miles
+A3 Six String Street
+A4 Freeze-out(   Читать дальше...   )Жанр: Folk Rock, Indie RockПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A368D7970F9441F2D9960A3C6F1EE279A0BB38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477469   (1010961) от 15.06.2021
+
+Late - Saw, Sine, Square / Voices From The Night (2009) Disfigured Dubz [FLAC 2.0|96/24|tracks|Vinyl] <Dubstep, UK Garage>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saw, Sine, Square (07:00)
+ 02. Voices From The Night (05:11)Жанр: Dubstep, UK GarageПродолжительность: 00:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4EA71509EE4AD523827D514A747D8E284248C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478367   (1010281) от 19.06.2021
+
+Хелен Меррилл/Helen Merrill - Песни Р. Роджерса и О. Хаммерштейна (1985) Запись 1982 г. [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010281.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Словно Весной = It Might As Well Be Spring
+A2 Привет, Юные Влюбленные! = Hello Young Lovers
+A3 Я Мечтала = I Have Dreamed
+A4 Люди Скажут, Что Мы Влюблены = People Will Say We're In Love(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F12E1FE17E559E2B0A036339AC8F848B74453F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613145   (1009893) от 21.06.2021
+
+Кино (Виктор Цой) - Группа Крови [Groupa Kroovy (Blood Type)] (1989) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009893.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Blood Type 4:45
+A2. Shut the Door Behind Me 4:17
+A3. War 4:04
+A4. Good Night 6:08(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF43C2C09D2D5DE4AE1B6045BDB9D3DD1740964C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478810   (1009773) от 22.06.2021
+
+Jean-Michel Jarre - Oxygene 3 (2016), Europe [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009773.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Oxygene (Part 14)
+A2 Oxygene (Part 15)
+A3 Oxygene (Part 16)
+B1 Oxygene (Part 17)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465CCBC0CF458A6A011CEA5FC3FB0CCA22D1F5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482784   (1007305) от 10.07.2021
+
+Rudolf Dasek - Dialogues (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Free Jazz, Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007305.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Enchanted Mill
+A2 If You Wish
+A3 Return
+A4 He's Coming(   Читать дальше...   )Жанр: Free Jazz, Contemporary JazzПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A8860950B8B00202F9E8DCB7B0A1BF801CC830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488224   (1001742) от 12.08.2021
+
+Jon & Vangelis - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tracklist
+A1 I'll Find My Way Home
+A2 Italian Song
+A3 And When The Night Comes(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40978C9707A4FF25CDC49EFAB29533FEA6CBB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600572   (998808) от 08.01.2013
 
 Ария - 3 магнитоальбома (1986-1987) [FLAC 2.0 24/48|tracks (MBRip)]<Hard Rock, Heavy Metal>
@@ -609,238 +810,6 @@ B4. Forgotten 3:13(   Читать дальше...   )Жанр: Alternative Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E747D6D4A323544ABAFEAE884BCC79E1448A55F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605570   (995428) от 20.01.2013
-
-Linkin Park - 3 альбома (2002-2007) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995428.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Wake 1:35
-A2. Given Up 3:08
-A3. Leave Out All The Rest 3:18
-A4. Bleed It Out 2:53
-A5. Shadow Of The Day 4:18
-A6. What I've Done 3:51
-B1. Hands Held High 3:51
-B2. No More Sorrow 3:40
-B3. Valentine's Day 3:16
-B4. In Between 3:17(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780F15C460AF0F800E2E8982F6503C4BB177CCBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605588   (995401) от 20.01.2013
-
-Кино (Виктор Цой) - Ночь (1986/1989) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995401.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Видели Ночь 3:09
-A2. Фильмы 4:56
-A3. Твой Номер 3:30
-A4. Танец 4:34
-A5. Ночь 5:32
-B1. Последний Герой 2:16
-B2. Жизнь В Стеклах 3:34
-B3. Анархия 2:46
-B4. Звезды Останутся Здесь	 3:37
-B5. Игра 5:01(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D2EC97B2A2EB19087117CA650C5C8B9183965C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604991   (995385) от 20.01.2013
-
-Кино (Виктор Цой) - 4 альбома (1990-2012) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.- Кончится лето (5:56)
-02.- Красно-желтые дни (5:50)
-03.- Нам с тобой (4:50)
-04.- Звезда (4:30)
-05.- Кукушка (6:39)
-06.- Когда твоя девушка больна (4:22)
-07.- Муравейник (5:17)
-08.- Следи за собой (5:00)Жанр: RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB102A62C4041A392FCCDD6360768FBC5D1F4E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607563   (993977) от 24.01.2013
-
-ДДТ - Актриса Весна (1992) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993977.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Дождь 5:16
-A2. В Последнюю Осень 5:02
-A3. Фома 7:02
-A4. Родина 4:44
-B1. Храм 5:23
-B2. Что Такое Осень 4:58
-B3. Ночь 5:16
-B4. Актриса Весна 5:46Жанр: RockПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAF502A58B10900F96ACBAC8C0CE6A03C7720AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608562   (992496) от 26.01.2013
-
-Nirvana - 5 альбомов (Японские прессы) (1996, 2007) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992496.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. About A Girl 3:40
-A2. Come As You Are 4:14
-A3. Jesus Doesn't Want Me For A Sunbeam 4:38
-A4. The Man Who Sold The World 4:21
-A5. Pennyroyal Tea 3:41
-A6. Dumb 2:53
-A7. Polly 3:16
-B1. On A Plain 3:45
-B2. Something In The Way 4:02
-B3. Plateau 3:38(   Читать дальше...   )Жанр: GrungeПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60606D67144207DB7E92DDB1A76DB43F321DC14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609730   (991978) от 27.01.2013
-
-Ozzy Osbourne - Down To Earth (2001)  [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991978.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Gets Me Through [05:05]
-A2. Facing Hell [04:26]
-A3. Dreamer [04:45]
-A4. No Easy Way Out [05:06]
-A5. That I Never Had [04:23]
-A6. You Know... (Part 1) [01:07]
-B1. Junkie [04:19]
-B2. Running Out Of Time [05:06]
-B3. Black Illusion [04:21]
-B4. Alive [04:54](   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F38DFD1F80C422A7348C4BA05E17948BE0E20998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692153   (987892) от 22.01.2020
-
-Ganymed - Takes You Higher (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Space Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, Space RockПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD221706D5CE2DBD3A7C14822756D2C650B7812
 ```
 
 https://mybot314.ru/tekegram_catalog/

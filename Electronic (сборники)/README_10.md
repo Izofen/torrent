@@ -1,3 +1,32 @@
+###  Публикация: 1473988   (1013393) от 31.05.2021
+
+VA - The Favorite Fitness Music (2021) [MP3|320 Kbps] <EDM, Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scar And Eazyvibe - Life Without You
+002. Jonathan Touch - Brotherhood
+003. Dsigual - Natjwa
+004. Adam Cooper - Eyes Shut(   Читать дальше...   )Жанр: EDM, Club, Dance, HouseПродолжительность: 09:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2538BAFC4CA0C8349BF588F5D184245E76CB56F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474016   (1013264) от 01.06.2021
 
 VA - Chilling Experience: Chill House Sound Mix (2021) [MP3|320 Kbps] <Chill House, Deep House>
@@ -716,35 +745,6 @@ VA - HGM: Deep House Project June (2021) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B79200295347718A241B0A5EBBB3DBE74678F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480271   (1009050) от 28.06.2021
-
-VA - Music Cloud: Synthetic Party (2021) [MP3|320 Kbps] <Electronic, Synthetic, Synthvawe>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009050.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wholf B - Sound Of Silence
-002. Alex Samoylenko - Minimal Illusion
-003. Penelope's - The Cutting Edge
-004. Teslasonic - Nemesis(   Читать дальше...   )Жанр: Electronic, Synthetic, SynthvaweПродолжительность: 11:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BAD83841F9A3E7AB752A0F11DB6F16A5749B458
 ```
 
 https://mybot314.ru/tekegram_catalog/

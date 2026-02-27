@@ -1,3 +1,32 @@
+###  Публикация: 1462291   (1021190) от 14.04.2021
+
+VA - Night Rider 4 (2021) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021190.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Leon, In2Deep - Sculpture (9:43)
+002. Apir - Emphatic (9:07)
+003. Pryda - Power Drive (8:53)
+004. Energy 52 - Cafe Del Mar (Tale Of Us Renaissance Remix) (8:35)(   Читать дальше...   )Жанр: HouseПродолжительность: 06:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76354828AB89AC5183169D0AC9C3FDAD9DFACB04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462525   (1021041) от 15.04.2021
 
 VA - Immersion: Psy Trance (2021) [MP3|320 Kbps] <Psychedelic Trance>
@@ -716,35 +745,6 @@ VA - Top 100 Euphoric Trance (2021) [MP3|320 Kbps] <Trance, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D14C713DB0DA9A512CF4C210242D35611ED98B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468973   (1016576) от 11.05.2021
-
-TOP 40 PromoDJ Май 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Юлия Морозова & DJ G-Neo G - Фотообои
-02.Юлия Морозова - Зажигай (Eugene Star Remix)
-03.Юлия Морозова - Всегда с тобой рядом (Eugene Star Remix)
-04.Проект НаЗаре, DJ DimixeR - На Заре 2020 (Extended Mix)(   Читать дальше...   )Жанр: EDM, Dance, Electro, Pop, Trance, House, Tech HouseПродолжительность: 02:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10BCDD6257044624852C26651AEE0C0999C8427
 ```
 
 https://mybot314.ru/tekegram_catalog/

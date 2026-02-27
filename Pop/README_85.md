@@ -1,3 +1,290 @@
+###  Публикация: 1387425   (791207) от 02.06.2020
+
+Captain Hollywood Project - Love Is Not Sex (1993) [FLAC|Lossless|tracks + .cue] <Electronic, Euro-House, Technopop, Downtempo>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More and More (Single Version) (4:00)
+ 02. All I Want (5:22)
+ 03. It's Raining (4:15)
+ 04. Impossible (5:09)(   Читать дальше...   )Жанр: Electronic, Euro-House, Technopop, DowntempoПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77C555D015C6EA054422A5DA3731F474CE16257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387480   (791109) от 02.06.2020
+
+Michael Jackson - Discography (1967-2009) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майкл Джексон – легендарный американский музыкант, самый успешный исполнитель поп-музыки в мировой истории, танцор, актер, автор песен. В мире был продан 1 миллиард копий записей Джексона, включая альбомы, синглы и сборники. Музыкант 25 раз попадал в «Книгу рекордов Гиннесса» и только премий «Грэмми» он получил 15, а другие музыкальные награды исчисляются сотнями. (   Читать дальше...   )1972 - Ben {Motown 530 163-2}
+1972 - Got To Be There {Motown 530 162-2}
+1973 - Music and Me {Spectrum 550 078-2}
+1975 - Forever, Michael {Motown 530 280-2}(   Читать дальше...   )Жанр: PopПродолжительность: 80:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAC991AD55E13F2871B332D911653652FD7C932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510511   (790756) от 17.11.2021
+
+Top Secret - Top Secret (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What You're Doin' (3:58)
+02. I Like The D.J. (6:28)
+03. Call Me (7:26)
+04. Dancing Into Midnight (7:00)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D6B7436A4A263F294FF25588AB7BDAEFF0D378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387805   (790674) от 03.06.2020
+
+Hitmasters - Hey Sexy Lady (2003) [FLAC|Lossless|image + .cue] <Pop, Parody>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Steuersong (Lass Kanzlern) (3:10)
+02. Ein Rudi Völler (3:14)
+03. Everytime (3:02)
+04. Can't Get You Out Of My Head (3:50)(   Читать дальше...   )Жанр: Pop, ParodyПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F21D52D343C6BC73017CF9D92222BF6D78F79B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387800   (790673) от 03.06.2020
+
+VA - The Non-Stop Party Album (2000) [FLAC|Lossless|image + .cue] <Disco, Euro House, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shout - Lulu (2:55)
+02. Back to the 60s Vol. 1- Dancing in the Street- (I Can't Get No) - Tight Fit (3:56)
+03. Stars on 45 Vol. 1-The Beatles Medley- Stars on 45-Venus-Sugar Sugar - Starsound Orchestra (4:30)
+04. You Sexy Thing - Hot Chocolate (3:55)(   Читать дальше...   )Жанр: Disco, Euro House, CoverПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C032BF42FD44A7ECBA5C9A3D9781B9EAB63EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202353   (790534) от 28.01.2018
+
+DNCE - DNCE (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DNCE
+02. Body Moves
+03. Cake by the Ocean
+04. Doctor You(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E4584019AA1669DD33A4D9E7ADAF16680B18F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202163   (790527) от 28.01.2018
+
+Charlotte Gainsbourg - Stage Whisper (2011) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/11. IRM (2:41)
+02/11. Set Yourself On Fire (3:53)
+03/11. Jamais (4:02)
+04/11. Heaven Can Wait (2:22)(   Читать дальше...   )Жанр: Indie Pop, French Pop-Rock |Продолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B5A822818A4F46654EE576325C96BDB21A889E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202319   (790493) от 28.01.2018
+
+Сати Казанова - Спасибо тебе (2018) EP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Радость, Привет
+02. Спит Мое Счастье
+03. Всем Салам (fеаt. Ринат Каримов)
+04. Моя Правда(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A19F77D27200B7A4B0721D5C6A1B9CDE5BE744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275438   (790435) от 11.01.2019
+
+Alizee - Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moi… Lolita (Reloaded)Жанр: Deep House, PopПродолжительность: 02:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30D9F096810210F66043AC747A6864FF4A840F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202142   (790414) от 28.01.2018
+
+Марк Бернес - Огромное небо (2001) [APE|Lossless|tracks] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. С Чего Начинается Родина
+02. Перекрёсток
+03. Три Года Ты Мне Снилась
+04. Песня Рощина(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D4F33DB4F41429DEED18E577D61FBDF9F98772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510850   (790147) от 18.11.2021
 
 Modern Talking - Original Album Classics (2011) 5xCD, Box Set, Compilation, Reissue, Sony Music [FLAC|Lossless|image + .cue] <Eurodisco>
@@ -458,297 +745,6 @@ Mono Mind - Mind Control (2019) BMG [FLAC|Lossless|WEB-DL|tracks] <Electronic, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F60BCE60AC1D0C3097FCE736320E0613372C74C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275911   (789391) от 13.01.2019
-
-Yaku & Supermax - The Message (2012) Clip Production Ltd. [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Reggae, Soul, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run Baby (3:40)
- 02. Reggae Master | feat. Roussinoff (3:46)
- 03. Rhodopi Mountain (4:16)
- 04. Stormy Weather (4:34)(   Читать дальше...   )Жанр: Pop Rock, Reggae, Soul, BluesПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944D88EB4B0193F2EE72C4A135EC54F7C85472BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276039   (789045) от 14.01.2019
-
-VA - VA - Eurodance Party 2019 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ray Krebbs - The Gym (Funkblaster Radio Mix)
-02. Bob Cruise - We Like to Funk (Radio Edit)
-03. DOUBLE U - Free Again
-04. Nightwatchers - Insomnia (Radio Edit) (Remastered)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A5680273630C83B1C28090F03CC55538A61006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202766   (789024) от 31.01.2018
-
-Plazma - Indian Summer (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop, Europop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tame Your Ghosts (04:24)
-02. Angel Of Snow (04:24)
-03. Brilliant Water (03:11)
-04. Mystery (The Power Within) (03:54)(   Читать дальше...   )Жанр: Pop, Synth-pop, EuropopПродолжительность: 00:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDE918A53F98D5030389BEF494524E5388E17E43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203049   (789022) от 31.01.2018
-
-Justin Timberlake - Man of the Woods (2018) [MP3|320 Kbps] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filthy
-02. Midnight Summer Jam
-03. Sauce
-04. Man of the Woods(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA7FC00E3DFB260A0A246C57D62BCB91959F8A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276035   (789010) от 14.01.2019
-
-VA - 50 Chart Hits of 2019-The Winter Workout Album (2019) [MP3|320 Kbps] <Nu Disco, Pop, Club>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chrizz Morisson & Jair - Baby (Don't Let Me Be Alone) (Dolls House Remix) 3:55
-02. B.G. The Prince Of Rap Feat. Timi Kullai & Nathan Reynolds Iii - Once You Have Me (Remundo Remix) 5:00
-03. Chrizz Morisson & Latisha Van Simon - From Here On Up (Dolls Uk Edit) 3:12
-04. Real System - There Is No More Love (Randy Norton Edit) 3:43(   Читать дальше...   )Жанр: Nu Disco, Pop, ClubПродолжительность: 03:27:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB64D06B84FA6FE9C0768F37FAB03065620703B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511396   (788848) от 21.11.2021
-
-VA - The Best New Year's Party Album In The World...Ever! (2021) Explicit [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. THE ANXIETY - Meet Me At Our Spot [00:02:42]
-02. Billie Eilish - bad guy [00:03:14]
-03. Surf Mesa - ily (i love you baby) [00:03:01]
-04. Maroon 5 - What Lovers Do [00:03:19](   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 08:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AD26D0C02CADBE318E1FCCB40E51F5671D2ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509969   (788755) от 21.11.2021
-
-Mylene Farmer - Studio albums & Remixes (1986 - 2018) 15 CD [APE|Lossless|image + .cue] <Chanson, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Милен Жанна Готье (фр. Mylène Jeanne Gautier), профессионально известная как Милен Фармер (Mylène Farmer), французская певица канадского происхождения, композитор, актриса и поэтесса. Одна из самых известных современных французских исполнительниц популярной музыки.
-Редко появляясь в СМИ и избегая обсуждения своей личной жизни, она построила долговременный (   Читать дальше...   )1986 - Cendres de lune
-1988 - Ainsi soit je
-1991 - L'autre
-1995 - Anamorphosee(   Читать дальше...   )Жанр: Chanson, Pop Rock, Synth-popПродолжительность: 13:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0215552BE5237F423749E8A27FE51C63926159A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203363   (788649) от 01.02.2018
-
-X Ray Connection - X Ray Connection (1984) LP [MP3|320 Kbps] <Electronic, Electro, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoot (Special Video Version) (5:58)
-02. Escape From Space (6:56)
-03. No More Communication (5:33)
-04. Replay (5:21)(   Читать дальше...   )Жанр: Electronic, Electro, DiscoПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7460279D004920D4A8D45A80CD971AA90D3294EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203306   (788607) от 01.02.2018
-
-O-Zone - VIP (2005) [MP3|320 Kbps] <EuroDance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Doi (3:46)
-02. VIP (2:49)
-03. De Ce Plang Chitarele (4:10)
-04. Number 1 (3:41)(   Читать дальше...   )Жанр: EuroDanceПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A72E2F39186F12A7815FF0E684D42B9894B6FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203540   (788218) от 02.02.2018
-
-Dana Dawson (Дана Доусон) - Black Butterfly (1995) EMI, TOCP-8648, Japan [MP3|320 Kbps] <Contemporary R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Да́на До́усон (англ. Dana Dawson; 7 августа 1974, Ямайка (англ.) русск., Куинс, Нью-Йорк, США - 10 августа 2010, Нью-Йорк, США) - американская актриса и певица. Как певица, Дана выпустила свой первый сингл в 1988 году - «Ready To Follow You». Песня была написана французской певицей Жаклин Тайеб (англ.)русск., записана во Франции и достигла Top 20 во французском (   Читать дальше...   )01. Interlude 'Black Butterfly' 0:39
-02. 3 Is Family 3:39
-03. Got To Give Me Love 4:10
-04. Show Me 4:03(   Читать дальше...   )Жанр: Contemporary R&B, SoulПродолжительность: 01:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAE5890999212FF326A144ACE94F1A5727F2678
 ```
 
 https://mybot314.ru/tekegram_catalog/

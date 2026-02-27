@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1855390   (1058149) от 22.02.2026
+
+VA - 70's Styles (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bread - Baby I'm-A Want You - (02:23)
+ 02. Seals and Crofts - Summer Breeze - (03:22)
+ 03. Donny Hathaway - Jealous Guy - (03:08)
+ 04. Rod Stewart - Da Ya Think I'm Sexy - - (05:29)(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 04:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0546583D34E7E58A03E77AFD6C7E85A7D38B3D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854812   (1057721) от 19.02.2026
 
 VA - Low Light, Warm Feelings (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -715,35 +744,6 @@ VA - Today’s Anthems (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A962A06732B3AA23DFCFC05FD2815B1FD65A8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848796   (1053084) от 18.01.2026
-
-VA - Disco Hits of The '70s, '80s & '90s (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballad, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thea Austin SNAP! - Rhythm Is Dancer (3:44)
-02. Company B - Fascinated (Re-Recorded) (4:43)
-03. Jagged Edge - Where the Party At? (Re-Recorded) (4:24)
-04. Leif Garret - Play That Funky Music (4:28)(   Читать дальше...   )Жанр: Pop, Ballad, DiscoПродолжительность: 05:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94219E3AF657AD833AAE0533352B0D78DA357BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

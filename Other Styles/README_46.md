@@ -1,3 +1,70 @@
+###  Публикация: 647653   (856835) от 23.04.2013
+
+VA - Anos 60: Sucessos Inesqueciveis De Uma Decada (5CD) (1998) [MP3|320 кб/с]<Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - The Lion Sleep Tonight - Norman Percival e Orquestra -
+02 - Puppet on a String - Frank Comstock e Orquestra -
+03 - Itsy Bitsy Teenie Weenie Yellow Polka Dot Bikini - Leslie Lewis e Orquestra - -
+04 - Ob-La-Di Ob-La-Da - Christian Colombier e Orquestra -
+05 - Yellow Submarine - The Mike Morrison Congregation -
+06 - Rocking Hoose - Andre Brasseur, Teclado e Orquestra -
+07 - Happy Together - Ralph Benatar e Orquestra -
+08 - Satisfaction - The Mayfair Symphony Orchestra -
+09 - She Loves You - Ralph Benatar e Orquestra -
+10 - I'm Believer - Arthur Greenslade e Orquestra -(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F8E1515C0801556C9D82ABC06446DB5460CD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647356   (856708) от 23.04.2013
+
+Shinichi Kinoshita & Roby Lakatos - SO GU Kinoshita Meets Lakatos (2002) [APE|Lossless]<World, Classical Violin & Tsugaru Shamisen>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Csardas [07:47]
+02. Hanasachi [07:04]
+03. On The Foot of Csitari Mountain [08:16]
+04. Hora [07:57]
+05. Kobe Rumba [05:57]
+06. So Gu [10:35]
+07. Ichie [05:11]Жанр: World, Classical Violin & Tsugaru ShamisenПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376714   (856665) от 19.04.2020
 
 Theodor Bastard - Волчья Ягода (2020) [MP3|320 Kbps] <Trip Hop, Folk Rock, Darkwave>
@@ -747,67 +814,6 @@ Various - Полонезы И Вальсы Русских Композиторо
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 190247   (853018) от 11.04.2010
-
-Astor Piazzolla - The History of Tango (5CD) (2006) [APE|Lossless]<Tango>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TangoПродолжительность: 05:21:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769971   (852986) от 24.03.2014
-
-Steve Barakatt - The Best of Steve Barakatt (2004) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(3:50) 01. Flying
-(3:59) 02. California Vibes
-(3:30) 03. Rainbow Bridge
-(3:25) 04. I Believe in You
-(4:22) 05. All About Us
-(4:19) 06. Eternity
-(3:58) 07. I'm Sorry
-(3:23) 08. Day by Day
-(3:58) 09. Montreal 350
-(3:49) 10. Nuit d'Amour a Paris(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4B567BD567FD6B668BA3645330EAB74775DA1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

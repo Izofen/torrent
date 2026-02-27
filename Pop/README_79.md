@@ -1,3 +1,290 @@
+###  Публикация: 1273546   (799840) от 02.01.2019
+
+Tom Hooker - No Time To Say Goodbye (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Boys Don't Cry (5:46)
+02. You're Right (4:26)
+03. Pretty Ugly (4:07)
+04. Play With Fire (4:16)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94CCB1E5F2681FDE7302FF854F8B9D1E795088D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273667   (799839) от 02.01.2019
+
+Rene Riche And Her Cosmic Band - Love In Space (1978) LP [MP3|320 Kbps] <Electronic, Space Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galactic Prelude (5:02)
+02. Magic Ride (6:03)
+03. Light Of Love (6:54)
+04. Love In Space (8:16)(   Читать дальше...   )Жанр: Electronic, Space DiscoПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E40FCF63925199D04D5320B370ADC8D9B945CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273655   (799834) от 02.01.2019
+
+VA - Top Hits Winter 2019 (2019) 3CD [MP3|320 Kbps] <Pop, Dance, Hip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dance, Hip HopПродолжительность: 03:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2B63E19CE03D5C78F2FBCB150EEF436C8EB592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121816   (799668) от 03.04.2017
+
+Apple Jam - Beatlemagic (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересные диско-вариации тем Битлов в стиле Arabesque, ABBA и т.п.01. She Loves You (3:22)
+02. Lady Madonna (3:36)
+03. Eleanor Rigby (3:50)
+04. A Hard Days Night (3:44)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Pop, DiscoПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D75F93A6B20492ACE62DE87753E7E577A08F845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121952   (799650) от 03.04.2017
+
+C.J. & Co - Devil's Gun (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil's Gun (7:08)
+02. We Got Our Own Thing (9:24)
+03. Free To Be Me (5:05)
+04. Get A Groove In Order To Move (5:11)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5AF574BD83E83E7525FC40802B37B4D2360E221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121736   (799644) от 03.04.2017
+
+Oliver's Planet - Oliver's Planet (1979) LP [MP3|320 Kbps] <Electronic, Electro, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Sun (3:41)
+02. Let Me Fly To The Stars (2:52)
+03. Gonna Get You (2:44)
+04. Thoughts Of Love (2:41)(   Читать дальше...   )Жанр: Electronic, Electro, DiscoПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2D5F0C403D5F859CB7EC76F133DA972B3D0F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121888   (799638) от 03.04.2017
+
+VA - Italo Disco - The Lost Legends Vol. 4 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ventura – Another Time (05:11)
+2. Love Kills – I Want To Become (06:19)
+3. G & M – Don't Let You Down (06:15)
+4. Christal – Fire Lady (06:16)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7F433C825C3069AFC346311CED41BD2127BA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121795   (799636) от 03.04.2017
+
+VA - Italo Disco - The Lost Legends Vol. 3 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799636.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Keepers – Lovetomatic (04:46)
+2. Stephen Head – Switch On Fellini (07:31)
+3. Kel-Air & Band Band – Tuareg (05:48)
+4. Reale Accademia – Run Away In The Night (04:26)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876D8B8186F8C4A08512D3BCE8C7501F2A77BF2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121881   (799626) от 03.04.2017
+
+VA - Italo Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799626.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Reale Accademia – Beautiful Witch (04:51)
+2. Galvanica – Nightlights In Japan (06:16)
+3. Bryan Baker – Niagara Falls (06:14)
+4. Keepers – Notty Girl (07:56)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF65085502307875A744A9158D65023D4C1840A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121923   (799614) от 03.04.2017
+
+VA - Italo Disco - The Lost Legends Vol. 5 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799614.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mod-it – Physical Fascination (05:18)
+2. Paul Boy – Lucky Guy (05:15)
+3. Lettieri – Melody (06:04)
+4. Joe Car – Dancing Dode (06:18)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382CC84914FABBE968AFF098C0CEE4DA9D739A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506582   (799497) от 01.11.2021
 
 VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
@@ -452,296 +739,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34621ED403B7C2235D03112664D300B1023FD6DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507179   (798708) от 03.11.2021
-
-Goombay Dance Band - 4 Albums (1980 - 1982) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Goombay Dance Band - немецкая группа созданная в 1979 году Оливером Бендтом и названная в честь небольшой бухты на Карибском острове Сент-Люсия. Их музыка имеет своеобразное звучание представляющее собой смесь disco, soca, calypso и вестерн поп. Группа пользовалась наибольшим коммерческим успехом в начале 1980-х., порождая такие хиты, как " Sun of Jamaica »,« (   Читать дальше...   )Список альбомов:
-1980 - Land Of Gold
-1980 - Sun Of Jamaica
-1981 - Holiday In Paradise(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 03:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC727A3C59247E275C5C8CA44E83CF428D406ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518187   (798651) от 04.01.2019
-
-Крис Кельми - Greatest Hits (1993) [MP3|320 кб/с]<Pop, Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночное рандеву
-02. Усталое такси
-03. Козырная дама
-04. Леди Блюз(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA2ACDD4194F817B210CA9453B8B76E6BBF92C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507163   (798637) от 03.11.2021
-
-Blue System - My Star (2021) [FLAC|Lossless|tracks + .cue] <EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sorry Little Sarah (Maxi Version) (5:16)
-02. Big Boys Don't Cry (3:13)
-03. My Bed Is Too Big (No Longer Too Big Bed Mix) (5:28)
-04. Under My Skin (Radio Version) (3:35)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB90366F3E299C65F2992C1FC60AA88571035FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507723   (798273) от 05.11.2021
-
-MARUV - No Name (2021) [MP3|320 Kbps] <Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798273.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Money
-2. Ne zabudu
-3. Put your hands up
-4. You and I(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E2237384C16616D3A75447D25E0F026FD00044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507650   (798269) от 05.11.2021
-
-Fancy - Hit Party (1998)(Compilation)[FLAC|Lossless|image + .cue] <Euro-disco, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flames of Love (bass up version)
-02. Blue Eyes and a Broken Heart
-03. Fools Cry
-04. Slice Me Nice(   Читать дальше...   )Жанр: Euro-disco, SynthpopПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B2A605627524887A6F1E1BB5B082E18D85DBBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507721   (798244) от 05.11.2021
-
-VA - Трибьют t.A.T.u. "200 по встречной" (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Даня Милохин - Не догонят
-2. Монеточка - Мальчик-гей
-3. Вера Брежнева - 30 минут
-4. ЛСП/White Punk - Клоуны(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F39E934B5F79B06B065AC71353C7EC1015525E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507598   (798243) от 05.11.2021
-
-ABBA - Voyage (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Have Faith In You (5:09)
-02. When You Danced With Me (2:50)
-03. Little Things (3:08)
-04. Don't Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A954D8FCA97188C542DEFEBF21AF8C315A4F4704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507667   (798220) от 05.11.2021
-
-ABBA - Voyage (2021) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Have Faith In You (05:09)
- 02. When You Danced With Me (02:50)
- 03. Little Things (03:08)
- 04. Don't Shut Me Down (03:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0C460E3FF37E2D1F9E306F5C17893EE7E19BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507966   (798123) от 06.11.2021
-
-Diana Ross - Thank You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank You
-02. If The World Just Danced
-03. All Is Well
-04. In Your Heart(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6CFFC1DF2E3630793B37A332B9A292CF94E57EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508055   (798120) от 06.11.2021
-
-MARUV - No Name (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798120.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Money
-2. Ne zabudu
-3. Put your hands up
-4. You and I(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865691CA74C096316782AD38FD14A38126A9E20E
 ```
 
 https://mybot314.ru/tekegram_catalog/

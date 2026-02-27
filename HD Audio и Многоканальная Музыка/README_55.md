@@ -1,3 +1,199 @@
+###  Публикация: 1604028   (210213) от 12.01.2023
+
+VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_210213.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Оркестр Джеймса Ласта – Скокиан
+А2 Оркестр Джеймса Ласта – Звезды В Твоих Глазах
+А3 Оркестр Джеймса Ласта – Жизнь Прекрасна
+А4 Оркестр Поля Мориа – Изадора(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484377A9E695C9E0DEAD36036F3A1CB9490D33BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643235   (210121) от 30.06.2023
+
+Alan Parsons – A Valid Path (2004) 2006 [DTS 5.1 CD-DA|16/44.1|image+.cue|Audio-DVD] <Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return to Tunguska (featuring Shpongle & David Gilmour)
+02. More Lost Without You (featuring P.J. Olsson)
+03. Mammagamma '04 (featuring Jeremy Parsons)
+04. We Play The Game (featuring The Crystal Method)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3262412E32FDD850A372D6CAF1105A062D682DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643702   (210000) от 02.07.2023
+
+Opus3 - A Selection from Test-records 1,2 & 3 (2008) [DSD64 5.1, 2.0|image(iso)|SACD-R] <demos/samplers>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_210000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thérèse Juel - Tiden bara går (R. Rönning)
+02. Stockholm Guitar Quartet - Invention No. 14 (J.S. Bach)
+03. Tomas Örnberg's Blue Five - Buddy Bolden Blus (Morton)
+04. Knoa - Unca's Flight (M. Lingedal)(   Читать дальше...   )Жанр: Jazz, Blues, Classical, Folk, World, & CountryПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3A1BBCC1C3EDA527A9C6DFB92BA2F6707BB187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571642   (209996) от 22.08.2022
+
+Eagles - On The Border (1974) 2022 [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic Rock, Country Rock, Folk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_209996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Already GoneЖанр: Classic Rock, Country Rock, Folk RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D77F06C408DA47943BFADF7FE62F4D0F5B9912A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661858   (209828) от 16.01.2023
+
+Azul Y Negro - Digital (1983)  [FLAC|2.0 24/192|image (Vinyl-Rip)<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_209828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night 4:03
+02. Isadora 4:03
+03. No Controlo Nada 3:53
+04. Me Estoy Volviendo Loco 3:35(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4BD9E87949CE71FE289F047EAF16A076B29EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645052   (209478) от 07.07.2023
+
+BluScenes: Gallery Musee (2012) [DTS-ES 6.1 CD-DA|24/44.1|image+.cue|BD-Video] <Lounge, Relax>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_209478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scene 01  00:54:41
+02.  Scene 02  00:33:27Саундтрек видового фильма, представляющего музейные полотна художников-импрессионистов. На мой взгляд, музыка имеет самостоятельную ценность как образец хорошего Релакса. Поэтому, собственно, и сделал данный трансфер))
+О том, как послушать. Обладатели ресиверов, оборудованных декодером DTS-ES, смогут (в добавление к обычному (   Читать дальше...   )Жанр: RelaxПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A09D37DE45CB6B4F0904491A8E2692D5EB91CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606387   (209458) от 21.01.2023
+
+Amanda Marshall - Everybody’s Got A Story (2001) 2002 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_209458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень симпатичный альбом певицы с необычно смешанной кровью: ее мать - из Тринидада, отец - канадец. В меру - неторопливый, мелодичный, в меру - энергичный многоканальный микс очень хорош. Великолепно сбалансированный и сведенный звук - образец аудиенс-микса.За образ SACD благодаримЖанр: Pop/RockПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5903D116A54060A647A42F05453FA4818CE39FA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613838   (209326) от 09.07.2023
 
 Bloodbound - Studio Albums (10 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
@@ -543,209 +739,6 @@ AC/DC  — австралийская рок-группа, сформирова�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B244C7F29869C1B9F72CAA8D9CD2C49EEF44573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653071   (206046) от 17.08.2023
-
-ELO (Electric Light Orchestra) - Time (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Synth-pop, Symphonic Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206046.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Prologue
-A2 Twilight
-A3 Yours Truly, 2095
-A4 Ticket To The Moon(   Читать дальше...   )Жанр: Synth-pop, Symphonic Rock, Pop RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F787043A0FC2CB2B0C08B19421C4317098EA5DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653165   (205984) от 18.08.2023
-
-Ozzy Osbourne - Patient Number 9 (2022) [WavPack|32/192|image + .cue|Vinyl-Rip]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205984.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Immortal
-A2 Patient Number 9
-A3 Parasite
-B1 No Escape From Now(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC930CB49178CE821FAA5917B03CB286D01ABE26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830794   (205759) от 27.10.2025
-
-Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical/Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quo Vadis - канадская дэт-метал-группа из Монреаля, Квебек, образованная в 1992 году.1996 - Forever...
-2000 - Day Into Night
-2001 - Passage In Time
-2004 - Defiant ImaginationЖанр: Technical/Melodic Death MetalПродолжительность: 02:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12743AAABEAF35762E2EAC29235D96F9FF08C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654042   (205374) от 19.08.2023
-
-Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sign Of Satan
-02. After The Bomb
-03. Dark Fade
-04. Homicide Rocker(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC90F74B74782CCCA087D4670E926F780CEF65D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654445   (205196) от 20.08.2023
-
-Sonic Boom - Reset in Dub (Adrian Sherwood 'Reset In Dub' Version) (2023) [FLAC|24/44.1|tracks|WEB-DL] <Neo-Psychedelia, Dub>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gettin’ to the Point Dub (Adrian Sherwood 'Reset In Dub' Version) [00:03:33]
-02. Go On Dub (Adrian Sherwood 'Reset In Dub' Version) [00:04:48]
-03. Everyday Dub (Adrian Sherwood 'Reset In Dub' Version) [00:03:50]
-04. Edge of the Edge Dub (Adrian Sherwood 'Reset In Dub' Version) [00:05:33](   Читать дальше...   )Жанр: Neo-Psychedelia, DubПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516908C1EEAAD064655C04167C721E7DD1604011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654423   (205144) от 21.08.2023
-
-Manowar - Battle Hymns (1982) Japanese Edition [FLAC|24/192|image + .cue|Vinyl-Rip]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Death Tone
-02.Metal Daze
-03.Fast Taker
-04.Shell Shock(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C65853B6674537CA4F6CB88939C6F3BF0C3C2C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654607   (205122) от 21.08.2023
-
-Kreator - Violent Revolution (2001) Nuclear Blast, Reissue 2022 [FLAC 24/192|tracks|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205122.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Reconquering the Throne
-A2 The Patriarch
-A3 Violent Revolution
-A4 All of the Same Blood(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D634E009E064101BADD89BCC1A58B569E1C50319
 ```
 
 https://mybot314.ru/tekegram_catalog/

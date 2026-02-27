@@ -1,3 +1,212 @@
+###  Публикация: 1327959   (367684) от 28.09.2019
+
+The Prodigy - No Tourists (2018) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Drum & Bass, Big Beat>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367684.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Need Some1 (2:43)
+A2. Light Up The Sky (3:20)
+A3. We Live Forever (3:43)
+B1. No Tourists (4:18)(   Читать дальше...   )Жанр: Drum & Bass, Big BeatПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0828362A46276D448EBE5A112DF8077F3ED08F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328054   (367505) от 28.09.2019
+
+Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sekai Wa Futari No Tameni
+02. Kitaguni No Aoi Sora
+03. Koi
+04. Nagisa No Senorina(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252811   (366279) от 03.11.2010
+
+Robert Miles - Organik (2001) [DTSCD][UP]<Trance, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_366279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tsbol
+02. Separation
+03. Paths
+04. Wrong
+05. It's All Coming Back
+06. Pour Te Parler
+07. Trance Shapes
+08. Connections
+09. Release Me
+10. Improvisations Part 1(   Читать дальше...   )Жанр: Trance, InstrumentalПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836126   (366127) от 30.10.2014
+
+Giorgio & Martin Koppehele - Lichtmond 3: Days Of Eternity (2014) [DTS-ES Discrete 6.1 44.1/16 | .wav+.cue (Blu-ray)] <NewAge|Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366127.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nightflight to Chronos (Part 1)
+2. Nightflight to Chronos (Part 2)
+3. Feel the Spirit
+4. Wheel of Time(   Читать дальше...   )Жанр: NewAge, AmbientПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCA963D79C779DE628ADCE4895E1F312BB0E161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255147   (365728) от 17.10.2018
+
+Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rapid Fire (4:08)
+02. Metal Gods (4:00)
+03. Breaking The Law (2:36)
+04. Grinder (3:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BE611D1BAD9E26B3E4A979616B4983A45386C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416428   (364973) от 17.10.2020
+
+Santana - Santana III (1971) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Psychedelic Rock, Latin>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364973.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Batuka
+A2 No One To Depend On
+A3 Taboo
+A4 Toussaint L'Overture(   Читать дальше...   )Жанр: Psychedelic Rock, LatinПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AE9BFE323CA7F40FB23B1DE856B28C914BD70E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576418   (364260) от 15.09.2022
+
+Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Blues, Rhythm & Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы Все Любим Музыку
+02. Разбитое Сердце
+03. Старая Река
+04. С Тех Пор, Как Встретил Тебя(   Читать дальше...   )Жанр: Blues, Rhythm & BluesПродолжительность: 00:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CC52CC861C73F32509F20ABB73900DBBBF8C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328431   (363130) от 30.09.2019
 
 Toshiro Ito & '68 All Stars - Romantic Guitar Mood Best 16 (1973) [FLAC 2.0|44,1/16|image +.cue|Vinyl-Ri] <Pop, Jazz, Easy Listening>
@@ -545,208 +754,6 @@ A4 Девушка В Белом • A. Girl In White(   Читать дальш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C4207DEC35430C0DBC66FD70EF84F7EE3AE3FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418334   (348959) от 24.10.2020
-
-Джоэл Шпигельман (синтезатор "Курцвейль 250") - Бах В Стиле ''Нью Эйдж'' (Ария с вариациями 1 - 30) (1991) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Electronic, Classical, New Age>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ария С Вариациями (Гольдберг-Вариации)
-A. Ария. Вариации 1 — 15	27:30
-B. Вариации 16 — 30. Ария 26:30Жанр: Electronic, Classical, New AgeПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC2E6412BEE348F10DD94AE8C445F25A6BC3A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179263   (348773) от 31.10.2017
-
-Весёлые Ребята - Перекрёсток Судьбы (2015) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Выше неба (А.Добронравов – В.Пеленягрэ)
-02. Ты летела ко мне (А.Добронравов – Н.Пляцковская)
-03. Одинокая птица (П.Слободкин – Н.Пляцковская)
-04. Светлая ночь (А.Виста – А.Виста)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558FB2CA57D2652980F2A6F6E83DFD47B253470F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073284   (347008) от 15.11.2016
-
-Pink Floyd - Atom Heart Mother (1970) [DTS 4.0|44.1/16|image +.cue|DVD-AudioV] <rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Atom Heart Mother
-02 - If
-03 - Summer '68
-04 - Fat Old Sun(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC21A018C73A63C217114DC4D2016D08B37141B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418636   (346793) от 25.10.2020
-
-Klaus Schulze & Rainer Bloss - Dziekuje Poland Live '83 (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Electronic, Berlin-School>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346793.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Katowice (Iris)
-B Warszawa (Halina)
-C Lodz (Janina)
-D1 Gdansk (Tina)(   Читать дальше...   )Жанр: Electronic, Berlin-SchoolПродолжительность: 01:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF1C9A94ADE865987476D01A3875C882A18B7D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179457   (346191) от 01.11.2017
-
-Robert Plant and The Sensational Space Shifters - Carry Fire (2017) [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The May Queen (4:15)
-02. New World (3:28)
-03. Season's Song (4:18)
-04. Dance With You Tonight (4:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D9E113ADA24AA8B25EFC0C10B3BBBA6F3EBA2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073541   (345064) от 16.11.2016
-
-Sting - 57TH & 9TH (2016) [WavPack 2.0|192/32|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345064.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. I Can't Stop Thinking About You (3:31)
-A2. 50,000 (4:44)
-A3. Down, Down, Down (3:48)
-A4. One Fine Day (3:29)(   Читать дальше...   )Производство: A&M Records – B0025617-01Жанр: RockПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A1EB9397DDC99578E447B43FAA1ACC517D74F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418905   (344299) от 26.10.2020
-
-Yes - Time And A Word (1970) 1991 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344299.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 No Opportunity Necessary, No Experience Needed
-A2 Then
-A3 Everydays
-A4 Sweet Dreams(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70858773752C1E07300167E7C371F1DC5A3ADCF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1335034   (1007228) от 10.07.2021
+
+Jah Khalib - Collection 6 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Hardcore, R&B, Soul>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleduj za mnoj (3:44)
+02. MamaMiya (ft. Artik & Asti) (2:16)
+03. Desert Eagle (3:46)
+04. Lilovaya (2:52)(   Читать дальше...   )Жанр: Rap, Hip-Hop, Hardcore, R&B, SoulПродолжительность: 00:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0182DE544DB7C454A097052986534FB33D15857F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349940   (1003732) от 04.01.2020
 
 VA - 100 Greatest Rap Songs The Greatest Hip-Hop Tracks Ever (2020) [MP3|320 Kbps] <Hip Hop, R&B, Rap>
@@ -736,35 +765,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3261D007807B2145CB3587DEB9BD4E6769FE832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360306   (960666) от 15.02.2020
-
-VA - 100 Greatest 90s Hip Hop (2020) [MP3|320 Kbps] <Hip Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Notorious B.I.G. - Juicy (2005 Remaster)
-02. Ol' Dirty Bastard - Brooklyn Zoo
-03. Junior M.A.F.I.A. - Get Money
-04. Del tha Funkee Homosapien - Mistadobalina(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 06:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7475D1CBB411C6CA551587BAE6C1875E5FCD03A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,218 @@
+###  Публикация: 853948   (156257) от 27.12.2014
+
+Blue Oyster Cult - Fire Of Unknown Origin (1981)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_156257.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Fire Of Unknown Origin (4:12)
+A2. Burnin' For You (4:32)
+A3. Veteran Of The Psychic Wars (4:50)
+A4. Sole Survivor (4:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E6C99E010067B0C8009E48F499565050784F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738250   (155993) от 24.12.2013
+
+Modern Talking - Поговорим о любви, Ready For Romance (1986, 1987) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поговорим о любви 1
+1. Любимая (Cheri Cheri Lady) 3:46
+2. Немного любви (With A Little Love) 3:33
+3. Бурные воды (Wild Wild Water) 4:18
+4. Ты - мое сердце, ты - моя душа (You're My Heart, You're My Soul) 5:32
+5. Как ангел (Just Like An Angel) 3:14
+Поговорим о любви 2
+1. Небеса будут знать (Heaven Will Know) 4:02
+2. Любовь здесь больше не живет (Love Don't Live Here Anymore) 4:22
+3. Почему именно сегодня? (Why Did You Do It Just Tonight?) 4:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0159D5A7AE17443E0DAE7B4D42D238F2A89D1A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738039   (155971) от 24.12.2013
+
+Stars On 45' - Звёзды дискотек (2LP) (1983, 1984) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Rock & Roll, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Группа Stars on 45  15:52
+Сторона 2
+1. Группа Stars on 45  8:08
+2. Long Tall Ernie And The Shakers  4:35
+3. Long Tall Ernie and The Shakers  4:33
+Сторона 3
+Рок-н-роллы 15:54
+Сторона 4
+Песни Стива Уандера и других 14:44Жанр: Rock & Roll, DiscoПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:728CC25AEF93BBB5964D3C2875ACBAA18C051813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968277   (155725) от 23.12.2015
+
+Mylene Farmer - Interstellaires (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synth-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_155725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interstellaires (3:11)
+02. Stolen Car (en duo avec Sting) (3:23)
+03. A rebours (4:10)
+04. C'est pas moi (3:41)(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2C047B00BD522C8EEB1D6CC7EE29E93D48E48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601058   (154067) от 29.12.2022
+
+Feuerschwanz - Todsunden (2022) [FLAC 2.0|44/24|tracks|WEB-DL]  <Folk-metal, Medieval folk rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme! Gimme! Gimme! (ABBA cover) (3:07)
+02. Twilight of the Thunder God (Amon Amarth cover) (3:45)
+03. The Bad Touch (Bloodhound Gang cover) (4:16)
+04. Limit (Deichkind cover) (3:13)(   Читать дальше...   )Жанр: Folk-metal, Medieval folk rockПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF1F2E165861465B8872AC4B79FE5E3E47F589E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601061   (153975) от 29.12.2022
+
+Lord Of The Lost - Blood & Glitter (2022)  [FLAC 2.0|44/24|tracks|WEB-DL] <Dark Rock, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood & Glitter (2:59)
+02. Leave Your Hate in the Comments (4:24)
+03. Absolute Attitude (3:32)
+04. The Future of a Past Life (feat. Marcus Bischoff) (3:25)(   Читать дальше...   )Жанр: Dark Rock, Gothic MetalПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3A8ED360FD18A91A59713BE22E18F5370E0D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600865   (153682) от 29.12.2022
+
+Pink Floyd - Live at the Rainbow Theatre, London 1972-02-19 (1972) [FLAC 2.0|44/24|tracks|WEB-DL] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe (In the Air) (Edit) (01:01)
+02. The Travel Sequence (06:15)
+03. Time (07:03)
+04. The Mortality Sequence (04:21)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1D069B0801E0090E629DF13E63E6FA20910F25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677142   (153594) от 16.11.2023
 
 Opeth - Orchid (1995) Reissue, 2016, Candlelight Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
@@ -539,215 +754,6 @@ Side 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F9F73D39A02BFB74BDA20D934567DC5933EFDC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271135   (149983) от 23.12.2018
-
-The Marshall Tucker Band - Still Holdin' On (1988) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149983.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Dancin' Shoes
-A2 Keeping The Love Alive
-A3 Once You Get The Feel Of It
-A4 Still Holdin' On(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809AAF5AEBE4B90562ECDD6AC81143FAEF8D6077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271133   (149939) от 23.12.2018
-
-Chuck Berry - St. Louis To Liverpool (1984) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149939.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Little Marie
-A2 Our Little Rendezvous
-A3 No Particular Place To Go
-A4 You Two(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6966655A3FC70647D315931B2E0B51DBAA08E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738801   (149897) от 26.12.2013
-
-Оркестр Олега Лундстрема - В сочных тонах, В наше время (1983) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Big Band, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149897.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сочных тонах 1
-1. Блюз в до мажоре (C-jam Blues) - D. Ellington  8:50
-2. Звёздная пыль (Stardust) - H. Carmichae  4:50
-3. В сочных тонах (In A Mellotone) - D. Ellington  6:04
-В сочных тонах 2
-1. Четыре брата (Four Brothers) - J. Giuffre  2:36
-2. Стелла при свете звезд (Stella By Starlight) - V. Young  8:20
-3. Четыре плюс два (Four Plus Two) - O. Nelson  7:30
-В наше время 1
-1. Любви дороги (Love Roads) - О. Лундстрем  5:03(   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706CA4AE7C19AF2009643FA543D803E0B5AD08A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271128   (149848) от 23.12.2018
-
-Mariah Carey - Dance Remixes '99 (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, House>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. I Still Believe (The Kings Mix)
-02. Honey (Classic Mix)
-03. When You Believe (Featuring – Whitney Houston)(   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271279   (149756) от 23.12.2018
-
-Supertramp - Crime Of The Century (1974) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. School (5:33)
-02. Bloody Well Right (4:30)
-03. Hide In Your Shell (6:44)
-04. Asylum (6:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:022EDEE7353C7925A1A8419476F3C06B854D721C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677924   (149430) от 19.11.2023
-
-Warfect - Studio Albums (4 releases) (2009-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warfect - трэш-метал группа из Швеции, основана в 2008 г.2009 - Depicting the Macabre
-2013 - Exoneration Denied
-2016 - Scavengers
-2020 - Spectre Of DevastationЖанр: Thrash MetalПродолжительность: 03:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6BDEB746B07B4DC2407D69EC860BB817000BE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677871   (149391) от 19.11.2023
-
-Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Water [00:04:15]
-02. What's Simple Is True [00:03:35]
-03. Hands [00:03:55]
-04. Kiss The Flame [00:03:16](   Читать дальше...   )Жанр: PopПродолжительность: 02:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938F9EF1BCB35DA2C9EC017E4D8033972169A022
 ```
 
 https://mybot314.ru/tekegram_catalog/

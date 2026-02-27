@@ -1,3 +1,61 @@
+###  Публикация: 1133906   (689090) от 15.05.2017
+
+The Romantic Strings Orchestra - Thanks For The Memory (1995) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689090.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Embraceable You (2:31)
+2. Over The Rainbow (3:16)
+3. Sunrise Serenade (3:00)
+4. I'm Gettin' Sentimental Over You (2:52)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650CE1BEE4DFB411DF518F67ACA4E42A5F71633B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133876   (689082) от 15.05.2017
+
+Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Series Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer - Genius (00:51)
+02. Lorne Balfe - Proving the Theory (01:40)
+03. Lorne Balfe - Forbidden Love (03:05)
+04. Lorne Balfe - Nobel Prize (01:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4890C61467294260D8E3AD9664081E18CC158588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133869   (688965) от 15.05.2017
 
 Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -681,64 +739,6 @@ Ivan Torrent - Immortalys (2017) [FLAC|Lossless|WEB-DL|24/44.1-88.2 kHz] <Traile
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D2E5F971A5956C0A06C21D70C37EEE582C6E955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028842   (686101) от 24.06.2016
-
-Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HBO Series) Season 6 (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:51)
-02. Blood of My Blood (03:35)
-03. Light of the Seven (09:49)
-04. Needle (02:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D10725D38322E3AD69192FED5D4E3805D108EE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028841   (685961) от 24.06.2016
-
-Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HBO Series) Season 6 (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:51)
-02. Blood of My Blood (03:35)
-03. Light of the Seven (09:49)
-04. Needle (02:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7101CA02016DD1847B669C6C0C30593D1BB7533B
 ```
 
 https://mybot314.ru/tekegram_catalog/

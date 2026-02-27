@@ -1,3 +1,293 @@
+###  Публикация: 1600101   (159288) от 25.12.2022
+
+Pentatonix - Holidays Around the World (2022) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pentatonix (PTX) - американская a cappella группа из Arlington, Texas, которая сформировалась в 2011 году. Их канал на YouTube в настоящее время имеет 19,8 миллиона подписчиков и 5,7 миллиарда просмотров. Pentatonix выиграли три премии Grammy в 2015, 2016 и в 2017 годах. 21 сентября 2022 года члены группы анонсировали свой шестой рождественский альбом Holidays Around (   Читать дальше...   )01. feat. Meghan Trainor - Kid on Christmas (3:22)
+02. It’s the Most Wonderful Time of the Year (2:50)
+03. feat. Grace Lokwa - Love Came on Christmas (Joy to the World × Kumama Papa) (4:08)
+04. Star on Top (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDF76E1EE55F2EB62B8A6B422BB510A76199C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676023   (159284) от 11.11.2023
+
+Natasha St-Pier - Christmas Album (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <French Pop, Jazz, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Happy Day
+02. Rockin’ Around The Christmas Tree
+03. Feliz Navidad
+04. Hallelujah(   Читать дальше...   )Жанр: French Pop, Jazz, ChristmasПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38CE09A9606E30091854E0C78DF0869EE07CC2D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675914   (159258) от 11.11.2023
+
+Ева Польна - Открытый Космос (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159258.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Verdi
+3. Танцевать
+4. Без сожаления(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C84304B16C5C371AB3540A9EBE1EDC0D12FA0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600176   (159036) от 26.12.2022
+
+Michael Kistanov - All About You and Me (2022) [MP3|320 Kbps] <Pop-Rock, Folk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Story Has Just Begun [00:04:08]
+02 - I Fell in Love with You [00:03:25]
+03 - Happy Days [00:03:18]
+04 - We Just Lived [00:03:46](   Читать дальше...   )Жанр: Pop-Rock, FolkПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7855F089C1F5444DC8FA7151647F616674731A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600269   (159008) от 26.12.2022
+
+Natalie Cole - Natalie (2018) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_159008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Mr. Melody (03:10)
+02 Heaven Is With You (04:14)
+03 Sophisticated Lady (She's A Different Lady) (03:30)
+04 No Plans For The Future (03:15)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE123BB795ECE8831FC42C16E95D6ADCD2FB851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600224   (158999) от 26.12.2022
+
+Jonasu - Cutting Through Noise (2022) [FLAC|Lossless|WEB-DL|tracks] <Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Don't We
+02. Black Magic
+03. On My Mind
+04. All Night & Every Day(   Читать дальше...   )Жанр: DanceПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CFBC8E81C48F66BEBB751FEC36E26CFCF8E683D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600154   (158988) от 26.12.2022
+
+Manizha - Колыбель для повзрослевшего (2022) [MP3|320 Kbps] <Alternative Pop, Ethno Pop, Electronic>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Здравствуй (Intro) [00:00:40]
+02 - гость [00:02:22]
+03 - Мы снова окажемся (Interlude) [00:01:10]
+04 - под небом голубым _ poyoni osmoni [00:03:13](   Читать дальше...   )Жанр: Alternative Pop, Ethno Pop, ElectronicПродолжительность: 00:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3279E632DEEFA5DD85ED8464323C3057A8759590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600258   (158964) от 26.12.2022
+
+VA - Best of the Best 2022 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - Anti-Hero (3:20)
+02. TALK - Run Away to Mars (3:33)
+03. Yung Gravy - Betty (Get Money) (2:26)
+04. Reve - CTRL + ALT + DEL (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E142EB8F37901D5CD9E2161D793A6BC5207E99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966478   (158713) от 20.12.2015
+
+Janet Jackson - Janet Jackson (1982) [FLAC|Lossless|tracks + .cue] <Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say You Do (6:50)
+02. You'll Never Find (A Love Like Mine) (4:11)
+03. Young Love (4:58)
+04. Love and My Best Friend (4:48)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB98FC0F0F4292E9C2FBEB97A91BDF01A6A8334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966500   (158706) от 20.12.2015
+
+Atomic Kitten - Right Now (2001) [FLAC|Lossless|tracks + .cue] <Europop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Now (3:37)
+02. Follow Me (3:16)
+03. Whole Again (3:05)
+04. Eternal Flame (3:15)(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17DE2CD5A4341B059C79C145F21BF447174396A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967328   (158684) от 20.12.2015
 
 Анита Цой - Без вещей (2015) [MP3|320 кб/с] <Pop>
@@ -455,296 +745,6 @@ VA - Best Of Disco Balls Records 2022, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C94E5EB11148FD7004A2EF292626D07C432DE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676337   (157332) от 13.11.2023
-
-VA - Hit News Vol. 2/95 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Upfront feat. Jamal - Alone
-02. D.J. Bobo - Give Yourself A Chance
-03. Exp - She Said
-04. 2 Unlimited - Nothing Like The Rain(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D952D40B42B2B5FE500170ED6C1B208BE498DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346735   (157323) от 20.12.2019
-
-Денис Майданов - Обречен на Любовь (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157323.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Обречён на любовь (Radio Edit)
-2. Территория сердца (feat. Лолита)
-3. Жена (feat. Сергей Трофимов)
-4. Верность (feat. Наталья Майданова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A08BA7FB6BACC19F112D2F07FFB200274D45E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600467   (157164) от 27.12.2022
-
-VA - NRJ Hits 2023 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ava Max - Weapons (2:31)
-02. M. Pokora - Déjà volé (2:16)
-03. Ed Sheeran - Celestial (3:29)
-04. Soprano - 3615 Bonheur (3:34)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09E0DD8CCEAB05E4268F754ECEA3EE740766C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967885   (157146) от 23.12.2015
-
-Marc Almond - In Session Volume One (2003) [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Go Away (6:27)
-02. Terrapin (4:20)
-03. Empty Eyes (version 1) (5:06)
-04.Жанр: Synth-popПродолжительность: 00:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33FF709E6D2E8FEA68A1777B08B19AA20216FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675972   (157136) от 13.11.2023
-
-Mireille Mathieu - Mireille Mathieu chante Piaf (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Shanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jezebel (3:44)
-02. La vie en rose (3:44)
-03. L'accordéoniste (3:25)
-04. Exodus (3:43)(   Читать дальше...   )Жанр: Pop, French ShansonПродолжительность: 01:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452AEF1CF8B5979121B28945084DCE60DC54D8E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967870   (157130) от 23.12.2015
-
-Marc Almond - Stardom Road (2007) [FLAC|Lossless|tracks + .cue] <Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Have Lived (3:55)
-02. I Close My Eyes and Count to Ten (feat. Sarah Cracknell) (4:06)
-03. Bedsitter Images (4:10)
-04. The London Boys (3:27)(   Читать дальше...   )Жанр: BalladПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3460E13EDF9BEAE67B745E39C2B3713DC62F10C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433497   (157071) от 21.12.2020
-
-VA - Acoustic Women (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Violette Wautier - I’d Do It Again - Acoustic (3:37)
-02. Chelsea Cutler, Jeremy Zucker - please (3:39)
-03. Hailee Steinfeld, Grey, Zedd - Starving - Acoustic (3:01)
-04. Reneé Dominique - Somewhere Only We Know (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B72BAF88FE20F358AFDCBAACBFEA67800088A52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967845   (156965) от 23.12.2015
-
-Chris de Burgh - Beautiful Dreams (1995) [FLAC|Lossless|tracks + .cue] <Acoustic, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Missing You (3:58)
-02. Girl (2:51)
-03. Discovery (3:23)
-04. Carry Me (4:06)(   Читать дальше...   )Жанр: Acoustic, BalladПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC2F373C277BBFB651BBA7627E1E73AF20F3B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085848   (156757) от 22.12.2016
-
-Corynne Charby - Reference 80 (2011) Compilation [MP3|320 Kbps] <New Wave, Chanson, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Boule De Flipper (Version 45t Inedite En CD)  (03:26) 
-02|  Pile Ou Face   (03:56) 
-03|  Pas Vu Pas Pris (Version 45t Inedite En CD)  (03:43) 
-04|  A Cause De Toi  (04:23) (   Читать дальше...   )Жанр: New Wave, Chanson, Synth-popПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA62931009E03362314DCE4921BD177DA211CCC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433688   (156742) от 21.12.2020
-
-VA - Amazon Music Best Songs Of 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Независимо от того какими словами вы будете вспоминать 2020 год - от «народ, мне было грустно», до «сертифицированный урод, семь дней в неделю», лучшие песни 2020 года позволят ненадолго уйти от всей чернухи за нашими окнами. Они подставят вам успокаивающее плечо, на котором можно будет поплакать, найти отдушину для давно закипающей ярости и временную замену танцполам (   Читать дальше...   )01. DaBaby feat. Roddy Ricch - ROCKSTAR  (3:02)
-02. Kane Brown feat. Swae Lee & Khalid - Be Like That  (3:11)
-03. Dua Lipa - Don't Start Now  (3:03)
-04. Future feat. Drake - Life Is Good  (3:58)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 05:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73783130DE5C37F89E21875BC9538E9ECBA7409
 ```
 
 https://mybot314.ru/tekegram_catalog/

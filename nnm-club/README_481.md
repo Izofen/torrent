@@ -1,54 +1,25 @@
-###  Публикация: 1605042   (1045040) от 16.01.2023
+###  Публикация: 1603126   (1045882) от 08.01.2023
 
-Old Man Blues - Ready for Fun (2023) [FLAC 2.0|48/24|tracks|WEB-DL] <Rock, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ready for Fun (3:23)
-02. #Wetoo (Endless Song) (6:54)
-03. Dawn (8:21)
-04. Honeysuckle Blues (6:37)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC2073FDE2C00BA3E03881F5888B4C6659BFF20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605170   (1045039) от 16.01.2023
-
-Fall of Babylon - War on the Existent (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Blackened>
+Carnal Forge - Firedemon (2000) [APE|Lossless|image + .cue] <Thrash Metal, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045039.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Second Death
-02. Strength in Numbers
-03. A World to Come
-04. Reduced to Ash(   Читать дальше...   )Жанр: Death Metal, BlackenedПродолжительность: 00:29:26
+01. Too Much Hell Ain't Enough For Me
+02. Covered With Fire (I'm Hell)
+03. I Smell Like Death (Son Of A Bastard)
+04. Chained(   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 00:34:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2086023DFD98C23502B6BE50078ABAF9678A3460
+magnet:?xt=urn:btih:D9CE74C18E7971AECD07D072BAA5AB0ECBDD6D7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605089   (1045038) от 16.01.2023
+###  Публикация: 1603128   (1045881) от 08.01.2023
 
-XnViewMP 1.4.1 + Portable [Multi/Ru]
+Carnal Forge - The More You Suffer (2003) [APE|Lossless|image + .cue] <Thrash Metal, Death Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045038.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XnView MP - мощное многофункциональное приложение для работы с графическими файлами, являющееся расширенной версией программы XnView. По сути этот инструмент может считаться своеобразным медиа-браузером с опциями просмотрщика, конвертера и каталогизатора. XnViewMP поддерживает просмотр более 500 различных графических форматов, а при сохранении (преобразовании) - (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. H.B.F. Suicide
+02. Deathblow
+03. Ripped & Torn
+04. Destroy Life(   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 00:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB3039445796445C43C6D7C601742E39C7BC7C0A
+magnet:?xt=urn:btih:9ED9A3F0A498E1A2261B1FA5AF98C6934DDCB619
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604988   (1045037) от 16.01.2023
+###  Публикация: 1602910   (1045880) от 08.01.2023
 
-Добыча / Prey (2007) BDRip [H.264]
+Therein - The Void Affinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thrash Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045037.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Африканские каникулы, обещающие стать забавным приключением, оборачиваются для американской семейной пары Ньюман неистовой борьбой за выживание, когда свирепая, жаждущая крови львиная стая воображает их славной добычей. Потеряв надежду на помощь со стороны, мать и дети вынуждены сражаться за свою жизнь самостоятельно...Производство: ЮАР, Anant Singh Production, Distant Horizon, Ingenious Film Partners, Videovision EntertainmentЖанр: ужасы, драма, приключения, триллерРежиссер: Даррелл РудтАктеры: Бриджет Мойнэхэн, Питер Уэллер, Карли Шредер, Джэми Бартлетт, Коннер Даудс, Мариус Робертс, Мусо Сефатса, Джейкоб Макгоба, Эшли Тейлор, Тумишо МашаПеревод: профессиональный многоголосый (Видеосервис (R5))Субтитры: английские SDHПродолжительность: 01:28:17
+01 - And the Wind Guides Us into the Storm (01:10)
+02 - The Hollow Anthems (04:19)
+03 - A Coming Dead Generation (04:56)
+04 - Straightforward (04:53)(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 01:02:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31E7F59E0ACDFCDD59FC8472F524CFF78319C9CB
+magnet:?xt=urn:btih:79124026C5F9C8549DCB54722A009F1A46C70EA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,132 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605052   (1045036) от 16.01.2023
+###  Публикация: 1603132   (1045879) от 08.01.2023
 
-Tara Bennett, Paul Terry | Артбук Создание фильма "Большой переполох в маленьком Китае" / The Official Making of Big Trouble in Little China (2016) [CBR] [EN]
+Brimstone - Carving A Crimson Career (1999) Promo CD [APE|Lossless|image + .cue] <Power Metal>
 
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045036.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном артбуке рассказано про создание фильма
-"Большой переполох в маленьком Китае (1986)"Жанр: АртбукЯзык: АнглийскийФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49771E82B853D2944B8C5BC8442B56C96E650F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605053   (1045035) от 16.01.2023
-
-Бесстрашная Гиена / Xiao quan guai zhao / The Fearless Hyena (1979) BDRemux [H.264/1080p] [Remastered] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045035.jpg" />
-</div>
-
-
-###  Подробнее
-
-На глазах юноши Ланга убийцы расправляются с любимым дедом, в прошлом знаменитым бойцом. Под руководством старого учителя Ланг обучается искусству борьбы, чтобы отомстить бандитам.Производство: Гонконг, Корея Южная, Good Year Movie CompanyЖанр: боевик, комедияРежиссер: Джеки ЧанАктеры: Джеки Чан, Джеймс Тьен, Дин Шек, Чжэнь Хуэйлоу, Ень Ши-Квань, Куин Ли, Тин-чи Ченг, Чи-Пинг Чанг, Чу Сиу Ва, Синг Нан ХоПеревод: Двухголосый профессиональный (ДТВ / СТС)Язык озвучки: русский, китайский, английскийСубтитры: Английские (PGS)Продолжительность: 01:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69137A251E001EA78B0AA563545FAC337603D10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604962   (1045034) от 16.01.2023
-
-Полина Гагарина - Бабочки (2022) WEBRip [H.264/1080p; 1440p; 2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полина Гагарина представила публике клип на свою песню «Бабочки».
-Трек хоть и получился в танцевальном стиле, но посвящен несчастливой любви. По сюжету главная героиня, роль которой играет сама Гагарина, встречает свою любовь. Однако, она должна распрощаться с прошлым, чтобы иметь возможность двигаться дальше.Производство: KIRILLIN x LUCKY ProductionЖанр: PopПродолжительность: 00:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48E3C64AE15315E7FEC6EF86BC374A036707AD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604989   (1045033) от 16.01.2023
-
-Добыча / Prey (2007) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Африканские каникулы, обещающие стать забавным приключением, оборачиваются для американской семейной пары Ньюман неистовой борьбой за выживание, когда свирепая, жаждущая крови львиная стая воображает их славной добычей. Потеряв надежду на помощь со стороны, мать и дети вынуждены сражаться за свою жизнь самостоятельно...Производство: ЮАР, Anant Singh Production, Distant Horizon, Ingenious Film Partners, Videovision EntertainmentЖанр: ужасы, драма, приключения, триллерРежиссер: Даррелл РудтАктеры: Бриджет Мойнэхэн, Питер Уэллер, Карли Шредер, Джэми Бартлетт, Коннер Даудс, Мариус Робертс, Мусо Сефатса, Джейкоб Макгоба, Эшли Тейлор, Тумишо МашаПеревод: профессиональный многоголосый (Видеосервис (R5))Субтитры: английские SDHПродолжительность: 01:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45776A5D0378E77CC56F515D6A326DFB6DAD86C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605109   (1045032) от 16.01.2023
-
-Закон обратного волшебства (2010) DVDRip (серии 1-4 из 4)
-
->>Отечественные сериалы
+>>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045032.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Экранизация одноименного романа Татьяны Устиновой.
- Странной смертью умирает пожилой житель подмосковного поселка, краевед Петр Мартынович Решетников. Его соседка, завуч на пенсии, а ныне сыщик-любитель Марфа Васильевна Коржикова решает разгадать тайну смерти старика. В этом ей помогает внучка Анфиса. Вскоре судьба сводит Анфису с Ильей, как окажется позже - племянником (   Читать дальше...   )Производство: Россия / ПрофитЖанр: детектив, экранизацияРежиссер: Иван ПоповАктеры: Людмила Аринина, Дмитрий Орлов, Ирина Пегова, Лилия Кондрова, Ольга Кузьмина, Константин Силаков, Галина Чурилина, Ольга Филиппова, Андрей Муравьёв, Галина АнисимоваСубтитры: ОтсутствуютПродолжительность: ~00:48:00 серия
+01. Breaking The Waves 3:50
+02. Pagan Sons 6:07
+03. Autumn 4:54
+04. Carving A Crimson Career 5:19(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5266F99098616FD2FB47BAA3BBDD24F9C351127D
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,26 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604965   (1045031) от 16.01.2023
+###  Публикация: 1603007   (1045878) от 08.01.2023
 
-Полина Гагарина - Вода (2022) WEBRip [H.264/1080p]
+Vic Dickenson & Urbie Green - Slidin' Swing (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
 
->>Театр и Музыкальное видео
->>Музыкальные клипы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045031.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полина Гагарина - Вода (Official Video)
-Песня "Вода" - о живой воде, которая вначале приходит с теплым летним дождем и смывает с души боль, потом помогает поднять глаза к небу и, задав вопросы, найти свои ответы, а после - смывает с души все сомнения и разочарования, дарит надежду и помогает опереться на себя.Производство: Сергей ЧуевЖанр: PopПродолжительность: 00:03:13
+01. When You Were Young, Maggie [4:53]
+02. Nice Work If You Can Get It [4:43]
+03. You Brought A New Kind Of Love To Me [5:18]
+04. Everybody Loves My Baby [9:33](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:48:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7986F9B02E09588BF1C80CA0071FDFEC4EBD6A8A
+magnet:?xt=urn:btih:ED1FC549AD1B4198E6AEDE98D84CC0A769F6C8B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -268,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605054   (1045030) от 16.01.2023
+###  Публикация: 1603072   (1045877) от 08.01.2023
 
-Из жизни начальника уголовного розыска (1983) WEB-DL [H.264/1080p]
+Where's My Bible - Circle (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Death 'n' Roll>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045030.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045877.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сложные, противоречивые взаимоотношения между двумя совершенно разными людьми — начальником уголовного розыска и бывшим вором-рецидивистом — казалось, заходят в тупик. Но критическая ситуация заставляет бывшего уголовника переступить порог недоверия и неприязни.Производство: СССР / Киностудия им. М.Горького, Первое творческое объединениеЖанр: криминал, драмаРежиссер: Степан ПучинянАктеры: Кирилл Лавров, Леонид Филатов, Елена Проклова, Наташа Гонтуар, Александр Продан, Наталья Фатеева, Леонид Харитонов, Игорь Ливанов, Юрий Чернов, Александр Пашутин, Михаил ЖигаловСубтитры: русскиеПродолжительность: 01:29:08
+01. Chapter I: Escape (04:26)
+02. Chapter II: Void (04:42)
+03. Chapter III: Nest (03:43)
+04. Chapter IV: Origin (03:23)Жанр: Deathcore, Death 'n' RollПродолжительность: 00:16:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:705394A7112B6D6351037143186D6EEB2D3FCDD2
+magnet:?xt=urn:btih:0C5B28DB1FD65048E6B5A791499EA8F7CAA283D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -294,25 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604972   (1045029) от 16.01.2023
+###  Публикация: 1603251   (1045876) от 08.01.2023
 
-Светлана Резниченко | Как перестать (м)учить язык и начать говорить (2022) [MP3, Анна Шохова]
+Cryptopsy - Whisper Supremacy (1998) [APE|Lossless|image + .cue] <Death Metal>
 
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045029.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой уникальной интерактивной книге вы узнаете, что нет такой цели, как выучить английский язык! Язык – это средство для достижения чего-то более важного для вас. Поэтому, чтобы выучить язык, вам потребуется узнать ещё минимум пять ваших самых сокровенных желаний, парочку успешных стратегий мышления и поведения и получить опыт доведения хотя бы одного дела до конца. (   Читать дальше...   )Жанр: Учебно-методические пособияПродолжительность: 04:27:15
+01. Emaciate
+02. Cold Hate, Warm Blood
+03. Loathe
+04. White Worms(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10EB8409A6803F2A2C93837501ABDA8CFB8047C6
+magnet:?xt=urn:btih:D98B08A3043EA7F25A91F8015B7AEEA9488F90DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,25 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605187   (1045028) от 16.01.2023
+###  Публикация: 1602956   (1045875) от 08.01.2023
 
-Однажды в пустыне (2022) WEB-DLRip [H.264/720p]
+Nails - Unsilent Death (2010) 10 Year Anniversary Edition, Remaster 2020 [APE|Lossless|image + .cue] <Grindcore>
 
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045028.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сирия, 2016 год. Шаберову нравилось быть сапером, вступать в схватку со смертью — один на один. Нравилось побеждать — победителей не судят. Разминирование захваченной боевиками Пальмиры должно было стать пиком карьеры, красивой точкой. Там же ждала девушка, полусирийка-полурусская, которую недавно спас и втайне мечтал увидеть снова. Сердце замирало от планов. Но (   Читать дальше...   )Производство: Россия / ТПО «Рок», Телекомпания НТВЖанр: Военный, боевик, драмаРежиссер: Андрей КравчукАктеры: Александр Робак, Павел Чинарёв, Александр Метёлкин, Екатерина Нестерова, Игорь Гордин, Полина Пушкарук, Виталия Корниенко, Анна Потебня, Олег Васильков, Сергей БородиновПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:57:35
+01. Conform
+02. Scum Will Rise
+03. Your God
+04. Suffering Soul(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:22:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFD15A4A386D9A3B986710E758C987D720E7C205
+magnet:?xt=urn:btih:6C4C789FB4067BC00D41B4E41D7C5AA1AE7C6E95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,341 +230,514 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605155   (1045027) от 16.01.2023
+###  Публикация: 1603013   (1045874) от 08.01.2023
 
-Александр Бушков | Непознанное. Пляски с волками (2022) [MP3, Олег Томилин]
+Karin Krog - Sweet Talker: The Best Of Karin Krog (1963 - 2005) 2CD, 2005, Grappa [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045874.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. You'd Better Love Me [4:12]
+02. Nice Work If You Can Get It [3:05]
+03. Ribbon of Sand [3:20](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 02:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192A9D58E3F352F236E8B95BE062A0F33818F3D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603019   (1045873) от 08.01.2023
+
+Tri-Fi - A Tri-Fi Christmas (2011) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frosty the Snowman [4:39]
+02. O Holy Night [6:37]
+03. Carol of the Bells [3:43]
+04. Joy to the World [3:57](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FB654137DF1372A19A0DD6E98D6CA5BB5C13B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602949   (1045872) от 08.01.2023
+
+Tryckvag - Legacy (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Legacy (04:29)
+02 - Freak Of Nature (03:57)
+03 - Pull The Trigger (04:23)
+04 - I Surrender (03:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6EDFEFA00EA443F0E178B7CBA9662A40D8CB532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602864   (1045871) от 08.01.2023
+
+The Temple - Of Solitude Triumphant (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Me To Lichno Tou Astrou (03:03)
+02 - The Foundations (10:09)
+03 - Reborn in Virtue (07:10)
+04 - Profound Loss (07:01)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E85D048A3D3E180C2E43F629C3EA615498D454A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603028   (1045870) от 08.01.2023
+
+Douglas Avery - Take My Rider (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Luck Blues (4:34)
+02. Take My Rider (5:13)
+03. Malibu Burnin' (4:15)
+04. Just Keep Lovin' Her (2:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603063   (1045869) от 08.01.2023
+
+Allison - One (1993) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Your Hair Down (4:08)
+02. Without A Woman (3:48)
+03. Sometimes (3:20)
+04. I've Been Waiting (3:32)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F200988F2CC4AF35EB189E4F1E026C2E18CDDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603056   (1045868) от 08.01.2023
+
+Weeping Kin - Gnawing (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Where Eras End (08:56)
+02 - One With Nothing (07:34)
+03 - The Gift You Gave (12:54)
+04 - Burgeoning (11:34)(   Читать дальше...   )Жанр: Melodic Doom MetalПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19588A08D3C0FD57E5CE9A805C8BE629595B30A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602911   (1045867) от 08.01.2023
+
+Epica - Consign To Oblivion (2005) [OGG Vorbis|480 Kbps] <Rock, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hunab Ku - A new Age Dawns - prologue
+02. Dance of Fate
+03. The Last Crusade - A new Age Dawns - 1
+04. Solitary Ground(   Читать дальше...   )Жанр: Rock, Symphonic MetalПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34D65A98CD9502AA4F1495EDF9AE187888A1266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602971   (1045866) от 08.01.2023
+
+Frost - Out In The Cold (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasting Your LuvЖанр: Heavy MetalПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC55A81AC50643E4C52540CF6EEA39C2F157EDD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603041   (1045865) от 08.01.2023
+
+Number Nine - Guilty (1997) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Verdict (0:42)
+02. Livin' On My Own (3:33)
+03. Survive (3:59)
+04. Not Tomorrow But Today (3:27)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31EFC11E8758582A9223D927699318297B69673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603024   (1045864) от 08.01.2023
+
+Andrew Borg - Let Me Dream Our Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Dream Our Life (4:40)
+02. Way Down (3:09)
+03. Walk Into My Arms (5:26)
+04. Devil On My Back (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D24CCF75784550EFB702CB6B9293EB6D2CD3D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603237   (1045863) от 08.01.2023
+
+Heartscore - The Edge Of Times (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Final Hug 04:14
+02. Highway Killer 02:46
+03. The Coastline 03:26
+04. Spit It Out 02:37(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE69740A4EA191A7F27C6C696C071902CE69F445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603089   (1045862) от 08.01.2023
+
+Ram Cheung - 19-22 Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing That Thing (3:23)
+02. Shake That Thing (4:04)
+03. Worried Blues (4:33)
+04. I Just Want Someone (4:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F5DB7E963343AD317BD84F256B4E8E0A0E2E12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603033   (1045861) от 08.01.2023
+
+White Skies - Black Tide (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Do You Know About Love (4:14)
+02. Emily (4:12)
+03. Midnight Rendezvous (5:05)
+04. Kiss Me (As I Say Goodbye) (4:59)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42773E25EA155A125BE999EC820660FAFA0E0106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602947   (1045860) от 08.01.2023
+
+VA - Lounge & Chill Out Moods, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guenter Haas - Without You (Remastered) (5:21)
+02. Sunset Boulevard Project - Guitarra Y Sol (4:30)
+03. Project Blue Sun - Dame Tu Amor (6:18)
+04. Smooth Deluxe & Josephine Sinclar - My People (5:27)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 02:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09685FE77F9996A586AEF0590F586AC8875B0AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602999   (1045859) от 08.01.2023
+
+Святитель Димитрий Ростовский | Руно Орошенное (2003) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательное произведение свт. Димитрия, Ростовского чудотворца, написано по следам многочисленных чудесных исцелений, происшедших при образе Пресвятой Богородицы в черниговском Свято-Ильинском монастыре в XVII веке. Чудесам исцелений предшествовало появление слёз на иконе, что позволило автору сравнить это событие с ветхозаветным чудом, когда Божественная роса, (   Читать дальше...   )Жанр: ПравославиеЯзык: Русский + ЦерковнославянскийФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2625866C64C8358A5163DE7015C8AB4074A169E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602925   (1045858) от 08.01.2023
+
+VA - Chill N' Orient - Essential Oriental Chill Out Moods (2006) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amira Alaf - Khandhalha (3:33)
+02. Oman Chali - New Hopes (2:55)
+03. No.on - Morning (4:00)
+04. Love Reprise - A Special Gift (1:04)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603276   (1045857) от 08.01.2023
+
+Эми Маккаллох | Нечем дышать (2022) [MP3, Людмила Чайковская]
 
 >>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045027.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Необъяснимые паранормальные явления, загадочные происшествия, свидетелями которых были наши бойцы в годы Великой Отечественной войны, – в пересказе несравненного новеллиста Александра Бушкова!
-
-Западная Украина, 1944 год. Небольшой городишко Косачи только-только освободили от фашистов. Старшему оперативно-разыскной группы СМЕРШа капитану Сергею Чугунцову поручено (   Читать дальше...   )Жанр: Историческая литература, МистикаПродолжительность: 10:40:59
+Герметичный триллер в экстремальных условиях высокогорья: ты оказался один на один со стихией, страшным кислородным голоданием и человеком, способным на крайнее зло.
+Что испытывает человек, когда стоит на краю самой высокой точки мира?
+Сесили Вонг понятия не имеет.Жанр: Зарубежные детективы, ТриллерыПродолжительность: 11:28:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E6346FFD4286E01835A9137748DD21CD4E457E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604976   (1045026) от 16.01.2023
-
-Последняя смена / The Last Shift (2020) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стэнли собирается уйти на пенсию после нескольких десятилетий работы кассиром в фастфуде. Однако во время его последней смены события принимают неожиданный оборот.Производство: США / Bona Fide Productions, Pak Pictures, Whitewater FilmsЖанр: драма, комедияРежиссер: Эндрю КонАктеры: Ричард Дженкинс, Шэйн Пол МакГи, Эд О'Нил, Эллисон Толман, Да'Вин Джой Рэндольф, Биргунди Бейкер, Эмили Андерсон, Джефф Длуголецки, Дано Дюран, Джон ГавликПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, full), английские (full, SDH)Продолжительность: 01:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E4F0C8F5FAB8BBC5CD91E0499A805F1217E4BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605036   (1045025) от 16.01.2023
-
-FoneLab HEIC Converter 1.0.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конвертировать HEIC в JPG / JPEG / PNG на Mac.
-Apple использует HEIC в качестве формата изображения на устройстве с iOS 11. Это может быть заменой формата изображения JPEG, поскольку это не снижает качество изображения, но экономит память на устройствах. Неудобно, что он несовместим с устаревшей iOS или другими платформами. JPG и PNG гораздо более совместимы, так (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2022Разработчик: © 2014-2022 FoneLab StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCAF572449C28106E8545FF328A36EBE646FF6B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605084   (1045024) от 16.01.2023
-
-34-й скорый (1981) HDTVRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скорый поезд N34 отправился точно по расписанию. Пассажиры спокойно готовились ко сну, когда в опустевшем купе от непогашенной сигареты загорелась занавеска. Вскоре загорелся и вагон. Катастрофа неминуема. Железнодорожники и пассажиры совместными усилиями пытаются предотвратить несчастье и спасти сотни людей...Производство: СССР / МосфильмЖанр: боевик, драмаРежиссер: Андрей МалюковАктеры: Лев Дуров, Елена Майорова, Альгимантас Масюлис, Александр Фатюшин, Александр Рыщенков, Петерис Гаудиньш, Марина Шиманская, Ирина Печерникова, Валерий Рыжаков, Григорий МаликовСубтитры: русскиеПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B616C22F2400840CD1AA05B04BC2F522F974411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602287   (1045023) от 16.01.2023
-
-Пришелец из будущего / Le Visiteur du Futur / The Visitor from the Future (2022) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045023.jpg" />
-</div>
-
-
-###  Подробнее
-
-2555 год. Экологическая катастрофа уничтожила нашу цивилизацию. Остатки землян доживают свои дни среди полчищ зомби и потоков кислотных дождей. Один из последних - «Гость» - решается на отчаянный шаг. С помощью своего непутевого робота он возвращается в 21 век, чтобы предотвратить апокалипсис и спасти мир.Производство: Франция, Бельгия / Pyramide Productions, France 2 Cinéma, Allons VoirЖанр: фантастика, комедияРежиссер: Франсуа ДекракАктеры: Флоран Дорен, Арно Дюкре, Эния Бару, Рафаэль Декрак, Слиман-Батист Берон, Одри Пиро, Матье Поджи, Венсен Тирель, Асса Силла, Лени ШериноПеревод: Дублированный (Кинопоиск HD), Авторский одноголосый (Кураж-Бамбей)Язык озвучки: Русский, ФранцузскийСубтитры: Французские (SDH)Продолжительность: 01:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97684121226B2490F54EE35EF95DAE0B15A79F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474718   (1045022) от 16.01.2023
-
-Бесстрашная Гиена / Xiao quan guai zhao / The Fearless Hyena (1979) DVD9 [VO]
-
->>Зарубежное кино
->>Азиатское кино (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045022.jpg" />
-</div>
-
-
-###  Подробнее
-
-На глазах юноши Ланга убийцы расправляются с любимым дедом, в прошлом знаменитым бойцом. Под руководством старого учителя Ланг обучается искусству борьбы, чтобы отомстить бандитам.Производство: Гонконг, Южная Корея, Good Year Movie CompanyЖанр: боевик, комедияРежиссер: Джеки ЧанАктеры: Джеки Чан, Джеймс Тьен, Дин Шек, Чжэнь Хуэйлоу, Ень Ши-Квань, Куин Ли, Тин-чи Ченг, Чи-Пинг Чанг, Чу Сиу Ва, Синг Нан ХоПеревод: ОдноголосыйЯзык озвучки: русский, китайскийПродолжительность: 01:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4F6C1FDE27E8CA140D765DD4BB07B613CAC4FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604748   (1045021) от 16.01.2023
-
-Майнер проиграл тяжбу с "Иркутскэнергосбытом" в третьей инстанции подряд
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертый кассационный суд общей юрисдикции отказал Сергею Яковлеву из Иркутской области, который оспаривает решение о взыскании с него 28,65 млн рублей за электрическую энергию, использовавшуюся для работы ASIC-майнеров, добывавших криптовалюту.Оспариваемую сумму Яковлев обязан перечислить "Иркутскэнергосбыту" в качестве перерасчета со льготного тарифа (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380588   (1045020) от 16.01.2023
-
-Михаил Вишневский | Всё о грибах. Популярная энциклопедия (2019) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Всё о грибах" является результатом более чем двадцатилетней научной, просветительской, лекционной и литературной деятельности известного миколога и популяризатора науки Михаила Вишневского. Ориентированное в первую очередь на грибников, издание содержит увлекательную информацию о происхождении грибов и их устройстве, грибах-помощниках и грибах-вредителях, (   Читать дальше...   )Жанр: Энциклопедия, МикологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D612832E7DF4F066658B85BC6B1F01AAF610C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967592   (1045019) от 16.01.2023
-
-А. Поленов | Большая энциклопедия грибника. Собираем и готовим (2014) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит всю необходимую информацию о грибах, произрастающих на территории России. Построение в форме справочника-определителя позволит даже самому неопытному грибнику идентифицировать добычу и узнать о её свойствах. В описании к каждому грибу указаны места произрастания, сезон сбора и рекомендации по приготовлению. Книга дополнена рецептами грибных блюд, которые (   Читать дальше...   )Жанр: энциклопедия, кулинария, домоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CEC631442D63E230F6D32CFE507350B18D07C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605108   (1045018) от 16.01.2023
-
-The Bat! Professional 10.3.3.3 RePack by KpoJIuK [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045018.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16B372B81B9A5EA5439464F1952C1E5F4EAE420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 210746   (1045017) от 16.01.2023
-
-Не горюй (1968) DVDRip [Реставрация]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045017.jpg" />
-</div>
-
-
-###  Подробнее
-
-После окончания Петербургского университета, полный надежд и грандиозных планов, возвращается в родной городок молодой врач Бенжамен Глонти. Но жизнь, как и до его отъезда, течет своим чередом: растет семейство сестры, усердно с утра до вечера переписывает бумаги ее муж Лука, время от времени спускаясь в погребок, чтобы «опрокинуть» рюмочку.
-И по-прежнему, слоняясь (   Читать дальше...   )Производство: СССР,  киностудия "Мосфильм", киностудия "Грузия-фильм"Жанр: Драма, комедияРежиссер: Георгий ДанелияАктеры: Вахтанг Кикабидзе, Серго Закариадзе, Софико Чиаурели, Анастасия Вертинская, Верико Анджапаридзе, Ариадна Шенгелая, Евгений Леонов, Георгий Кавтарадзе, Сергей Филиппов, Баадур Цуладзе, Лия Гудадзе, Давид Абашидзе, Ия Нинидзе, Фрунзе МкртчянЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746055CDF308F8C3E9D2FD6E80B04E21439B6B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604963   (1045016) от 16.01.2023
-
-Аватар: Путь воды / Avatar: The Way of Water (2022) TS [H.264/1080p] [UKR] [Line]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045016.jpg" />
-</div>
-
-
-###  Подробнее
-
-После принятия образа аватара солдат Джейк Салли становится предводителем народа на'ви и берет на себя миссию по защите новых друзей от корыстных бизнесменов с Земли. Теперь ему есть за кого бороться — с Джейком его прекрасная возлюбленная Нейтири. Когда на Пандору возвращаются до зубов вооруженные земляне, Джейк готов дать им отпор.Производство: США, 20th Century Studios, Lightstorm Entertainment, TSG EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джеймс КэмеронАктеры: Сэм Уортингтон, Зои Салдана, Сигурни Уивер, Стивен Лэнг, Кейт Уинслет, Клифф Кёртис, Джоэль Мур, Си Си Эйч Паундер, Иди Фалько, Брендан КоуэллПеревод: Дублированный (Line)Язык озвучки: украинский, английскийСубтитры: украинские (forced), английскиеПродолжительность: 03:05:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798430   (1045015) от 16.01.2023
-
-Чебурашка / Cheburashka The Movie (Special Edition) (2009/2013) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045015.jpg" />
-</div>
-
-
-###  Подробнее
-
-В овощном магазине одного города в ящике из-под апельсинов нашли непонятное спящее животное с большими круглыми ушами. Имя Чебурашка зверек получил потому, что все время падал, когда его пытались посадить на край ящика. Чебурашку попробовали отвести в зоопарк, но там неведомого зверя брать не захотели, и он поселился в телефонной будке. В это же время одинокий крокодил (   Читать дальше...   )Жанр: Комедия, мультсериалРежиссер: Макото НакамураАктеры: А.Ферапонтов, А.Груздев, О.Зверева, Д.Филимонов, Л.Брохман, А.Пожаров, О.ШороховаПеревод: Полное дублирование (Студия "Ориол")Субтитры: Японские (Софтсаб), отдельным файломПродолжительность: 01:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF8C4DAB8CFBE71A3E172E486BA7E88BCD2A5D5
+magnet:?xt=urn:btih:454384E2CA2DB4F82A222833152267320054560B
 ```
 
 https://mybot314.ru/tekegram_catalog/

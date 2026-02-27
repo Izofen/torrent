@@ -1,3 +1,32 @@
+###  Публикация: 1608133   (1043749) от 29.01.2023
+
+VA - soft pop 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benson Boone - Before You (3:07)
+02. Ed Sheeran - Celestial (3:29)
+03. Omar Apollo - Evergreen (You Didn't Deserve Me at All) (3:36)
+04. Zach Bryan - Something in the Orange (3:48)(   Читать дальше...   )Жанр: PopПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256B365434D9DE4038B0E9A85D3AEB1E74376F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608194   (1043719) от 29.01.2023
 
 Ricchi E Poveri - Mamma Maria (1986) [FLAC|Lossless|image + .cue] <Pop>
@@ -719,35 +748,6 @@ Sha-na-na - Rama Lama Ding Dong (1993) [FLAC|Lossless|image + .cue] <Rock & Roll
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:297235F10042A39EA5A4B8B76FFB2F4A43212260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440215   (1039121) от 16.01.2021
-
-V.A. - Pop Queens (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Dua Lipa – Break My Heart
-02. Tones and I – Dance Monkey
-03. Griff – Say It Again
-04. Ella Henderson – Take Care of You(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0F016BF7D0093EE36419FC69A690518A4EA7FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1575156   (370585) от 12.09.2022
+
+VA - Blues Saxaphone (2022) 3CD [MP3|320 Kbps] <Jazz, Blues, Easy Listening>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sil Austin - Slow Walk [02:40]
+02. Ben Webster,Coleman Hawkins - Blues for Yolande [06:49]
+03. Greg Piccolo & The Texas All-Stars - The Hammer [02:49]
+04. Hank Crawford - Mr. Blues [06:05](   Читать дальше...   )Жанр: Jazz, Blues, Easy ListeningПродолжительность: 15:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D2C074E7929D4095046856DC994AF1031BF15A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950389   (370082) от 26.10.2015
 
 VA - Jazz Piano Essentials - Calming & Relaxing Jazz Piano (2015) [MP3|320 кб/с]<Instrumental,Easy Listening,New Age,Piano>
@@ -716,35 +745,6 @@ VA - Infatuation Blues (2017) [MP3|320 Kbps] <Blues, Rock Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EFB8481C5FA2B8E9FD9F70A6949DF6A1B0EA67F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259107   (323257) от 02.11.2018
-
-VA - Love Is Endless: Blues Rock Collection (2018) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323257.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beth Garner - Alright By Me
-002. Boz Scaggs - Rock And Stick
-003. Black Stone Cherry - Built For Comfort
-004. Lawrence Lebo -  Old School Girl(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 10:20:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C696C9D45930F656DD07B25A507B61F1F506D74
 ```
 
 https://mybot314.ru/tekegram_catalog/

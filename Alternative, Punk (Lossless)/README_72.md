@@ -1,108 +1,3 @@
-###  Публикация: 474550   (85127) от 29.03.2012
-
-My Darkest Days - Sick and Twisted Affair (2012) [FLAC|Lossless]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-My Darkest Days — канадская рок-группа из Торонто. Были замечены Чедом Крюгером, который пригласил их к сотрудничеству с компанией 604 Records. В июне 2010 года группа отправилась в тур с Sick Puppies, Янус, и It’s Alive,(   Читать дальше...   )01. Sick and Twisted Affair (3:39)
-02. Save Yourself (3:41)
-03. Casual Sex (3:14)
-04. Stutter (2:43)
-05. Nature of the Beast (3:01)
-06. Perfect (3:49)
-07. Again (3:36)
-08. Gone (3:31)
-09. Love Crime (2:59)
-10. Rolling Stoned (Bonus Track) (3:02)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05CF356F38B283369279A3788B501675E295B977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473194   (84389) от 25.03.2012
-
-Shinedown - Amaryllis (2012) [FLAC|Lossless]<Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrenaline (3:26)
- 02. Bully (4:03)
- 03. Amaryllis (4:04)
- 04. Unity (4:13)
- 05. Enemies (3:08)
- 06. Im Not Alright (3:07)
- 07. Nowhere Kids (3:12)
- 08. Miracle (3:39)
- 09. Ill Follow You (3:59)
- 10. For My Sake (3:47)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473386   (84333) от 25.03.2012
-
-Fun. - Some Nights (2012) [FLAC|Lossless]<Pop Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Some Nights Intro [02:17]
-02. Some Nights [04:37]
-03. We Are Young (Feat. Janelle Monae) [04:10]
-04. Carry On [04:40]
-05. It Gets Better [03:36]
-06. Why Am I The One [04:46]
-07. All Alone [03:05]
-08. All Alright [03:59]
-09. One Foot [03:31]
-10. Stars [06:54](   Читать дальше...   )Жанр: Pop Rock, Indie RockФормат: CD, AlbumПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466687   (81596) от 12.03.2012
 
 Cat Power - The Covers Record (2000) [FLAC|Lossless]<Acoustic, Lo-Fi, Indie Rock>
@@ -811,6 +706,93 @@ King Hannah - Big Swimmer (2024) [FLAC|Lossless|tracks+ .cue] <Indie Rock, Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF8736DD2B05663FB4DF4604270F7E57D7FA7673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798669   (66502) от 26.05.2025
+
+These New Puritans - Crooked Wing (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting (3:08)
+ 02. Bells (7:05)
+ 03. A Season In Hell (5:04)
+ 04. Industrial Love Song (feat. Caroline Polachek) (3:50)(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257461213746BFCFE249DB5E3D84B06813136A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798651   (66498) от 26.05.2025
+
+Stereolab - Instant Holograms On Metal Film (2025) [FLAC|Lossless|tracks + .cue] <Indie Rock, Experimental, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystical Plosives (0:56)
+ 02. Aerial Troubles (3:21)
+ 03. Melodie Is A Wound (7:37)
+ 04. Immortal Hands (6:25)(   Читать дальше...   )Жанр: Indie Rock, Experimental, Post RockПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EDC78F3C6257EA404819A76A4A8D55D3B3F81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799843   (66362) от 30.05.2025
+
+Garbage - Let All That We Imagine Be The Light (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's No Future In Optimism
+02. Chinese Fire Horse
+03. Hold
+04. Have We Met (The Void)(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2C1C6681B4643295C0C47F4EC5926095A9573B
 ```
 
 https://mybot314.ru/tekegram_catalog/

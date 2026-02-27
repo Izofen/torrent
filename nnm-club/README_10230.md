@@ -1,275 +1,25 @@
-###  Публикация: 909617   (626411) от 18.06.2015
+###  Публикация: 1144434   (627759) от 22.06.2017
 
-Sadman Institute - Revival (2015) [MP3|320 кб/с]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626411.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ash And Dust (08:05)
-2. F.T. (06:07)
-3. Rotten Home (06:30)
-4. Take It All (05:42)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:993DB14179040E46A373D55B1B5A148A97449FC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909769   (626410) от 18.06.2015
-
-Antagoniste - The Myth of Mankind (2015) [MP3|320 кб/с]<Avant-Garde Black / Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rise of the Lightbringer
-02. The Barren Lands
-03. The Demiruge
-04. The Fall of Man(   Читать дальше...   )Жанр: Avant-Garde Black / Sludge MetalПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890AC4AEB350C9B26A46EA774DBF80F5254A44B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909638   (626409) от 18.06.2015
-
-Bone Gnawer - Cannibal Crematorium (2015) [MP3|320 кб/с]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626409.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Anthropophagist Inferno 02:05
-2. Modern Day Cannibal 03:31
-3. Chainsaw Carnage 03:27
-4. Horrors in the House of Human Remains 04:28(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D259750300051267D1D53160A8B89806490ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909759   (626407) от 18.06.2015
-
-Рассудят люди (18.06.2015) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626407.jpg" />
-</div>
-
-
-###  Подробнее
-
-В студии будут подниматься самые актуальные проблемы, возникать острые дискуссии и подниматься темы, касающиеся каждого. Гостями программы станут обычные люди, которым нужна помощь в решении различных проблем, а также эксперты - юристы, артисты, государственные деятели.Телекомпания: Россия 1Жанр: Ток-шоуПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891E2C4127A799F0C499DC4ABC235AC12CF7BC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909762   (626406) от 18.06.2015
-
-Omar Coleman - Born & Raised (2015) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tryin' To Do Right (3:56)
-02. Man Like Me (3:47)
-03. Sit Down Baby (3:14)
-04. I Was A Fool (5:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B0DD277B325DB49C0EDF89041CC39ABFE28FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909745   (626405) от 18.06.2015
-
-Clepsydra - Tropicarium (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Witch
-02. I'm In
-03. Chocolate
-04. Jerry the Pine(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FAB432DD64F66B249132746027CFA3D0EFB41C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909553   (626404) от 18.06.2015
-
-С. А. Кучинский | Человек моральный (1987) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как соотносятся между собой мораль и религия, что такое «религиозная мораль»? Отвечая на эти и другие вопросы, связанные с проблемами нравственности, автор раскрывает реальное содержание некоторых центральных понятий христианства — «грех», «благодать», «спасение», являющихся мистифицированной формой отражения в религии социально-нравственных коллизий. Полемика с (   Читать дальше...   )Жанр: история, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DEF72A2EBE86006A30CAB7DAFC93D28E2A5944C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909601   (626403) от 18.06.2015
-
-А. Д. Сухов | Религия как общественный феномен [Философские проблемы исследования] (1973) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена анализу философских проблем религии, недостаточно освещенных в атеистической литературе. В ней раскрыто значение категории религиозного отчуждения как одной из важнейших для философского понимания религии, рассматривается процесс религиозного отражения в его сложной и многоступенчатой опосредованности многими социальными звеньями. Особое внимание (   Читать дальше...   )Жанр: история, религиоведение, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:415C2007B0C46875FEB293810B621856C1A3FB48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909758   (626402) от 18.06.2015
-
-Eric Charles Band - Can You Feel It? (2015) [MP3|320 кб/с]<Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626402.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Can You Feel It?
-2. I Never Did You Wrong
-3. The Chameleon
-4. You Read(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778CB9C58C85A6170C8379BF445220A410AA8276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909872   (626401) от 18.06.2015
-
-Время покажет с Петром Толстым (18.06.2015) SATRip
+Футбол. Кубок Конфедераций 2017. Группа A. 2-й тур. Мексика - Новая Зеландия (21.06.2017) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626401.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Согласно опросам ВЦИОМ, 60 процентов граждан России сегодня вынуждены покупать более дешевые продукты. Месяц назад в студии программы "Время покажет" был проведен эксперимент:  экспертов угощали кризисными бутербродами, сделанными из самого дешевого хлеба, колбасы и сыра. Тогда же эти продукты были отправлены на экспертизу в НИИ питания РАМН.
-В первой части (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:11:00
+21 июня 2017 года, среда. 21:00 МСК
+Группа A. 2-й тур
+
+Стадион: Фишт (Сочи, Россия) , вместимость: 47659(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Артем Шмельков) / ИнтершумПродолжительность: 01:53:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0818B42962A52C73900BD22E2635361173A8B2CE
+magnet:?xt=urn:btih:BAA4E350B148EB7483DD6DF382C0A8722E42E991
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,166 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 909620   (626400) от 18.06.2015
+###  Публикация: 1144387   (627758) от 22.06.2017
 
-Motochrist - Chrome (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Ride Bitch
-02. I Want Everything That's Mine
-03. Heads Are Gonna Roll
-04. She Likes the Bad Boys(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24F2E2CB0166564F3E255B36CD9F32972D87B849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909556   (626399) от 18.06.2015
-
-В. И. Прокофьев | Непримиримость науки и религии (1952) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626399.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издании представлена стенограмма публичной лекции, посвященной вопросу непримиримости науки и религии.Жанр: история, религиоведение, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89558F8B152FC83360AFE647AF298257B2148DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909622   (626398) от 18.06.2015
-
-Christina - The Light (2015) [MP3|320 кб/с]<Progressive / Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full Stop - 4:51
-02. Stay - 5:10
-03. Legend In The Making - 4:59
-04. Disappeared - 4:02(   Читать дальше...   )Жанр: Progressive / Art RockПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADBBECB49D393D7E837CA2509D72F1D228FFB3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909753   (626397) от 18.06.2015
-
-Kali Ra - Cocoon (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy See
-02. Sleeping Angels
-03. Cocoon
-04. Break(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AEEF3822EDC1ECABB970FE059D43B7101A51061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909951   (626396) от 18.06.2015
-
-Эмилий Драконций | Мифологические поэмы [Сборник] (2001) [DJVU]
+Футбол. Кубок Конфедераций 2017. Группа A. 2-й тур. Россия - Португалия (21.06.2017) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626396.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге собраны впервые переведенные на русский язык поэмы позднего античного автора Эмилия Блоссия Драконция: "Трагедия Ореста"; "Медея"; "Похищение Елены"; "Размышление Ахилла, выдать ли ему за выкуп тело Гектора"; "Гил". В большой вводной статье В.Н.Ярхо показано место Драконция в истории европейской культуры. (   Читать дальше...   )Жанр: ПоэзияПеревод: Виктор ЯрхоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A8475183D78D1FC1D4DF29A4F11B7F9FA7F5E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909598   (626395) от 18.06.2015
-
-А. Б. Ранович | Еврейские осенние праздники (1931) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из первого раздела:
+21 июня 2017 года, среда. 18:00 МСК
+Группа A. 2-й тур
 
-К сожалению, религиозный туман у нас еще не окончательно рассеялся. Еще не вполне изжиты националистические предрассудки, в частности и среди трудящихся евреев. Религия находить здесь еще кой-какую питательную среду. Особенно она старается воздействовать на воображение и чувства верующих. Она поражает пышностью и торжественностью богослужения. (   Читать дальше...   )Жанр: история, религиоведениеФормат: DJVU
+Стадион: Открытие Арена (Москва, Россия) , 42759 зрителей (94 % при вместимости 45360)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Юрий Розанов и Валерий Карпин)Продолжительность: 02:05:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A97C6AB8137B02B6CF4E937BEFB08C7E39AE5362
+magnet:?xt=urn:btih:19CD65804D96EEF0321967103656E582406283A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,115 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 909637   (626394) от 18.06.2015
+###  Публикация: 1144481   (627757) от 22.06.2017
 
-Deadly Circus Fire - The Hydra’s Tailor (2015) [MP3|320 кб/с]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626394.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In Darkness We Trust
-2. Animal
-3. Where It Lies
-4. Victim(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F76E8F421E9ACB37FCDAE7B007188AE741CF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909623   (626393) от 18.06.2015
-
-The Trousers - Mother of Illusion (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buckley Funeral Home
-02. Gunslinger
-03. Hysterical Route
-04. Break Your Mind(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB97099B8B886A4BB4950F1C69AFC6A297D3A9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909626   (626392) от 18.06.2015
-
-Ian Toomey (Bitches Sin) - Ascension (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost And Always
-02. Bad Blood
-03. Superman
-04. Very Soon Everyone's Leaving(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9D9BEA8F06AB995605DDDDD427321D9570D315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035575   (626391) от 17.07.2016
-
-Chastain - We Bleed Metal (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Your Highness - Cults 'n' Cunts (2011) [FLAC|Lossless|image + .cue] <Sludge,  Stoner>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626391.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We Bleed Metal
-02. All Hail the King
-03. Against All the Gods
-04. Search Time for You(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 0:44:51
+1. Through The Eyes Of The Beast
+2. Gut This City
+3. The Rivening
+4. Skull Goblet(   Читать дальше...   )Жанр: Sludge,  StonerПродолжительность: 00:28:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:702F58EF2086274E087983FE2D2E0E0603152D8C
+magnet:?xt=urn:btih:668A3DB37AEA6C8675073B3BF48B8F1DB1728E74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -560,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035605   (626390) от 17.07.2016
+###  Публикация: 1144517   (627756) от 22.06.2017
 
-Афганские плейбои / Afghan playboys (2016) HDTVRip [MP4|1280x720]
+VA - Sigh Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Мультимедиа и прочее
->>Мобильное Видео
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626390.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Бача» - этим персидским словом в Афганистане называют мальчиков, которые на закрытых вечеринках танцуют в женской одежде и оказывают услуги сексуального характера. Бизнес на них, несмотря на его незаконность, - весьма популярен в стране. Те, кто его «держит», - таких людей здесь называют «плейбоями» - вовлекают в свою деятельность детей из бедных семей, соблазняя (   Читать дальше...   )Производство: Россия / RTДЖанр: ДокументальныйПеревод: Двуголосый закадровыйПродолжительность: 00:26:57
+01.  Alphawezen - Gun Song (Original Mix)  3:16
+02.  Nor Elle - Let Things Slide (Original Mix)  6:03
+03.  Dadamnphreaknoizphunk - Up The Down Steriod (Original Mix)  5:56
+04.  Tears Of Change - Xy4 (Original Mix)  7:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DABD895BDC0F84FEAAC864AFCB36CACF24986F6
+magnet:?xt=urn:btih:7AFBCB7EF169AFD63F2CCDF4A56144538D18C835
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035333   (626389) от 17.07.2016
+###  Публикация: 1144349   (627755) от 22.06.2017
 
-Нрав / Temper (2015) DVDRip
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 1-й тур. Австралия — Германия (19.06.2017) HDTVRip
 
->>Зарубежное кино
->>Индийское кино
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626389.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Будучи ещё ребёнком, Дайя усвоил самый главный урок в жизни - хочешь жить, умей вертеться. А если хочешь жить припеваючи - то надо обязательно стать полицейским. Ведь не зря существует выражение, что полицейский - это "оборотень в погонах". Навидевшись в детстве всех "привилегий" от столь важного звания, Дайя упорно идёт к своей цели, сметая все (   Читать дальше...   )Производство: ИндияЖанр: Боевик, Драма, КомедияРежиссер: Пури ДжаганнатхАктеры: Н.Т.Р. мл., Каджал Агарвал, Пракаш Радж, Посани Кришна Мурали, Джая Пракаш Редди, МадхуримаПеревод: Любительский двухголосыйСубтитры: Русские (вшитые, неотключаемые на тексты песен)Продолжительность: 02:25:42Реклама: Рекламы нет
+19 июня 2017 года, понедельник. 18:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа B. 1-й тур
+Австралия — Германия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A00668EAC8BEFF8F8CFC5429AE92192A7973C50
+magnet:?xt=urn:btih:D36DC03B1F1A354DF441B496FAD4834A32A454BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035449   (626388) от 17.07.2016
+###  Публикация: 1144369   (627754) от 22.06.2017
 
-Эрик Кандель | Век самопознания. Поиски бессознательного в искусстве и науке с начала XX века до наших дней (2016) [EPUB, FB2, MOBI]
+Ronny Vergara - Remixes Compilation Vol.02 (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626388.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лауреат Нобелевской премии в области физиологии и медицины (2000 г.) и знаток модернистского искусства Эрик Кандель приводит нас в блистательную Вену рубежа XIX-XX веков - город Зигмунда Фрейда, Артура Шницлера и Густава Климта. Здесь - в художественных мастерских, врачебных кабинетах и светских салонах - около ста лет назад началась революция, изменившая наши представления (   Читать дальше...   )Жанр: Общая психология, история психологииФормат: EPUB, FB2, MOBI
+1. Chelsy (original mix) (09:32)
+2. Background (Many Reasons AKA Minicoolboyz & Minicoolboyz remix) (07:46)
+3. Background (Virgil Enzinger remix) (06:42)
+4. Background (D-Unity remix) (06:27)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:16:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:229BF36CA73AB0D6B01295A735BD559DAA2536E4
+magnet:?xt=urn:btih:90B29F3056294EE185130E54307675E021DDC4A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,25 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035651   (626387) от 17.07.2016
+###  Публикация: 1144259   (627753) от 22.06.2017
 
-Ani Tore! EX / Anitore! EX / Тренировки с аниме! [2015, TV, 12 из 12] BDRip 1080p Hi10P raw
+Evolving Atmospheres - Evolving Atmospheres (2017) [MP3|320 Kbps] <Ambient, Drone>
 
->>Аниме с субтитрами
->>Аниме (FullHD)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626387.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Прокачай своё тело и душу!" Каждая серия содержит отдельный элемент спортивный тренировки, такие как отжимания, приседания, повороты позвоночника, йога и т.д. Пять девочек, стремящихся стать идолами, будут тренироваться с вами, и в результате беспокоящее их содержание жира в организме понизится на 1000%...!?Производство: Студия Rising Force / ライジングフォースЖанр: комедияРежиссер: Нигорикава АцусиЯзык субтитров: Русский (отключаемый)Продолжительность: 12 эп. по 4 мин.
+01. Interstellar Journey, Part One
+02. Interstellar Journey, Part Two
+03. Lost in Space
+04. Ground Control(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:35:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AA4B66BF76A9E5B7C9DB723080309280747BBF7
+magnet:?xt=urn:btih:AB02FFF24A4C49825967FF313BE32EABD484798D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,25 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035355   (626386) от 17.07.2016
+###  Публикация: 1144293   (627752) от 22.06.2017
 
-Вне поля зрения / Out of Sight (1998) BDRip [H.264]
+Мeаn Streаk - Вlind Fаith (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626386.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джек Фоули — самый удачливый грабитель в стране, ограбивший более двухсот банков. Однажды, сбежав из тюрьмы, он понимает, что должен украсть кое-что более ценное, чем деньги… сердце Карен Сиско. Она умна, красива, но, к сожалению, Карен еще и работник прокуратуры. Теперь предстоит рискнуть всем, чтобы понять, есть ли между ними нечто большее, нежели Закон…Производство: США / Jersey Films, Universal PicturesЖанр: Триллер, Драма, Мелодрама, КриминалРежиссер: Стивен СодербергАктеры: Джордж Клуни, Дженнифер Лопез, Винг Реймз, Дон Чидл, Стив Зан, Деннис Фарина, Луис Гусман, Кэтрин Кинер, Альберт Брукс, Исайя ВашингтонПеревод: Многоголосый, двуголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 02:02:49
+01. Blood Red Sky (4:23)
+02. Animal In Me (3:52)
+03. Retaliation Call (4:27)
+04. Settle The Score (4:51)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34C68E4E81B209981CD89F53F83275B411B4E147
+magnet:?xt=urn:btih:C41D55E99FA8FA044F5E3FF88C93772753E66499
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,25 +230,494 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035588   (626385) от 17.07.2016
+###  Публикация: 1144181   (627751) от 22.06.2017
 
-Эмиль Золя | Собрание сочинений в 26 томах [26 томов] (1960-1967) [PDF, DJVU]
+VA - This Is My Church Vol.6 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Художественная литература
->>Собрания книг иностранных авторов
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626385.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Один из самых значительных представителей реализма второй половины XIX века — вождь и теоретик так называемого натуралистического движения, Золя стоял в центре литературной жизни Франции последнего тридцатилетия XIX века и был связан с крупнейшими писателями этого времени («Обеды пяти» (1874) — с участием Гюстава Флобера, Ивана Сергеевича Тургенева, Альфонса Доде (   Читать дальше...   )Жанр: Классическая литература, Французская прозаФормат: PDF, DJVU
+01.  Waldo Munoz - Reverse (Miami Beach Mix)  3:32
+02.  Jason Smith - Bull Drake (Original Mix)  3:45
+03.  Danny Hay - Tendency (Cosmic Light Mix)  5:52
+04.  Ranner Richard - Arab (Desert Roses Mix)  5:40(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E88F9E8098023A19A239A0DC2F59E0478E28DD68
+magnet:?xt=urn:btih:53F1A7D53D64BCB469B6BB998623E6CAA9D29043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144516   (627750) от 22.06.2017
+
+Василий Алёхин | Сполохи над Сеймом (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман "Сполохи над Сеймом" создавался в течение пятнадцати лет. Его документальная основа воссоздает события, связанные с партизанской деятельностью секретаря Крупецкого райкома комсомола Александры Зайцевой. Это имя хорошо известно на Брянщине, Украине, в Курской области. В селе Крупец установлен памятник этой легендарной женщине. Писатель разыскал многочисленные (   Читать дальше...   )Жанр: ПрозаПродолжительность: 23:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E907EEE6F212D3A490766A3E4A792D6A08AF82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144408   (627749) от 22.06.2017
+
+Donnie Darko - The Darko Effect (2005) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gangsta
+02 - Devils Bastard Pt. 2
+03 - Fight Muzic
+04 - Block Game(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6E36F26E7AE87ABA7CE981F8196C9B74372D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144367   (627748) от 22.06.2017
+
+Mike Dehnert - Providing Home (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627748.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (02:16)
+2. Between No Words (05:09)
+3. Want Be (04:00)
+4. Providing Home (05:20)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046A04FD5D01E5E6E008D736BCF5873470F3247D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144424   (627747) от 22.06.2017
+
+VA - Classic Progressive House Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627747.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alex Pich, Shinobi & Julius Beat - Satisfaction Love (Willem De Roo remix) (07:30)
+2. Gregory Esayan & Natalia Pevcova - So Right (dub mix) (08:00)
+3. James Woods - Here Comes The Light (original mix) (07:01)
+4. Alexey Sorokin - Behind The Moon (Mizar B 'Moon Landing' remix) (08:32)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A03515671AE6BBCBA3BAA54D780AF7762526CF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144506   (627746) от 22.06.2017
+
+CoolUtils Total Mail Converter 5.1.0.193 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Mail Converter надежная программа для конвертирования электронных писем из любого почтового клиента (.msg, .eml файлы) в TXT, PDF, HTM, RTF, DOC, TIFF. Это позволит Вам избавиться от лишних писем в вашем почтовом ящике и сохранить всю входящую почту в удобном для вас формате. Вы получаете возможность просматривать старые письма в других приложениях, а не только (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F327077410AEC059F143D5FC1DC4D92385CE913A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144529   (627745) от 22.06.2017
+
+VA - Relaxing Beach Chillout Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key Of Dreams - Amos Moses
+02. Leo Dj - Vitesse
+03. Monodial - Beat Flowers
+04. Casablanca - Dark Room(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3C91D33F2EBB7861AB8FC7A594A70A9AC68912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144373   (627744) от 22.06.2017
+
+VA - House On My Soul: Summer Edition (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627744.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ultrasound - Energy (original mix) (08:23)
+2. Steve Mola - Tropical Hotel (Following Light remix) (07:25)
+3. Stergios - Regeneration (Sunshine mix) (08:15)
+4. J-Sevilla - Delphinus (Ivanshee remix) (07:01)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0AF058AF36807F441724A53CE9B252AF5A7489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144457   (627743) от 22.06.2017
+
+VA - Magic Island Vol.8 (Mixed By Roger Shah) (2017) [MP3|~257 - 277 Kbps] <Trance, Progressive Trance, Balearic Trance,House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cullera ft Ne-Re-A - Sonido Del Mar (MI8 Intro Mix)
+02. Jackie Bristow - Without You (Roger Shah's Campfire Mix)
+03. Bob Memphis - Stars Above
+04. Brian Laruso - Killa (MI8 Mix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Balearic Trance,HouseПродолжительность: 02:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2F08D42008F6ACBB702AFCB9DDD07A9F6442DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144357   (627742) от 22.06.2017
+
+Breathdub - Modulations (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627742.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. This Moment (06:40)
+2. Return To Nightfall (06:49)
+3. Whispers (06:57)
+4. Clouds (06:53)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FB12840C395431343D83E826EEB4E46DC122C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144301   (627741) от 22.06.2017
+
+Б. Данэм | Герои и еретики. Политическая история западной мысли (1967) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Бэрроуз Данэм — один из видных прогрессивных философов современной Америки. Своими многочисленными трудами он снискал себе мировую известность. Основное внимание Данэма направлено на общественно-политические проблемы. Не будучи марксистом, он все же симпатизирует марксистскому учению и иногда для подтверждения своих взглядов ссылается на авторитет Маркса (   Читать дальше...   )Жанр: История, политология, религиоведение, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F20FE82BFC1EE9AB8CBF6A9AB08C3378FD6A162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543724   (627740) от 12.04.2022
+
+Downie 4 v4.5 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 11.04.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4346EEF776567E9B4F748D0ABBD28F9E772D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543637   (627739) от 12.04.2022
+
+Дарья Донцова | Джентльмен сыска Иван Подушкин (Книга 32). Бабулька на горошине (2022) [MP3, Юрий Красиков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человек, который начал вести здоровый образ жизни, часто выглядит нездоровым. Вот и мама Ивана Павловича напугала сына своей худобой. Оказывается, Николетта очаровалась колдуном, который посадил ее на диету и пообещал исполнение всех желаний! Мало Подушкину хлопот с маменькой, так еще и новая клиентка Татьяна Димкина обратилась за помощью.
+Дело в том, что ее брат (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60DA4593BEF3ED6086D0ACA2F8738E376AFA67A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543635   (627738) от 12.04.2022
+
+Дарья Донцова | Евлампия Романова. Следствие ведет дилетант (Книга 18). Безумная кепка Мономаха (2022) [MP3, Анна Чинцова]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_627738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просто абсурд какой-то! Вот теперь, когда я, Евлампия Романова – можно просто Лампа – нашла работу в детективном агентстве – приходится умирать со скуки. Нет клиентов, и все! Но я была бы не я, если бы не накликала приключений на свою голову. Моя первая, с таким трудом найденная, клиентка утверждает, что ее муж погиб в автокатострофе… два раза. Вот мне и придется (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:21:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543639   (627737) от 12.04.2022
+
+Дарья Донцова | Джентльмен сыска Иван Подушкин (Книга 15). Ангел на метле (2021) [MP3, Юрий Красиков]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_627737.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Не было бы счастья, да несчастье помогло!» – в правоте этой пословицы убедился Иван Павлович Подушкин, бессменный секретарь детективного агентства «Ниро». Ваня стал обладателем новой машины, которую получил в качестве гонорара от главного редактора газеты «Час пик». Тот просит Подушкина вычислить сотрудника, сливающего конкурентам эксклюзивную информацию. Ивану (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:51:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543715   (627736) от 12.04.2022
+
+Microsoft Edge 100.0.1185.39 [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_627736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, как вам удобно, импортировав закладки, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543640   (627735) от 12.04.2022
+
+Дарья Донцова | Татьяна Сергеева. Детектив на диете (Книга 18). Любовное зелье колдуна-болтуна (2022) [MP3, Дина  Бобылёва]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_627735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы расследовать новое дело, вся спецбригада Тани Сергеевой, в сопровождении шефа, выехала на Урал. Там, в небольшом городке Лоскутово, погиб мэр. Неужели многовековая – да-да, именно так! – вражда двух местных кланов, семейств Шаровых и Бражкиных, и в самом деле дошла до смертоубийства? Прямо не то Чикаго тридцатых годов, не то Италия времен Борджиа… Причем если (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:45:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543707   (627734) от 12.04.2022
+
+GeoGebra 6.0.700.0 Classic + Portable [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_627734.jpg" />
+</div>
+
+
+###  Подробнее
+
+GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1350771   (1002982) от 07.01.2020
+
+Торба-на-круче - Восток 7 (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сны Йети
+02. Пейджер
+03. Цунами
+04. Конец прекрасной эпохи(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F757408EA32D527DD602801668F1B71BC54C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599914   (998919) от 08.01.2013
 
 Олеся Троянская - Квартирник (1985) [FLAC|Lossless]<Acoustic/Rock>
@@ -741,35 +770,6 @@ Hatecraft - Lost Consolation (2005) [FLAC|Lossless|image + .cue] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F02E7AFAADA6CB46EA1C6E471D4233729A2D6F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359171   (966198) от 10.02.2020
-
-Sergey Golovin - Sculpture (2018) [FLAC|Lossless|Web-DL|tracks] <Progressive Metal, Instrumental Rock, Djent>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somnambu (1:23)
-02. Charger (4:07)
-03. Depth (4:02)
-04. Snow Blast (5:08)(   Читать дальше...   )Жанр: Progressive Metal, Instrumental Rock, DjentПродолжительность: 00:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDAB6BA698566575557B9830973E9524290E097F
 ```
 
 https://mybot314.ru/tekegram_catalog/

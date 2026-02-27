@@ -1,3 +1,32 @@
+###  Публикация: 1291836   (652408) от 26.03.2019
+
+Красное Дерево - Год Дикой Собаки (2019) [MP3|320 Kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Неначало (feat. Вадим Курнулли) (2:03)
+02. #МИШАВДЕЛЕ (2:47)
+03. Олдбой (feat. Janis Beatbox) (2:50)
+04. Н.О.Ж. (feat. Гена Гром) (2:56)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FEB440B1D0D6B1588FD7D4411C0D068AE94AF17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141195   (652127) от 09.06.2017
 
 Noize MC - Чайлдфри (2017) Single [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
@@ -714,35 +743,6 @@ VA - Pure... 90s R&B (2014) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D80206187B0DF730B460D6058FD8B876E6241669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146801   (612463) от 30.06.2017
-
-Miyagi & Эндшпиль - Умшакалака (feat. Amigo) (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Умшакалака (feat. Amigo)
-02. Райзап (feat. Amigo)
-03. Be My Sky (feat. Amigo)
-04. Отцу отсыпь (feat. Amigo)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E717B6D68D5A9E204D65DCF1E6BEEB331ACBB12
 ```
 
 https://mybot314.ru/tekegram_catalog/

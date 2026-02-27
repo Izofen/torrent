@@ -1,3 +1,60 @@
+###  Публикация: 791181   (718325) от 29.05.2014
+
+Инверсия - Под горою диво + 2 EP (2010-2014) [MP3|128-320 кб/с]<Folk, Punk-rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инверсия – это синтез панк-рока и  аутентичных русских народных песен. Это мощь и глубина древних напевов и драйв захватывающей энергетики современности. Это завораживающий саунд фольк-вокала и неистовая мощь панк-музыкантов. Это чистые звуки  этнических инструментов и жёсткий роковый ритм.
+Уникальность Инверсии - в её близости к фольклорным корням. Этнические напевы (   Читать дальше...   )(3:35) 1. Як человече
+(3:26) 2. Ой, немаеЖанр: Folk, Punk-rockПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C850668E356E5C44A2414231A141E615CE80C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024302   (718142) от 08.06.2016
+
+Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Revenant Main Theme (02:41)
+02. Hawk Punished (02:14)
+03. Carrying Glass (03:07)
+04. First Dream (03:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9649590417B07F47C6DE54738E2BF645B9DE4111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024500   (717916) от 08.06.2016
 
 VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -684,64 +741,6 @@ Two Steps From Hell - Dragon (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD423EC8D1FC8371161FA4BDB05DDFC4E060ECC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024869   (714143) от 10.06.2016
-
-Shannon Rae - Shannon Rae (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blame It on the Radio (3:48)
-02. Gotta Let Go (3:23)
-03. Beer Trucks & Girls (3:40)
-04. Gasoline (2:53)(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0D7B740E118A3756D9272583081AA0EDC266E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024867   (714139) от 10.06.2016
-
-Alex Hart - On This Day (2014) [MP3|320 кб/с] <Country, Alt Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (4:35)
-02. Bonita (3:16)
-03. Bad Boy Bill (3:27)
-04. Keep Britain Tidy (3:42)(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A908D7FBDFCD8DDEA46C2F3EAEBFC2E84B8C85
 ```
 
 https://mybot314.ru/tekegram_catalog/

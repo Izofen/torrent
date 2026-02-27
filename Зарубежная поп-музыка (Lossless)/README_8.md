@@ -1,96 +1,3 @@
-###  Публикация: 1352480   (1000721) от 15.01.2020
-
-VA - Acoustic Pop Songs 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Someone You Loved 3:19
-02. Nora & Will - Late Night Feelings 3:57
-03. Shannon & Keast - We Found Love 3:05
-04. Custom 7 - What We Need (Acoustic Version) 2:41(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B20DC252288CF0C177538C886A1AC0E75264B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605304   (995779) от 19.01.2013
-
-ABBA - ABBA (Deluxe Edition) (1975) /2012 Remaster, Polar/ [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Mamma Mia
- 2. Hey, Hey, Helen
- 3. Tropical Loveland
- 4. SOS
- 5. Man in the Middle
- 6. Bang-A-Boomerang
- 7. I do, I do, I do, I do, I do
- 8. Rock Me
- 9. Intermezzo No 1
- 10. I.ve Been Waiting For You(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353075   (993320) от 16.01.2020
-
-Veronique Jannot - Le Meilleur De Veronique Jannot (2002) [FLAC|Lossless|image + .cue] <Synth-pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993320.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Désir, Désir (Part 1) 4:55
-2 L'Atlantique 3:30
-3 Aviateur 4:27
-4 Si T'as Pas Compris 3:57(   Читать дальше...   )Жанр: Synth-pop, ChansonПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3EAC496B1E5A0FFEE4EB24DCEB4673A957414E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353204   (992687) от 17.01.2020
 
 Morgan Myles - Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -378,41 +285,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 163933   (987459) от 06.01.2010
-
-ABBA - Oro (Grandes Exitos) (1999) [APE|Lossless]<Pop, Easy listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Этот альбом был издан в 1999 году. В него вошли только испаноязычные версии хитов ABBA. (   Читать дальше...   )01. Fernando (4:13)
-02. Chiquitita (5:22)
-03. Gracias Por La Musica (3:49)
-04. La Reina Del Baile (3:59)
-05. El Andar (4:42)
-06. Dame, Dame, Dame (4:51)
-07. Estoy Sonando (4:37)
-08. Mamma Mia (3:32)
-09. Hasta Manana (3:08)
-10. Conociendome Conociendote (4:02)(   Читать дальше...   )Жанр: Pop, Easy listeningПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354582   (986981) от 23.01.2020
 
 VA - Rock'N'Roll HitMix  Superhits Non-Stop (1999) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
@@ -471,76 +343,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 164280   (986465) от 07.01.2010
-
-ABBA - Opus 10 (1994) [APE|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Это не очередной сборник ABBA. Этот альбом состоит из композиций, не вошедших в номерные альбомы квартета, студийных вариаций хорошо известных хитов, раритетов, демо-версий и неизданных песен. "Opus 10" - это предполагаемое название десятого альбома квартета, (   Читать дальше...   )01. Rock'n' Roll Band (1st Version) (3:06)
-02. Love Has It's Ways (2:42)
-03. Ah, Vilka Tider (2:31)
-04. Merry-Go-Round (3:20)
-05. Santa Rosa (3:02)
-06. Pick A Bale Of Cotton (1:25)
-07. On Top Of Old Smokey (1:12)
-08. Midnight Special (1:46)
-09. Crazy World (3:50)
-10. Happy Hawaii (4:26)(   Читать дальше...   )Жанр: PopПродолжительность: 02:16:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 164397   (986355) от 07.01.2010
-
-Bee Gees - Greatest Hits (2008) [FLAC|Lossless]<PoP, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Stayin' Alive (4:43)
-02. How Deep Is Your Love (4:03)
-03. Night Fever (3:31)
-04. More Than A Woman (3:17)
-05. Emotion (3:42)
-06. Too Much Heaven (4:56)
-07. Tragedy (5:03)
-08. Love You Inside Out (4:12)
-09. Guilty (4:25)
-10. Heartbreaker (4:26)(   Читать дальше...   )Жанр: PoP, RockФормат: 2 x CD, Compilation, Unofficial Release, DigipakПродолжительность: 02:38:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971663   (985560) от 03.01.2016
 
 Oonagh - Aeria (2015) Sartoranta • Fan-Edition [FLAC|Lossless|image + .cue] <Pop, Ethno-Pop, Folk>
@@ -563,41 +365,6 @@ Oonagh - Aeria (2015) Sartoranta • Fan-Edition [FLAC|Lossless|image + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D782F1AA9BEE8242ED569A6EFF1EE11774ED82F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434961   (985426) от 11.01.2012
-
-Shirley Bassey - 15 Hits of Shirley Bassey (1997) [FLAC|Lossless]<Pop, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. this is my life (3:18)
-02. yesterday when i was young (3:52)
-03. the boy from ipanema (2:50)
-04. don't cry for me argentina (5:15)
-05. can't take my eyes off you (3:57)
-06. vehicle (3:44)
-07. cry me a river (3:30)
-08. macavity (3:20)
-09. diamonds are forever (2:42)
-10. light my fire (3:29)(   Читать дальше...   )1997Жанр: Pop, RetroПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -772,6 +539,221 @@ New York Gypsy All Stars - Dromomania (2015) [FLAC|Lossless|WEB-DL|tracks] <Cont
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9623CB1B84283332D53E03A3D41EA9DAC5E15315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973554   (979131) от 09.01.2016
+
+Duran Duran - Astronaut (2004) SACD, 2005 Epic [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Reach Up for the) Sunrise (3:25)
+02. Want You More! (3:37)
+03. What Happens Tomorrow (4:04)
+04. Astronaut (3:24)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E070568B3EB993DF65E504C7A713C01A0BAA45F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974269   (976616) от 11.01.2016
+
+VA - BRAVO Hits 90 (2015) [FLAC|Lossless|tracks|WEB-DL]<Pop, Electronic, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Newman - Come And Get It (3:04)
+02. The Weeknd - Can't Feel My Face (3:35)
+03. Avicii - Waiting For Love (3:49)
+04. Lost Frequencies feat. Janieck Devy - Reality (Radio Edit) (2:39)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep-House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130E9F070A26135D06E67A2047C3996AD166FE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974348   (975796) от 12.01.2016
+
+Dolcenera - Le stelle non tremano (2015) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niente al mondo
+02. Immenso
+03. Un peccato
+04. Figli del caos(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FF320B2A8FB4E6810428D4CF1C057F1366DB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974453   (975683) от 12.01.2016
+
+Richard Marx - Beautiful Goodbye (2014) Target Exclusive Edition [FLAC|Lossless|image + .cue] <Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whatever We Started
+02. Suddenly
+03. Inside
+04. Beautiful Goodbye(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BD60955CDB454FAFC2682FBF97FAC0F9A878B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616734   (974916) от 10.02.2013
+
+Crazy Loop (Dan Balan) - The Power of Shower (2007) [FLAC|Lossless]<Pop, Dance, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy Loop (Mm-Ma-Ma) (3:35)
+02. Johanna (Shut Up!) (3:40)
+03. Love Is A Simple Thing (3:09)
+04. Uh-Ahh-Yeah (3:26)
+05. Famikon (2:34)
+06. Tango (3:28)
+07. Take Me Higher (3:38)
+08. Despre Tine Cant (Partea 2) (4:05)
+09. The 24th Letter (4:43)
+10. Crazy Loop (Mm-Ma-Ma) (DJ Ross Radio Club Edit) (3:54)(   Читать дальше...   )Жанр: Pop, Dance, BalladПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616583   (974738) от 10.02.2013
+
+Mylene Farmer - Monkey Me (2012) [APE|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elle a dit (3:52)
+02. À l'ombre (4:51)
+03. Monkey Me (4:14)
+04. Tu ne le dis pas (4:22)
+05. Love Dance (4:06)
+06. Quand (4:08)
+07. J'Ai Essayé De Vivre... (4:40)
+08. Ici-bas (4:33)
+09. A-t-on jamais (3:47)
+10. Nuit d'hiver (5:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974852   (973357) от 14.01.2016
+
+Reverend and The Makers - ThirtyTwo (2014) [FLAC|Lossless|WEB-DL|tracks] <Britpop, Electropop, Ska Revival>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detonator
+02. I Spy
+03. The Devil's Radio
+04. Nostalgia(   Читать дальше...   )Жанр: Britpop, Electropop, Ska RevivalПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D77365F7ADC74A69F980E51E2C05A846AE3217
 ```
 
 https://mybot314.ru/tekegram_catalog/

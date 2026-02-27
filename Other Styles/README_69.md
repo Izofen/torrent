@@ -1,3 +1,61 @@
+###  Публикация: 1279729   (764544) от 31.01.2019
+
+Ulver - Svidd Neger (Original Motion Picture Soundtrack) (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Soundtrack, Modern Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preface (1:42)
+02. Ante Andante (0:53)
+03. Comedown (2:19)
+04. Surface (3:17)(   Читать дальше...   )Производство: Jester Records – TRICK030Жанр: Electronic, Soundtrack, Modern Classical, Score, AmbientПродолжительность: 00:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133A35C1E4AE0C925F4557605C541C2B9FB80E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126635   (764479) от 19.04.2017
+
+The Essence - Enigma Lounge (2003) [FLAC|Lossless|tracks + .cue] <Enigmatic, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wholeness Of The Essence (04:38)
+02. True Sensuality (05:02)
+03. Essence (04:02)
+04. La Vie Rouge (04:04)(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C57950BAC6E7E800C0950B1FA8B126BA41D81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126599   (764330) от 19.04.2017
 
 Blonker - Fantasia (1980) Remastered, 1994 [FLAC|Lossless|image + .cue] <New Age, Ambient, Rock>
@@ -687,64 +745,6 @@ OVA - Дискография (2011-2012) [FLAC|Lossless|WEB-DL|tracks] <Instrume
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F3EE7951814A72E216DA8B5494C43849A986FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922038   (756436) от 05.02.2019
-
-Юлия Славянская - шесть альбомов (2002-2016) [MP3|320 кб/с]<Православная духовная музыка> [Обновлено 04.02.2019]
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. За окном вагона (02:56)
-02. Стихи на снегу (03:19)
-03. За Россию! (03:58)
-04. Помолись за меня (03:35)(   Читать дальше...   )Жанр: Православная духовная музыкаПродолжительность: 04:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D495584F85B81270E1BE7042F8B543763A39FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215791   (756349) от 27.03.2018
-
-Gregorianika - Ora et Labora (2009) [FLAC|Lossless|tracks + .cue] <New Age, Gregorian Chant>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	In Spiritu Sancti	2:58
-02.	Ave Verum	2:43
-03.	Believe In You	4:31
-04.	Ave Maria	2:17(   Читать дальше...   )Жанр: New Age, Gregorian ChantПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D5B965958397DD27E51779AE0CD1F77CF9D6E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

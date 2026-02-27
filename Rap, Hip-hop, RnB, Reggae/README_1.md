@@ -1,3 +1,32 @@
+###  Публикация: 1447195   (1032040) от 12.02.2021
+
+Anacondaz - Перезвони мне +79995771202 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032040.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Когда-нибудь
+2. Серым
+3. SOS
+4. Уходи(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0183746BBD73C2950104E47F202509C0B8053FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447801   (1031687) от 14.02.2021
 
 clipping. - Visions Of Bodies Being Burned (2020) [FLAC|Lossless|tracks + .cue] <Experimental Hip-Hop, Horrorcore Hip-Hop, Industrial Hip-Hop>
@@ -710,35 +739,6 @@ ST1M - Окна (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C179D4BA86E5346A9D1D8AF67E8FBD25ACABE51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459769   (1022815) от 04.04.2021
-
-XIII - SEKTA (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звонок (No Caller ID 23:13) [00:36]
-02. Дрожь земли [02:56]
-03. Dedushka Boi [01:41]
-04. Мой Dope [02:18](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD35DFC7A15F0FAE4C528F14B406DA2B742C322
 ```
 
 https://mybot314.ru/tekegram_catalog/

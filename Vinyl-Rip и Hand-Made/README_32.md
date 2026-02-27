@@ -1,3 +1,207 @@
+###  Публикация: 1574673   (383653) от 06.09.2022
+
+VA - Folk Rock Collection 1965 - 1975 (2022) Compilation, Unofficial Release [FLAC 2.0|44.1/24|image+.cue|MC-Rip] <Folk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Byrds - All I Really Want to Do
+Mr. Tambourine Man
+1965 - Columbia - Dylan
+02. The Lovin' Spoonful - Darling Be Home Soon(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358880C8009362C10586FE4DC93E1E5826FA08BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414674   (383165) от 09.10.2020
+
+VA - Рок-панорама-87 (1988) 3LP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <New Wave, Avantgarde, Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383165.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Г. Рябцев - Найти И Потерять = Find And Lose
+A2 Алиби - Выше Голову = Raise Your Head Higher
+A3 Зодчие - Юла = Whirligig
+A4 Ва-Банк - Максималист = Maximalist(   Читать дальше...   )Жанр: New Wave, Avantgarde, PunkПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB40DB677524F1F1F8DAA0B20AE52A8BAE3F0F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068641   (380449) от 01.11.2016
+
+Владимир Минин - С. Рахманинов - Литургия Святого Иоанна Златоуста, Соч. 31 (1990) [WavPack|96/32|tracks|Vinyl-Rip] <Classical, Vocal, Religious>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_380449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Благослови, душе моя, Господа  4:02
+02. Слава Отцу и Единородный  2:36
+03. Во Царствии твоем  4:52(   Читать дальше...   )Жанр: Classical, Vocal, ReligiousПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC1CB55A6EA91B7A9FFFE0CE3183EA54990A86B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947960   (379261) от 22.10.2015
+
+VA - Бумер - 2 (2006) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Original Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ленинград - Меня зовут Шнур
+02. Тела - Шизофрения
+03. Ber-Lin - Даша
+04. Пираньи - Плати(   Читать дальше...   )Жанр: Original SoundtrackПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF1630512B22B5A3B0C4375BBA87CB05F14185F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947860   (378990) от 22.10.2015
+
+VA - Шедевры инструментальной музыки части 1 - 3 (1999) [FLAC 2.0 16/44,1|tracks+.cue (MC-Rip)]<Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. История любви - Поль Мориа
+ 02. Одинокий пастух - Джеймс Ласт
+ 03. К Элизе - Ричард Клайдерман
+ 04. Эммануэль - Фаусто Папетти(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 03:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D73A71FB3328BCB5F9E052B853B1ECA49C126D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068882   (378154) от 02.11.2016
+
+Колокольные звоны - The Chimes (1980) [WavPack|96/32|tracks|Vinyl-Rip] <Church bells/Russian Falc>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Троице-Сергиева лавра:
+1. Звонница Духовской церкви 05:16
+2. Большая лаврская колокольня 12:04(   Читать дальше...   )Жанр: Church bells/Russian FalcПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B9EE225700663909ADEA543A1933DE4975754B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573034   (375650) от 12.11.2012
+
+Johann Sebastian Bach–Piano concertos: BWV1061,BWV1060,BWV1062 Zoltan Kocsis, Andras Schiff it is digitized from vinyl (1977/1978, Hungaroton /[FLAC|Lossless]<Chamber>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 2
+05 - II.Adagio, attacca
+06 - III.Allegro
+Concerto in C minor BWV1062
+07 - I.Жанр: ChamberПродолжительность: 00:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555FE2D2DDD5ECA2E2A1567AFBA20AFE89DDC569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575340   (375376) от 10.09.2022
 
 Dan Spătaru/Дан Спатару – Песни Из Кинофильма «Песни Моря» (1971) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Soundtrack>
@@ -539,212 +743,6 @@ A4 Puccini - Intermezzo: (Manon Lescaut, Ch'ella Mi Creda), Placido Domingo(   �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33136F64EAFBA3B5B3CCE40D48271A51645FC462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256001   (356691) от 21.10.2018
-
-Saint-Saens - Symphonies (Carnival of the Animals, Phantasy E flat Major, Organ Symphony №3 C minor) (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carnival of the Animals
-01. Introduction et marche royale du lion (Introduction and Royal March of the Lion)
-02. Poules et coqs (Hens and Roosters)
-03. Hemiones (animaux veloces) (Wild Donkeys Swift Animals)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD2C86480B45946949490126DB3A6DC3A1FAC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256012   (356688) от 21.10.2018
-
-Three Dog Night - Coming Down Your Way (1975) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356688.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Til the World Ends
-A2 You Can Leave Your Hat On
-A3 Good Old Feeling
-A4 Mind over Matter(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7012E518BDE96ECCCB29451FFE786590F4C9B6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256278   (356551) от 21.10.2018
-
-The Music Of San Marco/Soloist Di Zagreb - Vivaldi - The Four Seasons/Concerto Grosso op. 3/8 in A minor (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spring Concerto in E major RV 269
-01 Allegro
-02 Largo
-03 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A762169DA14E395D09C5BEECF03B15202834F9D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256019   (356441) от 21.10.2018
-
-Гости Из Будущего - Ева. Полная Версия (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop, Euro House>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356441.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Intro
-A2 Люби Меня По-Французски
-A3 Он Чужой
-A4 Не Говори О Любви(   Читать дальше...   )Жанр: Europop, Euro HouseПродолжительность: 01:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73114A96360FF284768223FF621C97B8E70469A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 723949   (355313) от 18.11.2013
-
-Elvis Presley - Our Memories Of Elvis (1979) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Are You Sincere  2:00
-2. It's Midnight  3:20
-3. My Boy  2:55
-4. Girl Of Mine 3:40
-5. Take Good Care Of Her  2:50
-6. I'll Never Fall In Love Again  3:40
-Сторона 2
-1. Your Love's Been A Long Time Coming  2:50
-2. Spanish Eyes  2:23(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA570B4A405ABB69A5FE4F54E2857DEE7564F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072526   (351827) от 13.11.2016
-
-Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)/Иисус Христос  суперзвезда 2LP (1991) [WavPack|192/32|tracks|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic RockПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78AC4AD8380CDF662BC646B3C722BAF9A22AB7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418137   (351353) от 23.10.2020
-
-Wishbone Ash - Front Page News (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351353.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Front Page News
-A2 Midnight Dancer
-A3 Goodbye Baby Hello Friend
-A4 Surface To Air(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1936BD7C51CAFD46AD48AD09E69728AF3DE41A5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,293 @@
+###  Публикация: 1179748   (340150) от 04.11.2017
+
+Группа Кассета - Искорки зимы (2014) [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня любви (4:21)
+02. Сердце моё (3:06)
+03. Искорки зимы (4:13)
+04. Медленно тает (5:37)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE06316CE4C761146BCCAC7A36713972FB1CC118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180405   (340142) от 04.11.2017
+
+The Universal Robot Band - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340142.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Universal Robot Band - американская музыкальная группа в составе: Gregory Carmichael, Patrick Adams, Leroy Burgess, Gregory Tolbert и Woody Cunningham. Сформированы Патриком Адамсом и Грегом Кармайклом в 1976, их дебютный сингл "Dance And Shake Your Tambourine" достиг максимума в топе 25 хитов в танцевальной клуб-музыке.01. Flintstone Disco (8:52)
+02. Dance And Shake Your Tambourine (6:21)
+03. You're My Music (5:05)
+04. Space Disco (11:47)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE2F4F97F563FD97BD6D0EDE201E0CC088469B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419533   (339991) от 28.10.2020
+
+Bogart - ...Again (1981) LP [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back On The Road  (3:46)
+02. Looking For A Good Thing  (3:46)
+03. Without You  (3:39)
+04. Susan And Me  (3:46)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B17473320719F0DB9A8F1A3A9628518C227B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419463   (339988) от 28.10.2020
+
+Gene Farrow - Move Your Body (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move Your Body  (5:43)
+02. Woman  (3:32)
+03. One Night In New York  (3:29)
+04. Do It Again  (3:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C17A25E4D72F28B2F09C8E6002B5C15CE2308D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419512   (339982) от 28.10.2020
+
+Interface - Plastic Age (2020) Unofficial [FLAC|Lossless|tracks + .cue] <Synthpop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plastic Age (12'' Version) (6:47)
+02. Like Puppets (12'' Version) (5:26)
+03. Plastic Age (Male Vocal Mix) (8:00)
+04. Like Puppets (7'' Version) (3:49)(   Читать дальше...   )Жанр: Synthpop, Italo-DiscoПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3D52F15A6ED092F678DC03F33128AF7FD29752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419514   (339980) от 28.10.2020
+
+Il Quadro di Troisi - Il Quadro di Troisi (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il giudizio (4:15)
+02. Beata (3:50)
+03. Sfere di Qi (3:58)
+04. Non ricordi (5:08)(   Читать дальше...   )Жанр: Synthpop, Italo-DiscoПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF4E880B25D90300F7625CAC5CA1596A58842267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954582   (339966) от 08.11.2015
+
+Anouk - Greatest Hits (2015) 2CD [FLAC|image+.cue]<Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern World
+02. If I Go
+03. Three Days In A Row
+04. Woman(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159C55B6DAB3990D8CF78F090E9E22FD664475C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954580   (339869) от 08.11.2015
+
+Anouk - Greatest Hits (2015) 2CD [MP3|320 кб/с]<Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern World
+02. If I Go
+03. Three Days In A Row
+04. Woman(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5877B2E1BA49B2A5A164C3C25CF7FB5D8CEED397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954695   (339859) от 08.11.2015
+
+Алёна Валенсия - Твоя (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Твоя
+ 02. Рождена для тебя
+ 03. Единственный мужчина
+ 04. Спасибо, Вова(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D7592428B47312C00E55C09AFDBD86CF2349DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954576   (339837) от 08.11.2015
+
+Bjork - Vulnicura Strings (2015) [FLAC|tracks+.cue]<Pop, Experimental, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mouth Mantra
+02. Lionsong
+03. Black Lake
+04. Atom Dance(   Читать дальше...   )Жанр: Pop, Experimental, AcousticПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773F67186A9FAA6BC8B39C391EAFBC7050B232DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954738   (339711) от 08.11.2015
 
 Sabrina - Disco Collection (2002) [MP3|320 кб/с]<Pop, Disco>
@@ -449,305 +739,6 @@ RSAC x ELLA - ФЕЛЛА (2019) [MP3|320 Kbps] <Alternative Pop, Indie Pop, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:857F39C40912EA64D53A5D72FD35037739C2B036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980457   (338696) от 11.10.2019
-
-VA - Grammy Nominees 2016 [MP3|320 кб/с] <Pop, Country, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Ronson feat. Bruno Mars - Uptown Funk
-02. Taylor Swift - Blank Space
-03. The Weeknd - Can't Feel My Face
-04. Ed Sheeran - Thinking Out Loud(   Читать дальше...   )Жанр: Pop, Country, RockПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC5368E1C9C55B2B1DA86C95AABA77DFFC825722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579122   (338582) от 26.09.2022
-
-Madonna - You'll See (1996) [OGG Vorbis|485 Kbps] <Electronic, Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'll See (Album Version)
-02. You'll See (Instrumental)
-03. You'll See (Spanish Version)
-04. Live To Tell (Live)Жанр: Electronic, Rock, Synth-popПродолжительность: 00:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686099CE612F299AD17AA64122727E3C07E5FE23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579331   (338572) от 26.09.2022
-
-Robbie Williams - XXV (2022) (2 CD) [OGG Vorbis|484 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Robbie Williams–	Let Me Entertain You	3:38
-02.	Robbie Williams–	Come Undone	4:18
-03.	Robbie Williams–	Love My Life	3:25
-04.	Robbie Williams–	Millennium	3:49(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E0B028E2E3C274D29F893958948BDE1D9E2CEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 411091   (338561) от 16.11.2011
-
-Gianni Morandi - Questa E' La Storia (1994) [FLAC|Lossless]<Italo-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_338561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Italo-popПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180730   (338001) от 05.11.2017
-
-VA - Cosmic Future Groove Vol. 1 (2010) Spaced Out Disco & Funkified Electronic Themes [1975-1987][MP3|320 Kbps] <Electronic, Space-Age, Synth-pop, Jazz, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Fiddy & Sammy Burdson - Robotory (2:05)
-02. Claude Perraudin - Evasion (1:59)
-03. Gaston Borreani - Jupiter (2:29)
-04. Mark Monson - Well Done (2:46)(   Читать дальше...   )Жанр: Electronic, Space-Age, Synth-pop, Jazz, Funk, DiscoПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6CAB453817666EA6205B73B92FB36630B8EE12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180942   (337893) от 05.11.2017
-
-Soraya - Soraya (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If (7:32)
-02. Soraya Funk (6:13)
-03. I Can't Believe (3:25)
-04. My Life (7:23)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E8B09D01E7CB5154DF4541A48C1009EBC30688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180891   (337888) от 05.11.2017
-
-VA - Cosmic Future Groove Vol. 2 (2012) Spaced Out Disco & Funkified Electronic Themes [1973-1983][MP3|320 Kbps] <Electronic, Space-Age, Synth-pop, Jazz, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthony Hobson - Omicron (2:42)
-02. Roger Webb - Flying Objects (3:41)
-03. Wolfgang Kafer - Fly And Spider (2:53)
-04. Pierre Briffa & Bernard Lamastre - Georges De L'ardeche (1:35)(   Читать дальше...   )Жанр: Electronic, Space-Age, Synth-pop, Jazz, Funk, DiscoПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29A524ECE2ED8B7AD41E47A252E01F898775D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180722   (337880) от 05.11.2017
-
-Frequenz - The First Album / Телефонный поцелуй (2000) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не хватает тебя (4:03)
-02. Любовь не умрёт (3:42)
-03. Сегодня так.. (4:31)
-04. Расскажи мне правду (4:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F49E259512C450FD6A7632A75E9FD0B58B5B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580260   (337837) от 27.11.2012
-
-Аркадий Хоралов - Недотрога (2004) [MP3|320 кб/с]<Pop,Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я твой пленник (3:40)
-02. Бесконечность (4:32)
-03. Гавань моей любви (2:51)
-04. Заброшенный лес (3:24)
-05. Без тебя (4:38)
-06. Вперёд, друзья (3:48)
-07. Воскресенье (3:51)
-08. Пусть исчезнут беды (3:47)
-09. Чужой телефон (3:20)
-10. Лишний билет (4:11)(   Читать дальше...   )Жанр: Pop,RetroПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09630FB291C0A826984756C66DD0BDD722A5E197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581091   (337718) от 27.11.2012
-
-Ricchi E Poveri - Perdutamente Amore (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amore E Odio (3:28)
-02. Mamma Maria (version 2012) (2:59)
-03. Cosa Sei (version 2012) (3:58)
-04. Dimmi Che Mi Ami (3:14)
-05. Voulez-Vous Dancer (version 2012) (3:49)
-06. Made In Italy (version 2012) (3:01)
-07. Musica Vita Mia (3:23)
-08. Piccolo Amore (version 2012) (3:39)
-09. Acapulco (version 2012) (3:42)
-10. Sara Perche Ti Amo (version 2012) (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DE02E58D05628B39DA3BDAC470A9DCE6B20018
 ```
 
 https://mybot314.ru/tekegram_catalog/

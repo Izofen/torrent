@@ -1,3 +1,61 @@
+###  Публикация: 827530   (444871) от 04.10.2014
+
+Nile Rodgers & VA - Путешествие в Америку / Coming to America (Original Score + Original Soundtrack) (1988) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Credits (02:44)
+02. Akeem Wakes Up (01:36)
+03. Bathing (00:30)
+04. Happy Birthday (01:14)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C7273C99214364A3C022DF70826F2A92EF5828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943914   (444762) от 05.10.2015
+
+Taylor Davis - Taylor Davis (2015) [MP3|320 кб/с]<Instrumental, Neo-Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulbound
+02. Reflections
+03. Awakening
+04. Mystic Forest(   Читать дальше...   )Жанр: Instrumental, Neo-ClassicalПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7B9B9DA590FC76F2B83E23D5EC4AF516C8623B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322412   (444570) от 31.08.2019
 
 Paul Cardall - Peaceful Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
@@ -702,70 +760,6 @@ Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2964D54A43DAD3E9B01D83AE4560B9EF69BD01A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062938   (436793) от 15.10.2016
-
-Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe Pain Can Save Us (03:03)
-02. Cerca Trova (03:18)
-03. I'm Feeling A Tad Vulnerable (02:09)
-04. Seek And Find (02:04)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DBECEF838F5DACCE1FE811C420C9E2E55BAF499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554754   (436250) от 01.10.2012
-
-Blonker - Wellness (Musik Fur Die Seele) (1990) [FLAC|Lossless]<Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sidewalk Cafe
-02. Amazonas
-03. Fantasia
-04. In Balance
-05. Time To Remember
-06. Dragon Fly
-07. Morning Breeze
-08. Merlin
-09. Anak
-10. Inspired(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

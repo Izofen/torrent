@@ -1,3 +1,61 @@
+###  Публикация: 1852208   (1055812) от 08.02.2026
+
+Windows 10 (v22h2) x64 PRO by KulHunter v29 (esd) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на ISO-образе, собранном на UUP Dump: 19045.6809.260109-0949.22H2_RELEASE_SVC_PROD1_CLIENTMULTI_X64FRE_RU-RU.iso
+Отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.
+Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C082E70769834F27634D5A48060782D945D821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852210   (1055810) от 07.02.2026
+
+Windows 10 (v22h2) x64 PRO by KulHunter v29 (esd) [En]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на ISO-образе, собранном на UUP Dump: 19045.6809.260109-0949.22H2_RELEASE_SVC_PROD1_CLIENTMULTI_X64FRE_EN-US.iso
+Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.
+Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6912C326FB52A8C0A41972D7C21817BD2F52AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851965   (1055730) от 05.02.2026
 
 Windows 10 3in1 x64 22Н2 (build 19045.6812) by ivandubskoj 04.02.2026 [Ru]
@@ -646,64 +704,6 @@ Windows 7 SP1 7601.28117 x64 3in1 by OneSmiLe [17.01.2026] [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD2B32E9383167054B57F2B795B2BCC0CB2604ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848259   (1052743) от 17.01.2026
-
-Windows 11 24h2 (build 26100.7623) Enterprise LTSC 2024 by Izual Soft [v14.01.26] [Ru/En]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка создана на основе оригинальных файлов UUP.
-Магазин и Защитник не удален.
-Remote Desktop Server. Microsoft OneDrive удалено.
-DirectX 9.0, 7-ZIP интегрированы.(   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5607D54DE560A3F44BCA1784CD4F2A86FA8188C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847837   (1052493) от 16.01.2026
-
-Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.6809 [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-Используется лаунчер от ФБ
-ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c
-Установлены обновления по 14.01.2026 года включительно(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2084C44568719A002C1C6432D07490E898F22D35
 ```
 
 https://mybot314.ru/tekegram_catalog/

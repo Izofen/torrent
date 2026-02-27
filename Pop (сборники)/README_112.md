@@ -1,3 +1,148 @@
+###  Публикация: 1429847   (174647) от 08.12.2020
+
+VA - Discotron Remixes (2020) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_174647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диско музыка это не даже гимн минувшей эпохи, это для многих лучшие воспоминания, юность, первая любовь. Эти чудесные дни будят разум, так почему бы не почувствовать их атмосферу у себя дома? Песни сборника "Discotron Remixes" в свежем исполнении подарят вам прекрасные воспоминания, чудесную музыку и атмосферу того времени.001. Dj Mark Brickman - The Get Down
+002. Giovanni Damico - Cassette Funk
+003. Paper Street Soul - Wonder
+004. Róisín Murphy - Something More(   Читать дальше...   )Жанр: DiscoПродолжительность: 09:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC1C4D75125630FFA50460940FDCC44820BA749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668871   (173167) от 14.10.2023
+
+VA - German Top 100 Single Charts 13.10.2023 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173167.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AYLIVA - Hässlich (2:16)
+002. Sira, Bausa & badchieff - 9 bis 9 (2:11)
+003. cassö, Raye & D-Block Europe - Prada (2:12)
+004. Tate McRae - greedy (2:11)(   Читать дальше...   )Жанр: PopПродолжительность: 04:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6369701FC9D591AD8D3C23A810D32BEC065FD767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669166   (172791) от 16.10.2023
+
+Elyanna - Compilation (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Kawn Janni Maak
+02. Sokkar
+03. Fenee
+04. Ana Lahale(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD0E7FAA6E59BC81FE3D25F56FF4BF3BF4AF696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343959   (169294) от 11.12.2019
+
+VA - Old School Hits Collection от ALEXnROCK Часть 2 (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудио версия видеосборника. В него вошла самая хитовая музыка нулевых. Это 2я часть. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Nicole Kidman & Ewan McGregor - Come What May
+02. Elize - Hot Stuff
+03. Blue - One Love
+04. 4 Strings - Diving(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC99268D643F35BAFAEB19C985C397D7FCFDD216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596692   (168979) от 11.12.2022
+
+Delta Goodrem - Compilation (2022) [MP3|320 Kbps] <Pop, Vocal>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_168979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In This Life
+02. Innocent Eyes
+03. Touch
+04. Wings(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 01:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE04E498FCCD5D7CA3BFEF12F7F737CDCBFF2476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344750   (168965) от 12.12.2019
 
 VA - Planet Dance Music: Euromix Energia Total (2019) [MP3|320 Kbps] <Dance, Pop>
@@ -600,151 +745,6 @@ VA - Кавказ Бомба Hits (2011) [MP3|256-320 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A34020052FF9B08A39998A1B75F5915AE669D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599552   (159819) от 23.12.2022
-
-VA - Ultimate Party Classics Dance (2022) [MP3|320 Kbps] <Electropop, Future House, Nu Disco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - Levels (Radio Edit)
-02. Felix Jaehn, Jasmine Thompson - Ain't Nobody (Loves Me Better)
-03. Taio Cruz - Dynamite
-04. Naughty Boy, Sam Smith - La La La(   Читать дальше...   )Жанр: Electropop, Future House, Nu Disco, EurodanceПродолжительность: 03:09:55 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F706884577D96BF74DB1E3AAB67CCD8F447B7C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599544   (159794) от 23.12.2022
-
-VA - Mega Hits Des Jahres (2022) [MP3|320 Kbps] <Synth-pop, Disco, Neo Soul, British Hip Hop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Animals - Heat Waves
-02. Taylor Swift - Anti-Hero
-03. Imagine Dragons, JID, Arcane, League Of Legends - Enemy (from the series Arcane League of Legends)
-04. James Hype, Miggy Dela Rosa - Ferrari(   Читать дальше...   )Жанр: Synth-pop, Disco, Neo Soul, British Hip HopПродолжительность: 04:22:23 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8643C7CB5D1C8817F79545F765D68B428B22C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599564   (159775) от 23.12.2022
-
-VA - Dance Compliance Bests (2022) [MP3|320 Kbps] <Dancecore, Synthpop, Eurobeat, Hard Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danceteria - I Turn To You (Timster & Ninth Remix)
-02. Beat Alliance - Cold Brew
-03. Chaoz & Marced - Light Up My World (Extended)
-04. DeeMania - Complicated (Sunvibez remix)(   Читать дальше...   )Жанр: Dancecore, Synthpop, Eurobeat, Hard DanceПродолжительность: 02:59:44 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A91F7EB841FED15B8F6D657180186E23DD94297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599569   (159596) от 24.12.2022
-
-VA - Luxury Disco - Ultimate House Grooves (2022) [MP3|320 Kbps] <Funky, Indie Dance, Groove, Nu Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2LOVERS - 2 the Ground  (Radio Mix)
-02. 2LOVERS - Strings  (Radio Mix)
-03. Animist - Two!
-04. Bond - Disco Moves Ya(   Читать дальше...   )Жанр: Funky, Indie Dance, Groove, Nu DiscoПродолжительность: 01:48:04 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477D9E70F51F1FA8052F1C5B3BD176E0028CAA93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675690   (159415) от 10.11.2023
-
-VA - Хиты Авторадио (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159415.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 5УТРА - Давай сбежим (Искорки) (2:59)
-002. ANNA ASTI - Космически (3:28)
-003. Mari Kraimbrery - Моя красивая, стой (Из реалити-шоу Новые Пацанки) (3:45)
-004. NILETTO - Не вспоминай (2:53)(   Читать дальше...   )Жанр: PopПродолжительность: 05:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C7C96AB6CAC881035A2D2EEA4A97B8D0F89E2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

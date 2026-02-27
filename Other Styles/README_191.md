@@ -1,3 +1,73 @@
+###  Публикация: 450003   (75239) от 10.02.2012
+
+VA - The Rough Guide To The Cuban Music Story (2001) [FLAC|Lossless] <Latin, Afro-Cuban Jazz, Mambo>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Beny Moré - Bonito Y Sabroso (02:57)
+02. Niño Rivera - El Jamaiquino (04:26)
+03. Afro Cuban Jazz Project - Campiña (06:01)
+04. Afro Cuban All Stars - Al Vaivén De Mi Carreta (07:43)
+05. Mario Bauzá - Chucho (03:53)
+06. Bebo Valdés - To Mario Bauzá (06:04)
+07. Guillermo Portabales - El Carretero (03:10)
+08. Cuarteto Patria & Manu Dibango - Quizás Quizás (06:35)
+09. Maraca - Quiero A Mi Guajira (05:07)
+10. Pancho Amat - Fanía (04:36)(   Читать дальше...   )2001Жанр: Latin, Afro-Cuban Jazz, MamboПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 103470   (75100) от 09.02.2012
+
+OST Г. Гладков - Обыкновенное чудо (1996) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Геннадий Гладков - Белеет мой парус
+02. Геннадий Гладков - Танго любви
+03. Геннадий Гладков - Ах, какая жалость
+04. Геннадий Гладков - В Каннах
+05. Геннадий Гладков - Танго
+06. Геннадий Гладков - Шествие с огнями
+07. Геннадий Гладков - Песня Эстер
+08. Геннадий Гладков - Рождение Гулливера
+09. Геннадий Гладков - Пролог
+10. Геннадий Гладков - Неаполитанская песня(   Читать дальше...   )1996Жанр: SoundtrackПродолжительность: 54:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 103483   (75072) от 09.02.2012
 
 OST Золотые хиты - Наше кино (2002) [MP3|320 kbps]<Soundtrack>
@@ -771,63 +841,6 @@ VA - The Orient Collective: Echoes Beyond Borders (2025) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98F97428616A64F7BDF6556F8B33E65BF1BF08ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778753   (70629) от 14.02.2025
-
-John Williams - Film Music of John Williams (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Modern Classical, Film Soundtracks, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Bateman & Czech National Symphony Orchestra - Hedwig's Theme (From "Harry Potter And The Philosopher's Stone") [1:29]
-02. John Williams, Anne-Sophie Mutter & The Recording Arts Orchestra of Los Angeles - Sayuri's Theme (From "Memoirs Of A Geisha") [4:44]
-03. John Williams - Gupta's Deliverance (The Terminal/Soundtrack Version) (   Читать дальше...   )Жанр: Classical, Modern Classical, Film Soundtracks, SoundtrackПродолжительность: 02:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87179B3297DBE0E58B570F99D009833A21FDD4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781964   (70118) от 26.02.2025
-
-VA - The Orient Collective: Caravan Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania - Kembali (6:18)
-02. Tibetania - Goodnight (6:24)
-03. DaDa Sound Project - Jatelo (6:07)
-04. Aglaia Rave - Tulpas (5:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70592D0F7272AEACD88AACDEA292539EDB301E96
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,299 @@
+###  Публикация: 956542   (330200) от 14.11.2015
+
+Лолита - Неизданное (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Остановите землю
+02. Свободна
+03. Не заморачивайся
+04. Здорово(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D84225D1461620224A81C0E849E6D911369F95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956469   (330175) от 14.11.2015
+
+Simply Red - Big Love: Greatest Hits Edition (30th Anniversary) (2015) [FLAC|tracks|WEB-DL]<Pop,Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On (3:11)
+02. Daydreaming (3:37)
+03. Big Love (4:09)
+04. The Ghost of Love (3:14)(   Читать дальше...   )Жанр: Pop,SoulПродолжительность: 01:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7343B1337972A3F43224EE0ED6E184CB032615A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956343   (330141) от 14.11.2015
+
+Алла Пугачёва - Алла Пугачёва поёт песни Юрия Чернавского (2013) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белая Дверь (04:43)
+02. Робинзон (04:43)
+03. Сирена (04:04)
+04. Белая Панама (05:49)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8C88F15720A56BC7CCB1DCB5002297CDE7D9D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955967   (330099) от 14.11.2015
+
+Justin Bieber - Purpose (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark My Words
+02. I'll Show You
+03. What Do You Mean?
+04. Sorry(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59509478D5794A8C2D584581328267F6EBF10666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580673   (329814) от 02.10.2022
+
+Didier Marouani & Paris • France • Transit - Concerts En URSS (1983) Reissue, 1996, PolyGram [FLAC|Lossless|image + .cue] <Pop Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый «живой» альбом Дидье Маруани и Paris-France-Transit с концертов, которые проходили в 1983 году в СССР — в Москве, Ленинграде и Киеве.01. Music From The Stars 3:58
+02. Paris France 5:35
+03. Running In The City 4:28
+04. Child 5:43(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, DiscoПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF0744E67F4BD0ED408178BEBD5AD530399F028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580718   (329767) от 02.10.2022
+
+Natasha St-Pier - Jeanne (2022) [FLAC|44.1/24|Lossless|WEB-DL|tracks] <Pop, French Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeanne
+02. Elles ont en elles
+03. Un rêve, un songe
+04. Prendre l’épée(   Читать дальше...   )Жанр: Pop, French PopПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAF21D46D7438BBA2B38AB949A53587DA6340FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580742   (329691) от 02.10.2022
+
+Владимир Мигуля и группа "Земляне" - Песни В. Мигули (1981) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поезд. (Н.Олев) (3:49)
+02. В саду играет музыка. (М.Танич) (3:11)
+03. Танцуем диско. (А.Дементьев) (3:28)
+04. Аве Мария. (А.Дементьев и П.Бабаков) (4:35)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7391A786F1A5D22B2667C0923F2F406653A220F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 261307   (328843) от 22.11.2010
+
+Latin Lover - Casanova Action (2007 (1985-87)) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_328843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casanova Action (Long & Hot-Version)
+02. Laser Light (Original Version)
+03. Dr.Love (Passion Mix)
+04. Laser Dance
+05. Laser Light (Remix '87)
+06. Casanova Action ('87 Re-Edit)
+07. Dr.Love (Dub Mix)
+08. Casanova's Dance (Insrtrumental)
+09. Megamix
+10. Laser Light (Chernobyl Mix)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957192   (328416) от 16.11.2015
+
+Anne Harris - Come Hither (2015) [MP3|320 кб/с]<Alternative Pop, Contemporary Blues, Americana>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken
+02. Waves (With Otis Taylor)
+03. Giddy Up (With Chuck Campbell)
+04. Fallen (With Nikki Lynette)(   Читать дальше...   )Жанр: Alternative Pop, Contemporary Blues, AmericanaПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6376269EFE5DF88F99455F1B1F51726C69BA0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957193   (328359) от 16.11.2015
+
+One Direction - Made In The A.M. (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Angel
+02. Drag Me Down
+03. Perfect
+04. Infinity(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A3959C0A5FE9F39347CC46C0F25F34372FDCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 842205   (328179) от 18.11.2014
 
 Гоша Куценко - Музыка (2014) [MP3|320 кб/с]<Pop>
@@ -454,296 +750,6 @@ Dido - Greatest Hits (2013) 2 CD [OGG Vorbis|484 Kbps] <Electronic, Pop, Ballad>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B16A3141A1856FE0EABE475531FD4C1B8C5CFFA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581509   (327130) от 05.10.2022
-
-Richard Marx - Songwriter (2022) [FLAC|Lossless|image + .cue] <Pop, Rock, Country...>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Richard Marx. Одно только его имя вызывает в воображении необыкновенные мелодии и его песни, исполненные с сердечной искренностью и достоверностью. Отмеченный наградами певец, автор песен, музыкант и автор, он ворвался в поп- и рок-чарты, чтобы завоевать сердца каждого ребенка 80-х, и с тех пор продолжает творить чудеса. Так что на самом деле неудивительно, что его (   Читать дальше...   )01. Same Heartbreak Different Day (3:09)
-02. Only A Memory (3:02)
-03. Anything (2:38)
-04. Moscow Calling (4:53)(   Читать дальше...   )Жанр: Pop, Rock, Country...Продолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:993B5BDD948ECB3C1D8A58A85AF6EB1A5489EB6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957590   (326774) от 18.11.2015
-
-Andrew Franey - The Stars Shine For You (2015) [MP3|320 кб/с]<80's Retro Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Like You Anyway
-02. Lost
-03. Morgan Le Fay
-04. In the Night(   Читать дальше...   )Жанр: 80's Retro Pop, SynthpopПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8169F43D46E88E775A32334EB7DEE155F7598686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957549   (326705) от 18.11.2015
-
-Kylie Minogue - Kylie Christmas (2015) Deluxe Edition [FLAC|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's the Most Wonderful Time of the Year
-02. Santa Claus Is Coming to Town (feat. Frank Sinatra)
-03. Winter Wonderland
-04. Christmas Wrapping (with Iggy Pop)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C52C9DA35302738C4CB82EF7261650DB3EA68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957585   (326603) от 18.11.2015
-
-VA - Радуга (2 пластинка) (1980) [MP3|320 кб/с]<Instrumental, Pop, Retro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хор и оркестр Рея Коннифа - Смех под дождём (Н.Седака - П.Коди)
-RAY CONNIFF - Laughter In The Rain (Neil Sedaka - Philip Cody) ©1975
-02. Демис Руссос - От сувенира к сувениру (С.Влавианос - Р.Костадинос)
-DEMIS ROUSSOS - From Souvenirs To Souvenirs (Stylianos Vlavianos - Robert Costandinos)(   Читать дальше...   )Жанр: Instrumental, Pop, RetroПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B5954AB1643A931D13F45913D3AE216362B743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957440   (326522) от 18.11.2015
-
-Justin Bieber - Purpose (2015) Deluxe Edition [FLAC|image+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark My Words (2:14)
-02. I’ll Show You (3:20)
-03. What Do You Mean? (3:26)
-04. Sorry (3:21)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CA300464E492E1C772D517977738B2E41AC69C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581716   (326349) от 06.10.2022
-
-Laura Branigan - Self Control (1984) 2 CD, Reissue, Remastered, 2020, Cherry Pop [OGG Vorbis|484 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lucky One
-02. Self Control
-03. Ti Amo
-04. Heart(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11AE38C30658BE876C5DF9D70BA836E79932651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957904   (325685) от 19.11.2015
-
-Олег Газманов - Не прощайтесь с любимыми (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ненаглядная
-02. Не прощайтесь с любимыми
-03. Вороной (feat. Тамара Гвердцители)
-04. Именно она!(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10A8D4D8047DCB948E3758A13CD6CE50AB4D0A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581751   (325582) от 07.10.2022
-
-Kylie Minogue - Disco (Guest List Edition) (2020) 3 CD, Reissue, 2021, BMG [OGG Vorbis|484 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic
-02. Miss a Thing
-03. Real Groove
-04. Monday Blues(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 02:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10232DEB28C3DAD42E13AF796023F187FA1C8D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581773   (325512) от 07.10.2022
-
-Celine Dion - My Love (Ultimate Essential Collection) (2008) 2 CD, Reissue, 2008, Sony Music [OGG Vorbis|484 Kbps] <Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Will Go On (Love Theme From ''Titanic'')
-02. Think Twice
-03. It's All Coming Back To Me Now
-04. A New Day Has Come (Radio Remix)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 02:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83285718DF2A68E447B6C311FBC9D5645F64FD02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582046   (325509) от 07.10.2022
-
-Sarah Brightman - La Luna (2000) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Lune
-02. Winter In July
-03. Scarborough Fair
-04. Figlio Perduto(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 01:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB608A038921A0A06570FA50D6F5E3FABD70BF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,294 @@
 https://t.me/izofen
+###  Публикация: 1856061   (1058558) от 26.02.2026
+
+VA - Jazz Bar Vibes – Smooth Jazz for Relaxing Evenings (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Massimo Faraò - Your Song (2:37)
+02.  Massimo Faraò Trio - Endless Love (3:25)
+03.  Massimo Faraò Trio - Candle in the Wind (2:22)
+04.  Massimo Faraò Trio - The Entertainer (1:59)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21733D8D38EDE15DC3921160E5B200369F4E1625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856063   (1058556) от 26.02.2026
+
+VA - Cafe Deluxe Chill Out - Nu Jazz / Lounge, Vol. 12 (2025) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Nu Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soundset City - Dancing In My Dreams (3:35)
+02.  Nightview - Play Games (2:37)
+03.  Jean Mare - Playground (2:56)
+04.  Soundset City - Taxi Driver (2:58)(   Читать дальше...   )Жанр: Chill Out, Nu Jazz, LoungeПродолжительность: 01:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBED336AB97FED8E393A7DA2D93B5AEE2A6D0EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855952   (1058326) от 25.02.2026
+
+Afro Dub - Afro Funk Archive Vol 4 (2026) [FLAC|Lossless|WEB-DL|tracks] <Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hot Funk (4:22)
+02.  Hot Guitar (2:30)
+03.  Imperial Funk (3:18)
+04.  Internatinal Funk (3:22)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82BBFB9710DE5ED75C266F646F6261E7E9A47C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855953   (1058324) от 25.02.2026
+
+Ely Bruna, Papik - Hearts Of The 80s (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Massimo Guerra - Heart Of Glass (4:51)
+02.  Hologram (3:13)
+03.  Human (3:37)
+04.  The Promise You Made (3:52)(   Читать дальше...   )Жанр: Jazz, R&BПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD0338E72CE1C951AF7A9659FA8CBC0AF5FD791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855954   (1058323) от 25.02.2026
+
+Funk Windows - Funk Tape #3 (2026) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mars (3:13)
+02.  Jaaz&Funk (4:34)
+03.  James Day (3:19)
+04.  James Night (3:33)(   Читать дальше...   )Жанр: Funky JazzПродолжительность: 01:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B9CA8B6037B2BEEDFD6750F6E81FEB2159B11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855956   (1058321) от 25.02.2026
+
+VA - Broken Beat Nu Funk, Vol. 9 (2026) [FLAC|Lossless|WEB-DL|tracks] <Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Afro Dub - New York Times (3:03)
+02.  Afro Dub - Natural Fx (3:12)
+03.  Afro Dub - Night Club (2:53)
+04.  Afro Dub - Acid Day (3:55)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF441C7FA1797DE8372D709DF1A5DB17C4D73E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855958   (1058320) от 25.02.2026
+
+VA - Cafe Deluxe Chill Out - Nu Jazz / Lounge, Vol. 13 (2026) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Nu Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soundset City - Red Velvet (3:17)
+02.  Nightview - Get Around (3:28)
+03.  Audiozoom - Sunrise (2:48)
+04.  Dave Neville - Sweet Sunset (3:16)(   Читать дальше...   )Жанр: Chill Out, Nu Jazz, LoungeПродолжительность: 01:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490D79A9EAB6848FFD5D8860417393C37D7A3129
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855959   (1058319) от 25.02.2026
+
+VA - Electric Daydreams: Chill and Jazz Fusion (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chillaxing Jazz Kollektion - Expectations (4:33)
+02.  Kool&Klean - Everything (3:42)
+03.  Chillaxonic - Violet Twilight (4:34)
+04.  eJazz Artistry - Diamond Girl (3:44)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5172D844390AEC2DED01E00B09754B0958675F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855960   (1058318) от 25.02.2026
+
+VA - Jazz Lounge In Shanghai (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Andrea Davì - On a Misty Night (6:47)
+02.  Soulstance - People Get The Music And Dance (4:38)
+03.  Roberto Rossi - One Kiss (Samba Version) (4:05)
+04.  Roberto Rossi - E’ Còur l’è Sémbra Là (3:59)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD63EEAC81FD9901D97F35FD0489ADA09E5A316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855961   (1058316) от 25.02.2026
+
+VA - This Sounds Like Acid Jazz (2026) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  James Thompson - The Ghetto (JT Flute Mix) (6:36)
+02.  Gazzara - Keep Yourself Together (5:03)
+03.  Christian Lisi - Do It Strong (6:12)
+04.  Gaudi - Seafront (4:57)(   Читать дальше...   )Жанр: Acid Jazz, FunkПродолжительность: 01:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095D7CFB18E88B5BA56F3B6949EA10C0C7C08088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854702   (1057490) от 19.02.2026
 
 VA - Chillout & Lounge Ibiza Beats (2026) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Trip-Hop, Lounge>
@@ -457,296 +747,6 @@ Threestyle, Magdalena Chovancova, Robert Fertl, Damon Dae - We Have That Magic (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DB4F92F8732CE5C8274029FD55199AA16AC5982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843771   (1049478) от 21.12.2025
-
-Johnny Britt - Midnight In Paris (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Midnight In Paris (4:22)
-02.  Show You (5:08)
-03.  Emotions (4:19)
-04.  Boulevard St. Michel (4:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982B00C3F463EFA1FCFE04ACA780B2F3B117E632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843782   (1049463) от 21.12.2025
-
-Wolfgang Lohr - Snow Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ashley Slater - Zat You Santa Claus (Swing Hop Mix) (2:56)
-02.  Glenn Gatsby - Cozy Christmas (3:04)
-03.  Emma Lea - Santa Baby (Electro Swing Mix) (3:13)
-04.  Maskarade - Frosty Is Coming to Town (3:50)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3F803B425FEE40CB5B6B221C55EAE8FA80810A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840622   (1047355) от 06.12.2025
-
-Katie Melua - Piece by Piece (2005) 2025 Remaster, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shy Boy (2025 Remaster)
-02. Nine Million Bicycles (2025 Remaster)
-03. Piece by Piece (2025 Remaster)
-04. Halfway up the Hindu Kush (2025 Remaster)(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 01:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614300A60C35825F98E50665047B9C8EE2C8A73F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601625   (1046456) от 01.01.2023
-
-Eric Reed - Everybody Gets The Blues (2019) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody Gets the Blues [3:49]
-02. Cedar Waltzin'/Don't You Worry 'Bout a Thing [8:23]
-03. Naima [5:28]
-04. Martha's Prize [7:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9438A4AFCFB9E9F96F59D4846E8B25807248C814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601771   (1046354) от 02.01.2023
-
-Cyrus Chestnut - Kaleidoscope (2018) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golliwog's Cakewalk [5:06]
-02. Darn That Dream [5:10]
-03. Gymnopedie No.1 [6:19]
-04. Entre cloches [5:48](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead Jazz, Piano JazzПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B7AB661B7DAFF4AC90CB7C0A92442BFDA8A257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601949   (1046284) от 03.01.2023
-
-Sarah Vaughan - 1951 - 1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria [3:30]
-02. A City Called Heaven [3:33]
-03. Deep Purple [3:10]
-04. These Things I Offer You [3:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8D88B5526A6F4907704533C83E79265BD463E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602017   (1046282) от 03.01.2023
-
-Karin Krog & John Surman With Ben Surman - Infinite Paths (2016) Live [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Bird (Surman-Krog) - 5:39
-02. Word Overheard (Surman-Krog-Surman) - 4:22
-03. Casting High (Surman-Krog) - 6:58
-04. Picture Postcard (Surman) - 4:00(   Читать дальше...   )Жанр: Contemporary Jazz, VocalПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395DCEC377954AB418B31F7731E9E2D4DC33E83B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601951   (1046278) от 03.01.2023
-
-Sarah Vaughan - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Grass [2:49]
-02. It's You or No One [3:11]
-03. It's Magic [3:09]
-04. What a Difference a Day Made [2:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F7A7F39A16B2B1A71B356E2F312EC401630724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601979   (1046272) от 03.01.2023
-
-Ken Colyer's Jazzmen & Chris Barber's Jazz Band - New Orleans To London & New Orleans Joys (1953, 1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Ragtime, Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goin' Home [3:21]
-02. Isle Of Capri [2:51]
-03. Harlem Rag [2:56]
-04. La Harpe Street [3:24](   Читать дальше...   )Жанр: Ragtime, DixielandПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9938AA5ABD949BC89C1D5AA28FA07007683E4ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602120   (1046226) от 04.01.2023
-
-Muggsy Spanier - And His Dixieland Band (1950 - 1952) 2007, Membrane Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Piano Man [2:45]
-02. Dixie Flyer [2:54]
-03. Sweet Georgia Brown [3:02]
-04. Feather Brain [2:55](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21A7B890EEFECD5B4B90513F381A21CF7F078CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,212 @@
+###  Публикация: 1192188   (263373) от 16.12.2017
+
+Electric Light Orchestra - Face The Music (1975) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263373.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Fire On High (5:31)
+A2. Waterfall (4:12)
+A3. Evil Woman (4:35)
+A4. Nightrider (4:22)(   Читать дальше...   )Производство: Jet Records - JZ 35527Жанр: Progressive RockПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CE13A300953AD0CF2FA7DE81C7CF6E5F7A4F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838993   (261627) от 26.11.2025
+
+Haunted by Silhouettes - Studio Albums (3 releases) (2018-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Haunted by Silhouettes - метал-группа из Норвегии, основана в 2013 году.2018 - Shortcuts to Dead Ends
+2019 - The Last Day on Earth
+2022 - No Man Isle (EP)Жанр: Melodic Death MetalПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C614B7F2E75D8E9D51360923AC3473313262EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838847   (261510) от 25.11.2025
+
+VA - Original Artistes. 15 Mersey Hits (1976) Compilation, Stereo, Mono [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Garage Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261510.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Gerry & The Pacemakers - Ferry Cross The Mersey
+A2 Freddie & The Dreamers - If You Gotta Make A Fool Of Somebody
+A3 Gerry & The Pacemakers - I'm The One
+A4 Freddie & The Dreamers - I'm Telling You Now(   Читать дальше...   )Жанр: Garage Rock, Pop RockПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462C044F630419F28029E0955596572EFFA70FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838434   (260910) от 23.11.2025
+
+The Cliff Adams Singers - Sing Something Simple (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260910.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Born With A Smile On My Face
+A2.a I Want A Girl Just Like The Girl That Married Dear Old Dad
+A2.b I'm Following In Father's Footsteps
+A3.a Green Green(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83786203FBC1C93B2EC2AC60ACB8DA97D7B35E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838580   (260648) от 23.11.2025
+
+VA - Original Rocking Hits. From The Soundtrack Of «Side By Side» (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soundtrack, Pop Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260648.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Rubettes - I Can Do It
+A2 Mac & Katie Kissoon - Sugar Candy Kisses
+A3 Hello - Games Up
+A4 Twogether - Side By Side (Together)(   Читать дальше...   )Жанр: Soundtrack, Pop Rock, GlamПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A248C5C86247D34F8A8BBD7B13610ECADBBB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500918   (258384) от 25.05.2012
+
+Eric Clapton - Complete Clapton - Boxset 4 vinyl LP (2007) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_258384.jpg" />
+</div>
+
+
+###  Подробнее
+
+C1 - Running on Faith (Unplugged) - [06:15]
+C2 - Motherless Child - [02:58]
+C3 - Change the World - [03:55]
+C4 - My Father's Eyes - [05:22]
+
+D1 - Riding With the King - [04:23]
+D2 - Sweet Home Chicago - [05:16]
+D3 - If I Had Possession Over Judgment Day - [03:26]
+D4 - Ride the River - [04:33]2007 ( October 9)Жанр: RockПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500216   (258112) от 24.05.2012
+
+Accept - Kaizoku-Ban (1985) /EP/ [FLAC 2.0 192/24 |VinylRip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_258112.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Metal Heart [5:18]
+2 - Screaming for a Love Bite [4:19]
+3 - Up to the Limit [5:00]
+4 - Head Over Heals [5:55]
+5 - Love Child [4:40]
+6 - Living for Tonite [3:51]Жанр: Heavy MetalПродолжительность: 00:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD4FA9D046D942D84119C258B8621167DDF96EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837847   (257818) от 20.11.2025
 
 Tommy Kinsman And His Orchestra - Holiday For Dancers (1960) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop, Light Music>
@@ -541,210 +750,6 @@ A4 Show Some Emotion 3:48(   Читать дальше...   )Жанр: Pop Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC2CDF3AB7551983EC057E40159B7AD5EC014802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629672   (254741) от 27.04.2023
-
-Kylie Minogue - Kiss Me Once (2014) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254741.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Into The Blue (4:08)
-A2. Million Miles (3:28)
-A3. I Was Gonna Cancel (3:32)
-B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6368B651AB53F531204BA100055EBE19AAC61E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629685   (254728) от 27.04.2023
-
-Зодиак - Музыка во Вселенной (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electro, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254728.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Таинственная галактика (4:45)
-A2. Лазерная иллюминация (4:11)
-A3. Серебряная мечта (3:33)
-A4. Фотофиниш (4:34)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAAE095706F44266BEC0CA327A1FCD13E959B6FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629965   (254717) от 28.04.2023
-
-Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254717.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 The Getaway
-2 Dark Necessities
-3 We Turn Red
-4 The Longest Wave(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B4D569EE6D0D78E363150CDF52152EB2B38363F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630475   (254673) от 30.04.2023
-
-Демонстрационные диски DTS 5.1 CD-Audio ##14-16 (2023) [DTS 5.1 CD-DA|44.1/16|image+.cue] <Pop, Rock, Electronic...>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот и еще три сборничка поспели...
-При подготовке релиза использовал материал, собранный ув.Диск 14
-
-01. Alan Parsons - A Valid Path
-02. Beatles - Back In The USSR(   Читать дальше...   )Продолжительность: 01:03:08+00:56:01+00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2D2E6595F46B32844882A9FCDF8C2E68B204AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632297   (254485) от 09.05.2023
-
-Diana Krall - The Girl In The Other Room (2004) [DTS 5.1 CD-DA|44.1/24|image+.cue|SACD] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop This World 4:11
-02. The Girl In The Other Room 4:05
-03. Temptation 4:29
-04. Almost Blue 4:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C5CFE74BAD67E1F1D25454ED4E6D18678BD044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836720   (254164) от 12.11.2025
-
-VA - Good Morning America (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254164.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Arlo Guthrie - City Of New Orleans
-A2 Harry Nilsson - Everybody's Talkin'
-A3 Kris Kristofferson - Me And Bobby McGee
-A4 James Taylor - Handy Man(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC6CD7DD9158C2E550B2A81C63FB6B333FA315B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836664   (254151) от 12.11.2025
-
-Rod McKuen - Love's Been Good To Me (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254151.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Love's Been Good To Me
-A2 I Don't Know Who I Belong To
-A3 Good For Nothin' Bill
-A4 You Pass Me By(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA481CE8F7D3831F5151D0205B5304DDB9F2F8AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

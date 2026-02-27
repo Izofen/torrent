@@ -1,3 +1,32 @@
+###  Публикация: 1007515   (821070) от 15.04.2016
+
+Сява - На битах (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. НаБитах (Интро)
+02. Катит
+03. Ненавижу Измену
+04. Телефон Пи Дидди(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906A5BD28865EAD78A2EDCB35975417CBE1D5393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116873   (820441) от 21.03.2017
 
 Drake - More Life (2017) [MP3|320 Kbps] <Hip-Hop, Rap>
@@ -717,35 +746,6 @@ Mnogoznaal - Гостиница Космос (2018) [MP3|320 Kbps] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:106251D9EE91AEF0F583C0773A3DE7ECF1422DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121443   (794255) от 05.04.2017
-
-Øfdream (Ofdream) - Real Answer (2016) [MP3|320 Kbps] <Сhill Trap, Liquid Trap, Future Bass>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Answer
-02. Fallen Angel
-03. Out Of Trouble
-04. First Woe(   Читать дальше...   )Жанр: Сhill Trap, Liquid Trap, Future BassПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C155F96B947D8278BAABE19194829D0F6575FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

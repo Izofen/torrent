@@ -1,3 +1,61 @@
+###  Публикация: 1188947   (270345) от 06.12.2017
+
+Johannes Linstead - Azul (2017) [FLAC|Lossless|tracks + .cue] <Instrumental, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azul
+02. Cha Cha Chu
+03. Be My Girl
+04. Lazy Sunday(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B79584F19C0547920189B4F02DFBE0DAB7BD60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338175   (270223) от 14.11.2019
+
+Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Complete Score) (2019) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harald Kloser, Thomas Wander, Thomas Schobel - Prologue for Logos (00:48)
+02. Harald Kloser & Thomas Wander - Ridiculous Traditions (01:25)
+03. Harald Kloser, Thomas Wander, Thomas Schobel - Nobody Wants A War (02:30)
+04. Harald Kloser, Thomas Wander, Thomas Schobel - Arizona Attack (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835FE0E6F469072FA8ACA70F6290415F66AF8B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338384   (269852) от 15.11.2019
 
 VA - Jay & Silent Bob Reboot / Джей и Молчаливый Боб - Перезагрузка (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -687,64 +745,6 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Оригина
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F51E0044EB5917B86704AB727EF09AF190939279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339199   (266874) от 18.11.2019
-
-Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Оригинальный саундтрек / Делюкс версия) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - Introduction (01:00)
-02. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - The Northuldra (02:36)
-03. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - Sisters (01:06)
-04. Christophe Beck, Andrew Page, Larry Mah, Tom Hardisty - Exodus (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429B54DB55C4BB228E540228631C7C832DE9AF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339194   (266868) от 18.11.2019
-
-Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motion Picture Soundtrack) (2019) Deluxe Edition [FLAC 2.0|96/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christophe Beck - Introduction (01:00)
-02. Christophe Beck - The Northuldra (02:36)
-03. Christophe Beck - Sisters (01:06)
-04. Christophe Beck - Exodus (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF243289236070B24CFB99A7F2A3DF20FABC8F91
 ```
 
 https://mybot314.ru/tekegram_catalog/

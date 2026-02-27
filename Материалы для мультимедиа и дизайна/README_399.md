@@ -1,22 +1,22 @@
-###  Публикация: 1794990   (67174) от 03.05.2025
+###  Публикация: 1811280   (16324) от 09.08.2025
 
-Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Watercolor Maple Tree [PNG]
+Шрифты - Behance - Wladyslaw Borisov - Grafmassa Font - 193475797 [TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67174.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный клипарт с изображениями клёна и кленовых листьев.Формат: PNGРазрешение файлов: 4000 x 4000
+Этот шрифт на основе орнаментов багажника(шильдиков проще говоря) для Lada 110(ВАЗ 2110). Возможно кому-то будет интересно. А человеку проще будет найти и не повторять уже сделанную работу, а просто взять и использовать. В процессе работы над шрифтом, я понял одно, что он очень похож на шрифт Porsche. Не зря... Как будто взяли и просто шрифт Порше, и растянули у (   Читать дальше...   )Формат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6715F7028AE4EAA0FE52133FB4855CFAB3C9EAF0
+magnet:?xt=urn:btih:2F4B5208CF48CC96FCE07AA66FEA0177ABB699AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794799   (67173) от 03.05.2025
+###  Публикация: 1811286   (16323) от 09.08.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Cute Fairy Woodland Clipart [PNG]
+Шрифты - Behance - Wladyslaw Borisov - Advaken Sans - 227558651 [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67173.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сказочный лесной клипарт.Формат: PNGРазрешение файлов: 4096 x 4096
+Шрифт с кириллицей.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DA2447B104A6A07364812F9E2105C2B3768710A
+magnet:?xt=urn:btih:90D6E85F325F222D3310F1ABCCD236D52F80B1F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795009   (67171) от 03.05.2025
+###  Публикация: 1799928   (16243) от 30.05.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Happy Thanksgiving Clipart [PNG]
+3D материалы - MOTION SQUARED - Arnold Metal Materials Pack for Cinema 4D [LIB4D]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67171.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт на тему Дня благодарения.Формат: PNGРазрешение файлов: 4096 x 4096
+В этот пакет входят различные виды металла, такие как золото, медь, хром, оцинкованная сталь, шлифованный металл, латунь и узоры с ромбовидными пластинами . В этом пакете также есть раздел с высокодетализированными пользовательскими поверхностями и узорами, которые сделают любой материал более интересным. Все материалы имеют разрешение 4K, что означает потрясающее (   Читать дальше...   )Формат: LIB4D
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CF6CB00B215A2C7CC585BDD3AD714ED4FA835DB
+magnet:?xt=urn:btih:A68C28C889912BC18BE30D9F67D3A0F6B8BE989B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794815   (67170) от 03.05.2025
+###  Публикация: 1811455   (16145) от 09.08.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Fantasy Unicorn Clipart [PNG]
+Шрифты - Behance - Alexey Atapin - Lost Cap font - 210600235 [TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67170.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фэнтезийный клипарт с единорогами.Формат: PNGРазрешение файлов: 4096 x 4096
+Декоративный шрифт с кириллицей.Формат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34CE8B324E9F18F05F753ADBB2E07D692887BCE0
+magnet:?xt=urn:btih:A6295DA605662CC7F191C9A9A278F984395244EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794995   (67169) от 03.05.2025
+###  Публикация: 1811456   (16144) от 10.08.2025
 
-Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Watercolor Fishing Dad Cliparts [PNG]
+Шрифты - Behance - Alexey Atapin - Motion - 211991577 [TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67169.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный клипарт на тему рыбалки.Формат: PNGРазрешение файлов: 4000 x 4000
+Декоративный шрифт с кириллицей.Формат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:966466DD79E95B25CDFFEEB4D1D05E16AA6B469E
+magnet:?xt=urn:btih:CC3F17AE6009B59A623BEADC7794B06BD1B926F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794807   (67161) от 03.05.2025
+###  Публикация: 1811458   (16143) от 10.08.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Happy Birthday Clipart [PNG]
+Шрифты - Behance - Alexey Atapin - Kosmos - 140863565 [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67161.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт на тему дня рождения.Формат: PNGРазрешение файлов: 4096 x 4096
+Шрифт с кириллицей.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C9FB735D93C30EE818E289AA42B9D17C9AA4BC2
+magnet:?xt=urn:btih:E5606DA2D0107F529B7AA14C82EB31833234B120
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +154,183 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795326   (67160) от 03.05.2025
+###  Публикация: 1811460   (16118) от 10.08.2025
 
-Паттерны - Free PSD Templates - Triangle Patterns [PNG, AI, PSD, EPS]
+Шрифты - Behance - Alexey Atapin - Insomnia Variable font - 212659183 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декоративный шрифт с кириллицей 4 стиля.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0660CDD7F2D59A294410797CDDE4AE85FC31FC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811462   (16117) от 10.08.2025
+
+Шрифты - Behance - Alexey Atapin - Hertz - 212074005 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт с кириллицей.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBECADC526E5EC27B36090FE72A894C1DC6085D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811464   (16115) от 10.08.2025
+
+Шрифты - Behance - Elena Voynova - Ramka - 144180901 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Материал раздаётся с официальной документацией.
+Файл "Ramka-Bold.otf" - пробный, ознакомительный вариант.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF442C8BACE493BAE677FCDA0C3F1FB469DFF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811490   (16094) от 10.08.2025
+
+3D сцены - Fab - Destruction Complete [UASSET, UMAP]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрушения в Unreal Engine.Формат: UASSET, UMAP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A277524A38C81D5EF0B6C476A185E8CED3F03B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811495   (16090) от 10.08.2025
+
+3D сцены - Fab - Post Apocalyptic World [UASSET, UMAP]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрушения в Unreal Engine.Формат: UASSET, UMAP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412D9AB2AD15D17466996E1442217E489958E928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811500   (16089) от 10.08.2025
+
+3D сцены - Fab - Theater Hall Environment (Theater Concert Cinema Hall Exhibition Meeting 3d) [UASSET, UMAP]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Театральный зал содержит 93 уникальных модели, включая все представленные ресурсы и высококачественные ресурсы. Он отличается хорошим уровнем детализации и оптимизирован для игровых проектов.Формат: UASSET, UMAP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA054A30898A9C3937B07D0D6E16E1EDDF23BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800100   (16079) от 31.05.2025
+
+Фоны - Forhadx5 - Creative Fabrica - Camouflage and Plaid Texture Background Bundle [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67160.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Геометрические узоры в виде треугольников.Формат: PNG, AI, PSD, EPSРазрешение файлов: 2498 x 2498 - 2500 x 2499
+Фоны с камуфляжной и клетчатой текстурой.Формат: JPGРазрешение файлов: 3000 x 2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C268088789D4D5C04C61C5C5778DC8DDA249F131
+magnet:?xt=urn:btih:7B2C9A13B10B4ACBC1411FCC70A5933CB1E70027
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +338,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795001   (67158) от 03.05.2025
+###  Публикация: 1811557   (16021) от 10.08.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Sea Nursery Adventure Clipart [PNG]
+Шрифты - MyFonts - Ferments [TTF, OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67158.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный клипарт на морскую тему с морскими животными и не только.Формат: PNGРазрешение файлов: 4096 x 4096
+Ferments — стильный, современный и естественный рукописный шрифт с нотками непринужденного шика. Он идеально подходит для брендинга, свадебных приглашений и открыток, а также, возможно, для этикеток красного вина. Ferments включает в себя полный набор прописных и строчных букв, цифр, а также широкий набор знаков препинания и лигатур.
+
+Кириллица не поддерживается.Формат: TTF, OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14788B1706BFFDC9EC1BA2C594EFD6238EAA4D75
+magnet:?xt=urn:btih:CFA84161F8B678EE0873440704FC0AC97D6595FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +366,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794659   (67157) от 03.05.2025
+###  Публикация: 1800231   (15881) от 02.06.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Winter Penguins Clipart [PNG]
+Шаблон администратора - UI8 - Multipurpose Dashboard UI Kit for SaaS Startups [FIG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67157.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Зимний клипарт с пингвинами.Формат: PNGРазрешение файлов: 4096 x 4096
+Шаблон администратора WeCraft — многоцелевой набор пользовательского интерфейса SaaS для стартапов. Оптимизируйте процесс проектирования SaaS с помощью шаблона администратора WeCraft, комплексного решения, разработанного специально для стартапов. Этот многоцелевой набор пользовательского интерфейса, включающий в себя более 69 тщательно продуманных страниц, предлагает (   Читать дальше...   )Формат: FIG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0155F8DBC6EE3C6275A173926DD81150B5DBA7A7
+magnet:?xt=urn:btih:EE2B4AE9B24BFA4FCAA57D6A2F512EFFC9FD9B52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,25 +392,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795000   (67156) от 03.05.2025
+###  Публикация: 1800394   (15851) от 02.06.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Blue Princess Clipart [PNG]
+Звуковые библиотеки - Just Sound Effects  - FORESTS OF NORWAY [WAV]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67156.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15851.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный клипарт с принцессами и прочими элементами на эту тему в синих тонах.Формат: PNGРазрешение файлов: 4096 x 4096
+Откройте для себя дикие леса Норвегии и погрузитесь в звуки отдаленной природы. Эта библиотека содержит записи квадро-звука различных лесов, ветра через различные типы деревьев, текущей воды и отдельных звуков животных. Скандинавские леса известны тем, что в них меньше животных, а погода там суровая и изменчивая. Звуковые ландшафты часто характеризуются большим количеством (   Читать дальше...   )Формат: WAV
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F694E129020309C581113EE4A539B8E1D30F31DD
+magnet:?xt=urn:btih:C6317BE8F9CC575D2C550C3E2F3FA5D47AF73744
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,25 +418,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794998   (67155) от 03.05.2025
+###  Публикация: 1800290   (15845) от 02.06.2025
 
-Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Kawaii Classroom Watercolor Cliparts [PNG]
+Рамки - Pixelbuddha - Photo Frame Cards [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67155.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кавайный акварельный клипарт на школьную тему.Формат: PNGРазрешение файлов: 4000 x 4000
+Набор из 6 рамок PSD превращает ваши фотографии в жуткие реликвии аналоговых технологий и сломанные временные линии. Ожидайте размытые лица, глючные наложения, ожоги пленки и шероховатые границы, которые напоминают утерянные кадры и загадочные записи видеонаблюдения. Идеально подходящие для редакционных портретов, концепт-арта или визуальных эффектов альбомов, эти (   Читать дальше...   )Формат: PSDРазрешение файлов: 4000х4000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DA2892CD8910F1502D30AF22746F216442C918E
+magnet:?xt=urn:btih:68A794F42D615C934BC33886004361D342BC301A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,25 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794805   (67152) от 03.05.2025
+###  Публикация: 1800201   (15824) от 02.06.2025
 
-Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Dusty Roses Flowers Watercolor [PNG]
+Звуковые библиотеки - Splice - HD Lock and Mechanism Sound Kit [WAV]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67152.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15824.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный клипарт с розами.Формат: PNGРазрешение файлов: 4000 x 4000
+Идеально подходит для разработчиков игр, звукорежиссеров и режиссеров, HD Lock & Mechanism предоставляет необходимый арсенал звуков для создания сложных взаимодействий UI/UX, захватывающих механизмов и динамических промышленных звуковых ландшафтов. Исследуйте широкий спектр вращающихся шестеренок, визжащих металлов, грохота и нажатий, тщательно записанных и разработанных (   Читать дальше...   )Формат: WAV
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:520D55DAD1A65D1D7B648617C5F590F7470A5E7D
+magnet:?xt=urn:btih:7FDA5B52CD7C8B52F4227AB9625B4F6BF57655E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,25 +470,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794780   (67151) от 03.05.2025
+###  Публикация: 1800503   (15778) от 03.06.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Book Watercolor Clipart [PNG]
+3D материалы - Unity Asset Store - Stylized Forest Textures - RPG Environment [UPROJECT]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67151.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книжный акварельный клипарт.Формат: PNGРазрешение файлов: 4096 x 4096
+25 стилизованных лесных текстур и материалов.Формат: UPROJECT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C5FF6CB5BF8078A3B68DB3E04D85894279E2F15
+magnet:?xt=urn:btih:C82C06DDD38C70644F6987CAAB19887B738CEC0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,25 +496,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794793   (67150) от 03.05.2025
+###  Публикация: 1800456   (15751) от 03.06.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Italy Watercolor Clipart [PNG]
+Фоны - Pixflow - Tour Visual Backgrounds [PSD, PNG, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67150.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный клипарт на тему Италии.Формат: PNGРазрешение файлов: 4096 x 4096
+54 визуальных фона для туров, которые идеально подходят для диджейских фонов, экранов концертных сцен, стилистических листовок, музыкальных постеров и элементов музыкальных видеоклипов в качестве музыкального визуализатора.Формат: PSD, PNG, JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:504DFFFD6F01BEC519629BA62FD2F954598F4966
+magnet:?xt=urn:btih:E3B0A5C631567764E60C10D1B95C2897F418464E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,25 +522,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794769   (67149) от 03.05.2025
+###  Публикация: 1800587   (15686) от 04.06.2025
 
-Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Sweet Treats Watercolor [PNG]
+3D модели - 3DModels - Bugatti Tourbillon 2025 3D model [BLEND, FBX, C4D, 3DS, OBJ]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67149.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт на тему сладких угощений.Формат: PNGРазрешение файлов: 4000 x 4000
+3D-модель создана максимально приближенно к реальному автомобилю Bugatti и на основе размеров из открытых источников. Все основные части модели являются отдельными объектами. Вы можете легко изменить все материалы. Изображения визуализируются с помощью плагина V-Ray, освещение и окружение в комплект не входят.Формат: BLEND, FBX, C4D, 3DS, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58C3F3854DE43C96F41C91894844C96E585D377A
+magnet:?xt=urn:btih:87D29D87364DF83C18A2E3BE306040B52503916E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,25 +548,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794802   (67148) от 03.05.2025
+###  Публикация: 1800638   (15669) от 04.06.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Cute Kawaii Cat Clipart [PNG]
+Дополнения - Blender Addons Bundle 1 June 2025 [BLEND]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67148.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт с кавайными кошками.Формат: PNGРазрешение файлов: 4096 x 4096
+Пакет дополнений Blender на 1 июня 2025 г.Формат: BLEND
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6000803756FC381BF2130E1956B22EA38F6676AE
+magnet:?xt=urn:btih:4BAC46239A21A30C976B9EE5EFBBAC5091382C23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,25 +574,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794774   (67146) от 03.05.2025
+###  Публикация: 1800781   (15468) от 06.06.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Baby Girl Watercolor Clipart [PNG]
+Растровый клипарт - DoodleBox - Creative Fabrica - Arabesque Scrapbook Paper [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67146.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный клипарт на детскую тему.Формат: PNGРазрешение файлов: 4096 x 4096
+Орнаменты (паттерны, узоры) в стиле арабески для срапбукинга.
+Эта коллекция вдохновлена красивой арабской и марокканской плиткой, а также португальскими азулежу.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B9FBA08201D9A12B35CBF97A0E29AA6066D6994
+magnet:?xt=urn:btih:14312383E05FED13774893C3B59E86CB7EA97147
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,25 +601,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794778   (67145) от 03.05.2025
+###  Публикация: 1800784   (15463) от 06.06.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Boho Floral Clipart [PNG]
+Фоны - raqibul_graphics - Creative Fabrica - Colorful Mandala Digital Paper V- 22 [JPEG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67145.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цветочный клипарт в стиле бохо.Формат: PNGРазрешение файлов: 4096 x 4096
+Фоны с разноцветной мандалой, созданная искусственным интеллектом.Формат: JPEGРазрешение файлов: 4000 X 4000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB1F3E10F27F3C48D32091BD92377F042CB11487
+magnet:?xt=urn:btih:03362958A9E96A98A7A4690C9A1F35F6AE6AAD71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,25 +627,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794790   (67144) от 03.05.2025
+###  Публикация: 1800786   (15461) от 06.06.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Astronaut Clipart [PNG]
+Фоны - Aamo - Creative Fabrica - Stained Glass Mandala [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67144.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный клипарт на тему астронавтов.Формат: PNGРазрешение файлов: 4096 x 4096
+Фоны с изображениями мандалы в стиле витражного стекла.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4A675A56BA55987480F0475258BBA83DBFCA288
+magnet:?xt=urn:btih:179FDEC7745ED741D7A879F14B3393643277123E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,181 +653,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794987   (67143) от 03.05.2025
+###  Публикация: 1801025   (15371) от 07.06.2025
 
-Растровый клипарт - inpixell.studio - Creative Fabrica - Easter Ducks Clipart [PNG]
+Шаблоны - UI8 - Samsung Galaxy S25 Mockups Scenes [PSD]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67143.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_15371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пасхальный клипарт с утятами.Формат: PNGРазрешение файлов: 4096 x 4096
+Наши последние макеты Galaxy S25 с небольшими улучшениями корпуса и новыми цветами.Формат: PSDРазрешение файлов: 7000x4800 - 16500x16000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7BACCB2373F34D3005CA07CA384855D85CDC96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794762   (67142) от 03.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Fairy Garden Watercolor Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт на тему "Сказочный сад".Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2030190DDD1612AE8B11906A24D79321681D36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794812   (67141) от 03.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Hot Air Balloon Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с изображениями воздушных шаров.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB7D6896577DAFD3A94DB0A57359B6A6991F70FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794773   (67139) от 03.05.2025
-
-Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Autumn Farm Watercolor [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенний клипарт на фермерскую тему.Формат: PNGРазрешение файлов: 4000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A74E1E74BCA887E04BFD582CE8D85EF78522AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794986   (67138) от 03.05.2025
-
-Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Cute Mermaid Watercolor Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт на тему русалок и моря.Формат: PNGРазрешение файлов: 4000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F275A5A42D6A2F12F405CF5FA05BF5AB0FA4FF96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794809   (67136) от 03.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Underwater Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с изображениями подводного мира.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91D4B89494CBC5E5421A454F75ECCC060EC84D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794779   (67135) от 03.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Boho Floral Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цветочный клипарт в стиле бохо.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EBB2B18D41CBB7835C9E49D821EB50E6BDCFE36
+magnet:?xt=urn:btih:91706768A6A72735B8B4D820106207EB61857398
 ```
 
 https://mybot314.ru/tekegram_catalog/

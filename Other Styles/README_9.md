@@ -1,3 +1,74 @@
+###  Публикация: 607002   (994473) от 23.01.2013
+
+Ансамбль духовной музыки Кант - Пасха Песнопения пасхальной службы. (2006) [MP3|320 kbps]<Духовная музыка>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Воскресение Евое, Христе Спасе (2:23)
+ 2. Ирмосы Пасхи (7:40)
+ 3. Воскресение Христово видевше (2:01)
+ 4. Стихиры Пасхи (5:13)
+ 5. Уст твоих (1:48)
+ 6. Часы Пасхи (13:03)
+ 7. Слава... Единородный Сыне (2:24)
+ 8. Христос Воскресе (1:43)
+ 9. Елицы во Христа крестистеся (2:34)
+ 10. Сей день, его же сотвори Господь (1:28)(   Читать дальше...   )Жанр: Духовная музыкаПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608219   (994021) от 24.01.2013
+
+Sleepthief - Labyrinthine Heart (2009) [FLAC|Lossless]<New Age, Ethereal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Here I Confess (feat. Joanna Stevens)
+02. World Gone Crazy (feat. Coury Palermo)
+03. Skimming Stones (feat. Kirsty Hawkshaw)
+04. Labyrinthine Heart (feat. Jody Quine)
+05. A Kind of Magic (feat. Zoe Johnston)
+06. A Cut from the Fight (feat. Kristy Thirsk)
+07. Rainy World (feat. Caroline Lavelle)
+08. Ariadne (The Dividing Sea) (feat. Joanna Stevens)
+09. Reason Why (feat. Zoe Johnston and Coury Palermo)
+10. Fire King (feat. Jody Quine)(   Читать дальше...   )Жанр: New Age, Ethereal  |Продолжительность: 00:49:36
+Enya, Delerium, Conjure One, Amethystium…Имена, которые безусловно многое говорят любителю качественной, красивой музыки в стилях нью-эйдж, энигматик и этериал. Теперь к ним прибавилось еще одно -
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 430662   (993811) от 02.01.2012
 
 Donna de Lory - Sanctuary (2009) [MP3|320 кб/с]<New Age, World, Mantras>
@@ -760,75 +831,6 @@ Atom Music Audio - Abyss (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1FC6BC209E176F62D764504DC4A25F1B890DC91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432626   (989619) от 07.01.2012
-
-Deus Ex: Human Revolution (by Michael McCann) (2011) [FLAC|Lossless]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icarus - Main Theme (3:41)
-02. Opening Credits (2:15)
-03. Main Menu (1:50)
-04. First and Last (3:14)
-05. Detroit City Ambient (Part 1) (2:03)
-06. Detroit Marketplace (3:45)
-07. The Mole (2:24)
-08. Barrett Boss Fight (2:49)
-09. Home (2:17)
-10. Jewel Of The Orient (1:04)(   Читать дальше...   )2011 ||Жанр: Score ||Продолжительность: 01:07:22 ||
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611302   (989392) от 30.01.2013
-
-Quincy Jones / Ray Brown Orchestra - Music From The Adventurers /OST/ (1970) [MP3|320 кб/с]<Jazz, Funk, Soul >
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polo Pony (4:07)
-02. Go Down Dying (4:12)
-03. El Lobo's March (3:47)
-04. Wishful Thinking (2:53)
-05. Gentle Lover (3:12)
-06. Coming And Going (3:26)
-07. Fat Cat Strut (6:07)
-08. Children's Games (4:45)
-09. Love Theme From "The Adventurers" (2:45)Жанр: Jazz, Funk, SoulПродолжительность: 00:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90637152FADAE04E9ECEB52914D3513A06CE23CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

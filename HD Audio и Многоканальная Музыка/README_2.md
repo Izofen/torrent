@@ -1,3 +1,203 @@
+###  Публикация: 1839985   (1046930) от 02.12.2025
+
+Nailed to Obscurity - Studio Albums (5 releases) (2007-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nailed to Obscurity - метал-группа из города Эзенс, Германия, основана в 2005 году.2007 - Abyss
+2013 - Opaque
+2017 - King Delusion
+2019 - Black FrostЖанр: Melodic Doom/Death MetalПродолжительность: 04:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83A18E85EE510D67D4F933E0DCCB5852AAAB67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839615   (1046696) от 29.11.2025
+
+VA - 20 Rock 'N' Roll Hits (1976) Original Versions [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046696.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Chuck Berry - Carol
+A2 Jerry Lee Lewis - High School Confidential
+A3 Marty Wilde - A Teenager in Love
+A4 Fats Domino - Jambalaya (On The Bayou)(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D719CD4652C3E95FE3317F4A76D5281B25A143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602194   (1046184) от 04.01.2023
+
+Alison Krauss & Union Station - New Favorite (2003) [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Bluegrass, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неплохо сведенный в многоканале, очень мелодичный альбом кантри-музыки. Мне понравилось))За образ SACD благодарим01. Let Me Touch You For Awhile
+02. The Boy Who Wouldn't Hoe Corn
+03. The Lucky One
+04. Choctaw Hayride(   Читать дальше...   )Жанр: CountryПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818C609FCB90075462399BCA49BEAF186E1D936D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603371   (1045758) от 09.01.2023
+
+Jim MacLeod and his band - 60 Minutes de danses écossaises (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Celtic, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Face 1:
+01.Duke And Duchess Of Edinburgh
+02.McDonald Of Sleat
+03.Circassian Circle(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B51C36E44B5715D78F1B08940C57CDFB31E257B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604982   (1044917) от 17.01.2023
+
+Czerwone Gitary - Two Albums (1974, 1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044917.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dzien Jeden W Roku
+A2 Nad Swiatem Cicha Noc
+A3 Lec Koledo
+A4 Gwiazda Na Kiju(   Читать дальше...   )Жанр: Pop Rock, FunkПродолжительность: 01:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777FB3100117D2AA13CAE8293BCA015E18E8E9F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605804   (1044694) от 19.01.2023
+
+Steely Dan - Two Against Nature (2000) SACD, Reissue, Remastered, 2022, Analogue Productions [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044694.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gaslighting AbbieЖанр: Jazz, Rock, PopПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE67A33D9917F473E5AB28801F9288676E769AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606807   (1044308) от 23.01.2023
+
+Skaldowie - Szanujmy Wspomnienia (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044308.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Wszystko Kwitnie WkoloA2 Zyczenia Z Calego Serca
+A3 Zgadzam Sie Na Ten Swiat
+A4 Slowa Do Matki
+A5 Szanujmy Wspomnienia(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B702E12FBDB5C1E1E3A0823688A228309BF034C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607185   (1044158) от 25.01.2023
 
 Татьяна Кочергина и Рок-группа «XX Век» - «Добром за добро» (1988) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
@@ -536,208 +736,6 @@ A4 Лабиринт - Из Композиции «Сакартвело»(   Чи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:106756CF4651A459CFE50AFD256ECA59293C0D68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612507   (1039841) от 17.02.2023
-
-Beyond The Black - Studio Albums (6 releases) (2015 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beyond the Black — немецкая метал-группа, исполняющая музыку в жанрах симфонический метал / пауэр-метал / альтернативный метал, образованная в 2014 году в Мангейме.2015 - Songs Of Love And Death
-2016 - Lost In Forever
-2019 - Heart of the Hurricane
-2020 - HorizonsЖанр: Symphonic MetalПродолжительность: 05:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5730B564F27F9B2BA76D1724B4318711BF71FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614591   (1038352) от 23.02.2023
-
-Soilwork - Studio Albums (15 releases) (1998 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal; Metalcore/Melodic Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soilwork (англ.) («Земледелие») — шведская группа из Хельсингборга.
-Группа Soilwork была образована в 1996 году и поначалу своей карьеры носила название Inferior Breed. Как объяснил вокалист группы Бьорн Стрид — их саунд в то время находился под влиянием таких известных коллективов как Pantera, Meshuggah и Carcass. В конце 1996 года коллектив поменял название на (   Читать дальше...   )1998 - Steelbath Suicide
-2000 - The Chainheart Machine
-2001 - A Predator's Portrait
-2002 - Natural Born ChaosЖанр: Melodic Death Metal; Metalcore/Melodic Groove MetalПродолжительность: 14:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A848C968B9D76F7EFD0561C5F38E2F3FFE9D44CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614174   (1038302) от 23.02.2023
-
-Пётр Лещенко - Поёт Петр Лещенко 1-4 (1988-1990) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Folk, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038302.jpg" />
-</div>
-
-
-###  Подробнее
-
-..
-A1 Вернулась Снова Ты
-A2 Марфуша
-A3 Не Уходи(   Читать дальше...   )Жанр: шансонПродолжительность: 03:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2FA90A47B2C7627CD93A4D0A9E2F3119EEE91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440918   (1037922) от 20.01.2021
-
-Mark Knopfler - Tracker (2015) [DSD128 2.0|5,6MHz/1bit|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tracker — восьмой сольный студийный альбом британского певца, гитариста и композитора Марка Нопфлера. Альбом выпущен 16 марта 2015 года (в Северной Америке 17 марта).
-
-«Название альбома родилось из моих попыток расставить метки во времени, оглядываясь на людей, места и вещи из моего прошлого. А ещё из трекинга — записи треков в студии», — говорит Нопфлер. Некоторые (   Читать дальше...   )LP1Жанр: RockПродолжительность: 1:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC3415C8A6125F97E81A46578E483192425E70F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615318   (1037822) от 25.02.2023
-
-Christopher Tin - Calling All Dawns (2009) [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <Classical, Folk, World>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странно, но я только совсем недавно, в период подготовки своего двенадцатого сборника, открыл для себя музыку этого американского композитора с китайскими корнями...
-Кристофер Чиян Тин - композитор, который создаёт музыку для фильмов и видеоигр. Его работы в основном оркестровые и хоровые. Кстати говоря, получил две премии Грэмми за альбом, предлагаемый здесь.
-Этника (   Читать дальше...   )Жанр: Classical, Ethnic, WorldПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E25A3186DD1CFEA7D013FB692AF5FF6C82838B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043283   (1037630) от 21.01.2021
-
-E Nomine - Die Prophezeiung (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Monumental Dance, Electronic, Trance>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seit Anbeginn der Zeit... (Intro) (2:21)
-02. Die Verheissung (Interlude) (0:24)
-03. Deine Welt - Album (3:18)
-04. SchwarzerTraum (Interlude) (0:16)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DA59F34912EE8D1C8EF5690DF64319F1EAF82A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615418   (1037581) от 26.02.2023
-
-Catamenia - Studio Albums (10 releases) (1998 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Black Metal, Melodic Death/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Catamenia — финская мелодик-блэк-метал-группа из Оулу. Группа была образована в 1995 году вокалистом Микой Тённингом, гитаристами Рику Хопеакоски и Сампо Уккола, басистом Тимо Лехтиненом, клавишником Хейди Риихинен и барабанщиком Тони Тервоандом.1998 - Halls Of Frozen North
-1999 - Morning Crimson
-2000 - Eternal Winter's Prophecy
-2002 - EskhataЖанр: Melodic Black Metal, Melodic Death/Gothic MetalПродолжительность: 08:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C53D90BBD81CA7A1A40DD2E3D05722F2A0AADC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

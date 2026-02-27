@@ -1,3 +1,61 @@
+###  Публикация: 1552255   (587626) от 20.05.2022
+
+Giovanni Marradi - The Best of Giovanni (2008) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Whiter Shade of Pale (4:17)
+02. Summmertime (3:53)
+03. Fuga in Bb Minor (2:35)
+04. Nocturnes (3:12)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE0D41720921B531CEA789DDB8E45C0A59DDB3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 56825   (587494) от 20.05.2022
+
+Vangelis - 11 альбомов (1971-2003) [FLAС|APE|Lossless|image, tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ванге́лис (греч. Βαγγέλης, англ. Vangelis, полное имя Эва́нгелос Одиссе́ас Папатанаси́у, греч. Ευάγγελος Οδυσσέας Παπαθανασίου; род. 29 марта 1943, Волос) — греческий (   Читать дальше...   )Список альбомов:
+1971 - Fais Que Ton Reve Soit plus Long Que La Nuit
+1971 - The Dragon
+1977 - Ignacio(   Читать дальше...   )Жанр: New AgeПродолжительность: 09:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F22EFD9E261483613E0B2C2ECE5CD70243214F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300794   (587150) от 09.05.2019
 
 Kayo Konishi & Yukio Kondo - Elfen Lied Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Classical, Contemporary>
@@ -695,64 +753,6 @@ Mel Sutton - Golden Dream (1995) [MP3|160-256 kbps]<New age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A62A08144546C8E49B542CADA075A96395375E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919678   (582944) от 19.07.2015
-
-Golana - Meditations for Two (2014) [MP3|320 кб/с]<New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditations For Two
-02. A Walk On The Beach
-03. Prayer For Our People
-04. Star Filled Sky(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE086DB00269F3C630F39DF15391F1D9F0103F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918644   (582851) от 19.07.2015
-
-VA - Cab Canavaral - Electro Swingster (2015) [MP3|320 кб/с]<Electro Swing, Broken beat, House, Electronic>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Swing Towers - Mr Saxo Phone (4:55)
-02. 5 In Love - Swing What You Got (extended Cab Canavaral remix) (4:07)
-03. Cab Canavaral - Missing Link (5:22)
-04. 5 In Love - Bubba Don't Forget Your Rubber (Cab Canavaral remix) (3:25)(   Читать дальше...   )Жанр: Electro Swing, Broken beat, House, ElectronicПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52856031F7F6A4B619E0AA1E36F8226EC55B2553
 ```
 
 https://mybot314.ru/tekegram_catalog/

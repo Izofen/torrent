@@ -1,3 +1,32 @@
+###  Публикация: 1417572   (358064) от 20.10.2020
+
+Kid Abstrakt & Emapea - Jazzy Vibes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, Underground Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz & Coffee Part 4 (ft DJ Million Faces) (3:01)
+02. It's All Good (ft DJ Million Faces) (3:23)
+03. Raw.Lofi (ft DJ Million Faces) (2:55)
+04. Real Talk (ft Predominance & DJ Million Faces) (3:28)(   Читать дальше...   )Производство: Revolutionary RhythmЖанр: Hip-Hop, Jazz Hop, Underground Hip-HopПродолжительность: 00:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5473E2D1186A84EF0CF5259928202AC2B683D79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178100   (357646) от 27.10.2017
 
 Макс Корж - Малый повзрослел ч.2 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -719,35 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2473DE4E6D3D875E94A99DA67A7D4B93DFDE456A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182656   (314872) от 11.11.2017
-
-Pra(Killa'Gramm) - Рэп этот (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Яма (feat. Stankey)
-02. Кроме слов (feat. Kerry Force)
-03. Курим дурь (feat. Kof & Скруч)
-04. Всё это(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8870A68FB8E734063E1F26A3ABE6D30E7760BFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 199315   (1030581) от 18.02.2021
+
+VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image + .cue] <Neo Tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quinteto Real - Canaro en Paris (2:51)
+02. Daniel Melingo - Noche Trasfigurada (1:32)
+03. Gallo Ramiro Quinteto - Al amigo Pablo Rago (4:22)
+04. Carlos Gardel - Anclao En Paris (2:08)(   Читать дальше...   )Жанр: Neo TangoПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7EED3996B8319A87BE11BB10C7D883FDEFE7C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375546   (1030579) от 18.02.2021
+
+VA - Erotica (1977) [FLAC|Lossless] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фонтан эмоций и чувств на фоне прекрасной музыки. Эта подборка выходила под разными названиями, встречаются как минимум три - Les Vibrations, Erotheque, или просто - Erotica. Кстати, в те далекие года, в нашем народе этот сборник называли никак иначе как ...секс музыка.01. Nathalie Et Serge - Je T' Aime...Moi Non Plus 	(05:30)
+02. Nathalie Et Christine Avec Les Vibrations - Kiss 	(05:12)
+03. Les Vibrations - Emmanuelle 			(03:41)
+04. Andrea E Nicole - Sa Prima Volta 			(03:57)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48589D2A95E0BE1E37403FDD19B7A034BFD5261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 214614   (1030578) от 18.02.2021
 
 VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chillout>
@@ -687,61 +745,6 @@ Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61A89A2DAB43FC6C3C8CB9AA511E9D742C564548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191215   (1030105) от 20.02.2021
-
-VA - Вдохновение - Оттенки настроения 5 альбомов (2004) [APE|Lossless|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Изумительная благодать
-02. Овцы могут спокойно пастись
-03. Гимн
-04. Адажио(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC572B437E3DF5278DA0873CF2BA3C54A2109C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273614   (1030103) от 20.02.2021
-
-101 Strings Orchestra - 2 альбома (2002, 2009) 3CD [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030103.jpg" />
-</div>
-
-
-###  Подробнее
-
-101 Strings Orchestra был брендом очень успешной организации симфонической музыки, легко слушающей , с дискографией, превышающей 150 альбомов, и творческим сроком службы около 30 лет, начиная с 1957 года. 101 Strings имел фирменное звучание, сосредоточенное на мелодии с непринужденной атмосферой. чаще всего со струнами. Их пластинки были индивидуализированы слоганом (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96621891A2841174A42362D35F58BB7FB2D64405
 ```
 
 https://mybot314.ru/tekegram_catalog/

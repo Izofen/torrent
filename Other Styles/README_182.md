@@ -1,3 +1,67 @@
+###  Публикация: 594123   (132518) от 28.12.2012
+
+Американский пирог 1, 2, 3, 4 / American Pie 1, 2, 3, 4 (1999-2012) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: soundtrackПродолжительность: 1:10:45
+
+1 Times Like These Foo Fighters  04:30
+2 Anthem Good Charlotte 02:59
+3 Forget Everything New Found Glory 02:37
+4 The Hell Song Sum 41 03:22
+5 Swing Swing All American Rejects 03:58
+6 I Don't Give Avril Lavigne 03:40
+7 Laid Matt Nathanson 03:07
+8 The Art Of Losing American Hi-Fi 03:25(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9152263682CE0643A04018D3CCE95CEF3818E84B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681758   (132372) от 04.12.2023
+
+Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Brighter Dawn (8:00)
+02. The Gift of Life (6:56)
+03. The Voice Inside (9:28)
+04. Tomorrow's Dream (10:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457F339230B8E500DCDDB5189BA16F3DA453ADB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681768   (132348) от 04.12.2023
 
 Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -711,64 +775,6 @@ VA - Бременские музыканты (2023) Официальный са�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEDD3329AD71B2C18C29FA728CD58F02B859D465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691419   (123315) от 12.01.2024
-
-Борис Гребенщиков - Songs of Clear Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123315.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Saraswati intro
-2. Hanuman
-3. Om Namah Shivaya
-4. Charam Charam(   Читать дальше...   )Жанр: Relax, MeditativeПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85434100DE4D234734A7675ECD0639F71062A246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691409   (123311) от 12.01.2024
-
-Борис Гребенщиков - Songs of Clear Light (2024) [MP3|320 Kbps] <Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123311.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Saraswati intro
-2. Hanuman
-3. Om Namah Shivaya
-4. Charam Charam(   Читать дальше...   )Жанр: Relax, MeditativeПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC03A2C36934D4E141B52A9EF17E0D70ED475CD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

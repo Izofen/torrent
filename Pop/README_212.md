@@ -1,3 +1,320 @@
+###  Публикация: 1325857   (407415) от 18.09.2019
+
+VA - 90s Dance Hits, Vol.4 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snap! - Rhythm Is A Dancer (7_ Edit)
+02. Gala - Freed From Desire
+03. Haddaway - What Is Love (7_ Mix)
+04. Whigfield - Saturday Night(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B52B8BC92D02BAA7CBFFA10AD6C9F1A93FA2145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413870   (407240) от 05.10.2020
+
+Franco Orlandini & Roberto Colombo - Bubble Gum (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B.M.&R. Gibb Medley-Hum  (14:35)
+02. Your Town's A Down  (3:04)
+03. It'd Be So Easy  (4:07)
+04. Bad Bad Bad  (3:38)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FF3C5CE78A03B36B8908281F282152B0C96CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413774   (407226) от 05.10.2020
+
+VA - Love Pop Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved (03:02)
+02. Jovanotti - Baciami Ancora (04:40)
+03. Ellie Goulding - How Long Will I Love You (02:28)
+04. Lady Gaga - Million Reasons (03:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8580267B8D1AE9D9111B5032D0C386D74A587760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414137   (406738) от 06.10.2020
+
+Secret Service - Secret Mission (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret MissionЖанр: PopПродолжительность: 00:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023329AA6983093AB15AFDFF7333306ED0894160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414014   (406732) от 06.10.2020
+
+Patricia Kaas - Patricia Kaas (2016) Warner Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406732.jpg" />
+</div>
+
+
+###  Подробнее
+
+О выходе нового альбома певица объявила в 2015 году, сказав, что она возвращается к своему привычному стилю. Это фактически первый за 13 лет альбом, где присутствуют только новые и оригинальные песни. Позже певица рассказала, что альбом личный и отражает события последних событий её жизни, также Каас заявила, что решила затронуть на альбоме остросоциальные темы, (   Читать дальше...   )01. Adele (03:07)
+02. Cogne (03:34)
+03. Madame tout le monde (02:48)
+04. Sans tes mains (03:34)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C38F1ACBFAA8B34666EAFBECE63FE3B76E0499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559478   (406365) от 16.10.2012
+
+Silent Circle - The Maxi-Singles Collection (2006) [MP3|320 кб/с]<Italo-Disco, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch In The Night (Crash Version) [5:36]
+02. Time For Love (Super-Action-Mix) [5:23]
+03. Danger, Danger (Raicing Mix) [6:01]
+04. Forget The Stranger (Simple Mix) [5:01]
+05. Give Me Time [3:45]
+06. Hide Away-Man Is Comin' ! (Special Mix) [5:12]
+07. I Am Your Believer (Club Mix) [5:48]
+08. Is It Love [4:29]
+09. Love Is Just A Word (Reggae Version) [5:48]
+10. Stop The Rain (Extended Version) [5:42](   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC31AC68A1CCC192F244D5907753A362DD4C253A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559447   (406344) от 16.10.2012
+
+Baby's Gang - Child Disco (1989) [MP3|192 кб/с]<Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_406344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ole Ole Campeones [5:05]
+02. S.O.S. [4:40]
+03. Happy Birthday [4:06]
+04. Dandy Blue [2:57]
+05. Ven A Bailar [2:56]
+06. Voy Voy (Boys) [3:50]
+07. A Donde Vas [3:14]
+08. Toigether Forever [3:19]
+09. Whenever You Need Somebody [3:48]
+10. Never Gonna Give You Up [3:26](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A47F38083F7FC6F9D9A3ADECB1610B5F42661BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562535   (405531) от 19.10.2012
+
+Body Heat - No! Mr. Boom Boom (1998) [MP3|320 кб/с]<Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Heart Beat Beat [5:48]
+02. Chic A Boom (My Love) (club mix) [6:08]
+03. Don't Want Your Kisses Anymore [6:37]
+04. Tonight We've Got The Night (club mix) [7:21]
+05. Mad About You (club mix) [5:26]
+06. Move It In Move It Out (club mix) [7:02]
+07. Tonights The Night (club mix) [6:23]
+08. My Baby (club mix) [6:17]
+09. No! Mr. Boom Boom [6:15]
+10. Chic A Boom (My Love) (love mix) [5:31](   Читать дальше...   )Жанр: Disco, Hi NRGПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC4AD4555B40577EF1F2E0CAD47028380B0ACE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562065   (405485) от 19.10.2012
+
+VA - British Rock N' Roll Anthology (1956-1964) 5 CD's Box Set (2009) [MP3|320 кб/с]<Oldies 50's - 60's , Rock / Rock 'N' Roll>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405485.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tommy Steele & The Steelmen - 01 - Tommy Steele & The Steelmen - Singing The Blues (2:25)
+2. Frankie Vaughan - 02 - Frankie Vaughan - Seventeen (2:07)
+3. The Goons - 03 - The Goons - Bloodnok's Rock 'n' Roll Call (3:12)
+4. Petula Clark - 04 - Petula Clark - Baby Lover (2:25)
+5. Lord Rockingham's Xi - 05 - Lord Rockingham's Xi - Wee Tom (2:15)
+6. Marty Wilde - 06 - Marty Wilde - Honeycomb (2:13)
+7. Most Brothers - 07 - Most Brothers - Whole Lotta Woman (2:29)
+8. Wee Willie Harris - 08 - Wee Willie Harris - Rockin At The Two I's (2:34)
+9. Terry Dene - 09 - Terry Dene - Baby She's Gone (2:50)
+10. Vince Taylor & The Playboys - 10 - Vince Taylor & The Playboys - Brand New Cadillac (2:37)(   Читать дальше...   )Жанр: Oldies 50's - 60's , Rock / Rock 'N' RollПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190661A9B788AFBC9EF1F0E2F9FF2C805B5ED743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561860   (405395) от 19.10.2012
+
+VA - One Shot 80 Vol.1-18 (1998-2006) [MP3|320 кб/с]<Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405395.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Buggles - Video killed the radio star (3:20)
+2. Kajagoogoo - Too shy (3:39)
+3. Heaven 17 - Let me go (4:15)
+4. Industry - State of the nation (3:39)
+5. Wang Chung - Dance Hall days (3:59)
+6. Belouis Some - Imagination (3:05)
+7. Freur - Doot Doot (3:59)
+8. ABC - The look of love (3:29)
+9. Mr. Mister - Broken wings (5:42)
+10. PHD - I won't let you down (4:11)Жанр: Disco, PopПродолжительность: 01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9646F06617754C0943A9D4B6FAA6681DFA73205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563090   (405178) от 20.10.2012
 
 VA - Platinum 80s (2002) [FLAC|Lossless]<Pop, Rock, Soul, Disco>
@@ -493,302 +810,6 @@ Shania Twain - Now (2017) Deluxe Edition [MP3|320 Kbps] <Pop, Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24CCB96982A7D1E19B76CC4F50C007C9901B1D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169903   (401227) от 29.09.2017
-
-Michael Jackson - Scream (2017) Compilation [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401227.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. This Place Hotel (a.k.a. Heartbreak Hotel)
-2. Thriller
-3. Blood on the Dance Floor
-4. Somebody's Watching Me (Single Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2011F9FE59B9898C75BA67BE20174538CFED4543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169994   (400441) от 30.09.2017
-
-Belinda Carlisle - Wilder Shores (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400441.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adi Shakti (7:19)
- 2. Ek Ong Kar Sat Gur Prasad (6:32)
- 3. Light of My Soul (4:29)
- 4. Rakhe Rakhan Har (4:51)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836895E4B7A18A93D5C8EEEC9EC93245A9F537C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170629   (399617) от 01.10.2017
-
-Joel Diamond Experience - Joel Diamond Experience (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Machine (In And Out) (5:05)
-02. Just As Long As I'm Dancin' (Rock-It Tonight) (5:15)
-03. Tall In The Saddle (6:06)
-04. Finger Snaps (4:17)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA88825EA1005163AE8A426C6B56D0F79A00A348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 714351   (399509) от 23.10.2013
-
-Helene Segara en duo avec Joe Dassin - Et Si Tu N'existais Pas (2013) [FLAC|image + .cue]<Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Et Si Tu N'existais Pas   (3:35)
-02.  Salut Les Amoureux   (4:00)
-03.  Les Champs-Elysees   (3:11)
-04.  Salut   (3:14)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A629A7EE40D964E3FC341374A56FAA02B99FD03D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170616   (399413) от 01.10.2017
-
-Алёна Апина - Большая коллекция (2 части) (2014) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Электричка (4:37)
-02. Бухгалтер (4:35)
-03. На теплоходе музыка играет (3:28)
-04. Самолёт на Москву (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 06:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA38E32610E9D6D58099A0BB7A78ABCCAB22103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170801   (398685) от 02.10.2017
-
-Magic Mail - Magic Mail (1981) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Lips Are Burnin' (2:38)
-02. All My Love (2:08)
-03. Baby Blue (What You Gonna Do) (2:54)
-04. She Loves The Whip (3:03)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A718B426177D393C1909FDFDA02F6B547FD86D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170937   (398563) от 02.10.2017
-
-Alena Apina (Алёна Апина) - Коллекция (2016-2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ДиДжей (3:49)
-2. S.M.W. (3:13)
-3. Deep in the Dark (4:12)
-4. Мелодия (3:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A5139766330E1B596E1F4EC92630B80203FE0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170778   (398453) от 02.10.2017
-
-Miley Cyrus - Younger Now (2017) [MP3|320 Kbps] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Younger Now
-02. Malibu
-03. Rainbowland (Feat. Dolly Parton)
-04. Week Without You(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B938BB38195002CC24195F5CE3EBAFFAA9821B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566597   (397854) от 28.10.2012
-
-Blue System - The History Of (2009) [MP3|320 кб/с]<Euro Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sorry Little Sarah (7'' Version)
-02. Big Boys Don't Cry (Long Version)
-03. Love Me More
-04. G.T.O.
-05. My Bed Is Too Big (7'' Version)
-06. Under My Skin
-07. Silent Water
-08. Love Suite (7'' Remix)
-09. Magic Symphony
-10. Love Me On The Rocks(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 01:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FBAB97F55FA62CDD379923FBAFAABCF2FBF2F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171083   (397618) от 03.10.2017
-
-VA - Legacy: A Tribute To Fleetwood Mac's Rumours (1998) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonic - Second Hand News [3:31]
-02. The Corrs - Dreams [4:02]
-03. Matchbox 20 - Never Going Back Again [3:45]
-04. Elton John - Don't Stop	[4:39](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F053FE083C33110BC2211EE5BA6FD65297A50147
 ```
 
 https://mybot314.ru/tekegram_catalog/

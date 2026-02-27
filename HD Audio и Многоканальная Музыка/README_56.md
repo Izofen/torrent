@@ -1,3 +1,206 @@
+###  Публикация: 1653071   (206046) от 17.08.2023
+
+ELO (Electric Light Orchestra) - Time (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Synth-pop, Symphonic Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_206046.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Prologue
+A2 Twilight
+A3 Yours Truly, 2095
+A4 Ticket To The Moon(   Читать дальше...   )Жанр: Synth-pop, Symphonic Rock, Pop RockПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F787043A0FC2CB2B0C08B19421C4317098EA5DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653165   (205984) от 18.08.2023
+
+Ozzy Osbourne - Patient Number 9 (2022) [WavPack|32/192|image + .cue|Vinyl-Rip]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205984.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Immortal
+A2 Patient Number 9
+A3 Parasite
+B1 No Escape From Now(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC930CB49178CE821FAA5917B03CB286D01ABE26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830794   (205759) от 27.10.2025
+
+Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical/Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quo Vadis - канадская дэт-метал-группа из Монреаля, Квебек, образованная в 1992 году.1996 - Forever...
+2000 - Day Into Night
+2001 - Passage In Time
+2004 - Defiant ImaginationЖанр: Technical/Melodic Death MetalПродолжительность: 02:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12743AAABEAF35762E2EAC29235D96F9FF08C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654042   (205374) от 19.08.2023
+
+Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sign Of Satan
+02. After The Bomb
+03. Dark Fade
+04. Homicide Rocker(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC90F74B74782CCCA087D4670E926F780CEF65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654445   (205196) от 20.08.2023
+
+Sonic Boom - Reset in Dub (Adrian Sherwood 'Reset In Dub' Version) (2023) [FLAC|24/44.1|tracks|WEB-DL] <Neo-Psychedelia, Dub>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gettin’ to the Point Dub (Adrian Sherwood 'Reset In Dub' Version) [00:03:33]
+02. Go On Dub (Adrian Sherwood 'Reset In Dub' Version) [00:04:48]
+03. Everyday Dub (Adrian Sherwood 'Reset In Dub' Version) [00:03:50]
+04. Edge of the Edge Dub (Adrian Sherwood 'Reset In Dub' Version) [00:05:33](   Читать дальше...   )Жанр: Neo-Psychedelia, DubПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:516908C1EEAAD064655C04167C721E7DD1604011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654423   (205144) от 21.08.2023
+
+Manowar - Battle Hymns (1982) Japanese Edition [FLAC|24/192|image + .cue|Vinyl-Rip]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Death Tone
+02.Metal Daze
+03.Fast Taker
+04.Shell Shock(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C65853B6674537CA4F6CB88939C6F3BF0C3C2C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654607   (205122) от 21.08.2023
+
+Kreator - Violent Revolution (2001) Nuclear Blast, Reissue 2022 [FLAC 24/192|tracks|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205122.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Reconquering the Throne
+A2 The Patriarch
+A3 Violent Revolution
+A4 All of the Same Blood(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D634E009E064101BADD89BCC1A58B569E1C50319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655086   (204616) от 24.08.2023
 
 Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge Metal>
@@ -540,215 +743,6 @@ Side One:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4837B27E6E20DF1EAA4CDD7435D9AAA3AED3CEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614917   (202370) от 23.02.2023
-
-Демонстрационный диск DTS 5.1 CD-Audio #13 (2023) [DTS 5.1 CD-DA|44.1/16|image+.cue] <Pop, Rock, Electronic...>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202370.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вот и тринадцатый...
-Собирал отовсюду: и различные музыкальные форматы были задействованы, и звуковые дорожки клипов. Критерии отбора - прежние: нужно было, чтобы 1. музыка мне понравилась, и 2. многоканал был внятный. Исходный материал абсолютно разных лет.
-Все треки имеют шесть полноценных каналов звука.01. Avicii - Wake Me Up 04:32
-02. Depeche Mode - Leave In Silence 04:47
-03. Genesis - No Son Of Mine 06:37
-04. Britney Spears - Till The World Ends 03:57(   Читать дальше...   )Продолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977F3BA82A08F8B6E33D38DAE216E03AAB36A4C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613599   (202261) от 25.02.2023
-
-Демонстрационный диск DTS 5.1 CD-Audio #12 (2023) [DTS 5.1 CD-DA| 44.1/16|image+.cue] <Pop, Rock, Electronic...>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот и двенадцатый диск поспел...
-Собирал отовсюду: и различные музыкальные форматы были задействованы, и звуковые дорожки клипов. Критерии отбора - прежние: нужно было, чтобы 1. музыка мне понравилась, и 2. многоканал был внятный. Исходный материал абсолютно разных лет.
-Все треки имеют шесть полноценных каналов звука.01. Agnes - Release Me
-02. Lichtmond - Catching Rainbows
-03. Fun - Some Nights
-04. Katy Perry - Wide Awake(   Читать дальше...   )Продолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE6929F3BA08AFE62D6090A86A77BC0B3707722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829272   (202040) от 25.10.2025
-
-Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vinyl Rip] <Electronic, Ambient, New Age, Downtempo>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-The Gate (2:05)
-02-Push The Limits (6:35)
-03-Gravity Of Love (4:02)
-04-Smell Of Desire (4:49)(   Читать дальше...   )Жанр: Electronic, Ambient, New Age, DowntempoПродолжительность: 02:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB5A2A92CA80DDD61847CDCA19C791B5BFF3CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617270   (201677) от 07.03.2023
-
-Оркестр Поля Мориа - Бабье Лето (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201677.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Бразильский Карнавал · Brasilia Carnaval
-A2 Бабье Лето · L'ete Indien «Africa»
-A3 Мелиза · Melisa
-A4 Так Лучше · C'est Mieux Comme Ca(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCFFDA9286168ECDA880FD6ABE74EA3A11A2871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617851   (201632) от 08.03.2023
-
-The Alan Parsons Project – The Turn Of A Friendly Card (1980) 2023 [DTS 5.1 CD-DA|44.1/16|image+.cue|BD-Audio] <Electronic, Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. May Be A Price To Pay
-02. Games People Play
-03. Time
-04. I Don't Wanna Go Home(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4595EF428B892223CE732B06255B6FA38F2F7EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617718   (201610) от 08.03.2023
-
-Johann Sebastian Bach, Akiko Suwanai - The Sonatas And Partitas For Violin Solo (2022) Japanese Edition, 2 x SACD [DSD64(DST64) 2.0, 5.0|2822,4/1|SACD-R] <Classical, baroque>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc - 1:
-Sonata No.1 In G Minor, BWV 1001
-1-1 I. Adagio
-1-2 II. Fuga. Allegro(   Читать дальше...   )Жанр: Classical, baroqueПродолжительность: 02:20:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3945962A1B79D961702C882FE79566827987774E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599189   (201512) от 09.03.2023
-
-In Flames - Studio Albums (15 releases) (1994 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal, Melodic Groove Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201512.jpg" />
-</div>
-
-
-###  Подробнее
-
-In Flames — шведская музыкальная группа, играющая в жанре мелодичный дэт-метал.
-Группа была основана в 1990 году ударником и гитаристом Йеспером Стрёмбладом как сайд-проект его основной группы Ceremonial Oath.
-В 1993 году Стрёмблад покинул группу и сосредоточился на In Flames. К нему присоединились гитарист Гленн Люнгстрём и басист Йохан Ларссен, сформировав первый (   Читать дальше...   )1994 - Lunar Strain + Subterranean (EP)
-1996 - The Jester Race
-1997 - Whoracle
-1999 - ColonyЖанр: Melodic Death Metal, Melodic Groove Metal/MetalcoreПродолжительность: 13:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E212FBF43AC8B9EA9521815678762830BA9F98
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,62 @@
+###  Публикация: 1005754   (828801) от 11.04.2016
+
+Аквариум и Борис Гребенщиков - Live "Весенний концерт" БГ60, Самара, КРЦ "Звезда", (2014) [AC3 5.1|448 кб/с] <Рок>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828801.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче аудио-дорожка (с потрековой разбивкой) от видеозаписи концерта, состоявшегося 25.05.2014г. в Самаре. Запись из зала "с воздуха".
+Видео можно найти >здесь< и >здесь<.01. Intro
+02. Губернатор
+03. Праздник Урожая Во Дворце Труда
+04. Не Было Такой И Не Будет(   Читать дальше...   )Жанр: РокПродолжительность: 02:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F65ACCCE8764770469A5088B085C02CDD2CB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380925   (827809) от 06.05.2020
+
+Salvador Candel & Carlos Fiel - Tengo Un Gran Amor (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827809.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tengo un gran amor 04:26
+2. Colores de amanecer 04:13
+3. Encuentros luminosos 04:02
+4. Canción para un amigo 03:16(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BB95385943A55093BA33CFCF4077E089BBEDEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381012   (827807) от 06.05.2020
 
 David Hollandsworth - Imagine a World (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
@@ -684,64 +743,6 @@ VA - Imaginary Tibetan Journey Music Soothing Atmosphere, Namaste Yoga, Deep Med
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50C79BDEA0970731A789B86BC84A45EECA445685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116615   (822748) от 20.03.2017
-
-Кукуруза - Там, где солнечный свет (1993) [FLAC|Lossless|image + .cue] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Widow Woman (Traditional) (4:41)
-02. Poor Wayfaring Stranger (Traditional) (3:27)
-03. Ты мне не был чужим / You Were Not A Stranger To Mе (Andrew Shepelev) (3:49)
-04. Coming Back To You (Leonard Cohen) (3:31)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B516203AC7708EBAE6EDF8F3892B82E96CA2BA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381839   (822654) от 09.05.2020
-
-Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaymen Shuffle
-02. Olley Oxen Free
-03. Everybody Way Oh!
-04. Rock And Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5E070B9F9ACC7E5824D6EDC8CBFCFC38F7EAFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

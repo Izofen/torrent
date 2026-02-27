@@ -1,3 +1,61 @@
+###  Публикация: 1776782   (28238) от 08.02.2025
+
+Hans Zimmer - The World of Hans Zimmer - Part II: A New Dimension (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Modern Classical, Film Soundtracks>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Dark Knight: Why Do We Fall? [4:32]
+02 - Gladiator Suite : Part 1 [2:41]
+03 - Gladiator Suite : Part 2 [6:49]
+04 - Gladiator Suite : Part 3, Now We Are Free [3:58](   Читать дальше...   )Жанр: Classical, Modern Classical, Film SoundtracksПродолжительность: 01:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961659ED1CF4B10BAF04C7AE215F9043047C6C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777091   (28023) от 10.02.2025
+
+VA - Emmanuelle - Instrumental Collection (2004) [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental Pop, Rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadows - Chattanooga Choo Choo    [0:02:23.70]
+02. P. Weekers - El Condor Pasa    [0:03:16.68]
+03. F. Pappetti - Smoke Gets In You Eyes    [0:02:32.13]
+04. F. Lay - Emmanuelle II    [0:04:00.69](   Читать дальше...   )Жанр: Easy Listening, Instrumental Pop, RockПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441746F6F244231C2E6561275E981DE903DE86AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780247   (27316) от 17.02.2025
 
 Stive Morgan - Serenity (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Electronic>
@@ -694,64 +752,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:091511AD62921B4F205F1EB9C529FDE76509BDFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805542   (12150) от 08.07.2025
-
-Brulе - We the People (A Tribal Gathering Of Music) (1996) CD, Album [FLAC|Lossless|tracks + .cue] <Native American, Tribal, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Praises    [0:04:05.15]
-02. Brave Hearts    [0:04:33.43]
-03. Buffalo Moon    [0:05:23.28]
-04. Dream Shield    [0:03:51.09](   Читать дальше...   )Жанр: Native American, Tribal, New AgeПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0E123CCB75332D99142778302F3CE726A9B0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805816   (12028) от 09.07.2025
-
-Joan Baez - Gone From Danger (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Mermaid    [0:04:22.72]
-02. Reunion Hill    [0:04:08.43]
-03. Crack in the Mirror    [0:05:49.02]
-04. February    [0:04:11.25](   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749FF62F2BF88DC1119DF9A8B5A58B27141B04A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

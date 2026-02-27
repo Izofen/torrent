@@ -1,54 +1,25 @@
-###  Публикация: 1515300   (169479) от 07.12.2021
+###  Публикация: 1776242   (29118) от 31.01.2025
 
-VA - Psychedelic Goa Trance 2022 (2021) [AAC|~330 Kbps] <Psy Trance, Goa Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Frequency, Onirus - Peace Of Mind (7:04)
-02. Adam Shiva - The Nature Of Life (8:48)
-03. Bitkit - Invocation (Lexxus Remix) (6:47)
-04. Nostromosis - Alien From Mars Giving Hope (8:20)(   Читать дальше...   )Жанр: Psy Trance, Goa TranceПродолжительность: 02:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2B1FEF3BE4C8D95B80493C46EF2F75EA5E1EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515587   (169465) от 07.12.2021
-
-VA - 50 Chart Hits of 2021.3: The Workout Motivation Album (2021) [AAC|~331 Kbps] <Eurodance, Euro-House, Techno Pop>
+Secret Service - When The Night Closes In (1985) [AAC|320 Kbps] <Electronic, Pop, Synth-pop, New Wave>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169465.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_29118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eurotronic, Timi Kullai - Baby Baby (Ctk Freaks Remix) (4:00)
-02. Maxxima - No Regrets (Am 1979 Mix) (5:39)
-03. Soundstream - Cambodia (Craig Riser Remix) (3:21)
-04. Tall & Small - With You (Radio Mix) (2:29)(   Читать дальше...   )Жанр: Eurodance, Euro-House, Techno PopПродолжительность: 03:17:31
+01. Night City
+02. Let Us Dance Just A Little Bit More
+03. Special Songs
+04. Do You Remember(   Читать дальше...   )Жанр: Electronic, Pop, Synth-pop, New WaveПродолжительность: 00:37:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90C7933E4F85D3142B9325EDE7A96C5951E495BE
+magnet:?xt=urn:btih:D7A602EF5837F99AAEEC30085769C588283F488C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515583   (169463) от 07.12.2021
+###  Публикация: 1776847   (28671) от 04.02.2025
 
-VA - 50 Chart Hits of 2021.1: The Workout Motivation Album (2021) [AAC|~333 Kbps] <Eurodance, Euro-House, Techno Pop>
+VA - The Best Of Italo-Disco Vol. 7 (1986) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop, Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169463.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chrizz Morisson, Fio - Feel Free (Radio Mix) (3:49)
-02. Clarence Bekker - Beautiful Tomorrow (Chrizz Morisson Radio Mix) (3:45)
-03. B.G. The Prince Of Rap, Timi Kullai, Nathan Reynolds III - Only You (Chrizz Morisson Remix) (4:05)
-04. Chrizz Morisson, Jay-P Jonas - One Last Time (Bmonde Remix) (3:34)(   Читать дальше...   )Жанр: Eurodance, Euro-House, Techno PopПродолжительность: 03:06:59
+01. Mike Mareen - Love Spy (The Badman Mix)
+02. Ken Laszlo - Don't Cry (Vocal)
+03. K.B.Caps - Do You Really Need Me
+04. Grant Miller - Doctor For My Heart(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, Synth-pop, DiscoПродолжительность: 01:04:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6E942B0459C28DFB88BD798DE1167C41F67934D
+magnet:?xt=urn:btih:1474DDBD912EBEB1AED75E13BD5B868CE3385601
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515284   (169453) от 07.12.2021
+###  Публикация: 1781473   (26659) от 23.02.2025
 
-VA - 40 Top Workout Mixes 2021: Motivation Training Music (2021) [AAC|~321 Kbps] <Electro House, Club House, Dance>
+VA - Modern 80's - The Best Of Discopop (1998) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169453.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26659.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. MaxRiven - It's A Melody (2:56)
-02. Stephan F, Ya-Ya - U & Me (2:31)
-03. Deep Emotion - Ready To Let Go (2:21)
-04. Heaven & Alone - I Want To Be Alone (2:27)(   Читать дальше...   )Жанр: Electro House, Club House, DanceПродолжительность: 01:48:43
+01. Modern Talking - You Can Win If You Want
+02. Fancy - Slice Me Nice
+03. C.C. Catch - I Can Lose My Heart Tonight
+04. Kylie Minogue - The Loco-Motion(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 02:33:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43C3CE594B4A06649B6E59B25C979D6E0206F18E
+magnet:?xt=urn:btih:5F558C030EEEF9D1961283CC06291BC82634EF27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515616   (169396) от 07.12.2021
+###  Публикация: 1781577   (26568) от 24.02.2025
 
-Tool - Lateralus (2001) [AAC|~302 Kbps] <Hard Rock, Metal>
+VA - Modern 80's - The Best Of Discopop Vol.2 (1999) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169396.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Grudge (8:37)
-02. Eon Blue Apocalypse (1:04)
-03. The Patient (7:14)
-04. Mantra (1:13)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 01:16:50
+01. Robin Gibb - Juliet
+02. Samantha Fox - I Surrender (To the Spirit of the Night)
+03. Bros - When Will I Be Famous
+04. Sabrina - Boys(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 02:40:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F781E49C035E7916FF292571D2B718241C0C672
+magnet:?xt=urn:btih:D2D79607761DB2971D2745A35D788DCA14580B6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515623   (169379) от 07.12.2021
+###  Публикация: 1781830   (26458) от 25.02.2025
 
-Tool - Fear Inoculum (2019) [AAC|~293 Kbps] <Hard Rock, Metal>
+VA - Modern 80's - The Best Of Discopop Vol.3 (1999) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169379.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fear Inoculum (10:20)
-02. Pneuma (11:53)
-03. Invincible (12:44)
-04. Descending (13:38)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 01:19:13
+01. Milli Vanilli - Girl You Know It's True
+02. A-ha - Take on Me
+03. Alphaville - Big In Japan
+04. Laura Branigan - Self Control(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 02:36:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27C5129B0B6564A6EE804CD6D0352355F2937210
+magnet:?xt=urn:btih:70C71C4F0130A1C8093C04A9E2F90BC376D9D91F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431138   (168998) от 12.12.2020
+###  Публикация: 1782100   (26277) от 27.02.2025
 
-Тараканы! - 15 (...И ничего кроме правды) (2020) [AAC|~328 Kbps] <Rock>
+VA - 100 Hits Power Ballads (2016) [AAC|320 Kbps] <Classic Rock, Pop Rock, Vocal>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168998.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Голый король (3:16)
-02. Чем пахнут деньги (2:48)
-03. 32 мая (3:17)
-04. Побег из Шоушенка (3:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:19
+01. Boston - A Man I'll Never Be
+02. Cheap Trick - Mighty Wings
+03. Daryl Hall & John Oates - Out Of Touch
+04. Deacon Blue - The Hipsters(   Читать дальше...   )Жанр: Classic Rock, Pop Rock, VocalПродолжительность: 06:32:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D76524F5536634CA2E98D2C7A520FCC15278AA90
+magnet:?xt=urn:btih:3A10D03FC5419DCB8F39E3E73591929E8C331939
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,25 +172,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344917   (168984) от 12.12.2019
+###  Публикация: 1782549   (25986) от 02.03.2025
 
-Добро пожаловать в Коллинвуд / Welcome to Collinwood (2002) WEB-DL [1080p] ATV
+Сергей Жарковский | Я, Хобо. Времена смерти (2025) [AAC, Роман Волков]
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168984.jpg" />
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У мелкого воришки Косимо появляется план, как разбогатеть, использовав информацию, полученную у сокамерника. Самое главное — поскорее выбраться из тюрьмы. Все, что нужно Косимо — это найти отчаявшегося парня, того, кто согласится за $15000 взять вину на себя и отсидеть от одного до трех лет в тюрьме. Косимо поручает своей подружке Розалинде найти такого простака. (   Читать дальше...   )Производство: США, Германия / Gaylord Films, H5B5 Media AG, Pandora CinemaЖанр: Комедия, криминалРежиссер: Энтони Руссо, Джо РуссоАктеры: Уильям Х. Мэйси, Сэм Рокуэлл, Луис Гусман, Исайя Вашингтон, Майкл Джитер, Патриша Кларксон, Эндрю Дэволи, Джордж Клуни, Дженнифер Эспозито, Гэбриэл ЮнионПеревод: Дублированный («Мосфильм-Мастер»)Субтитры: Русские, английские (вшитые, отключаемые)Продолжительность: 01:26:02
+…Они рождаются в генетических секвенсорах, пятнадцатилетними. Никто из них никогда не был на Земле. По приказу Императора они тянут в Глубокий Космос Трассу – Дистанция за Дистанцией, декапарсек за декапарсеком, от звезды к звезде, от одного зелёного мира к другому… У них нет выбора: цена Солнечной Визы – двадцать пять лет на Трассе. Скидка – только для мёртвых.Жанр: Научная фантастикаИздательство: Аудиокнига (АСТ)Продолжительность: 23:14:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5A9BEB5BDC5647B20AC4932DF00EF86AA858FC4
+magnet:?xt=urn:btih:A385C65711807217471A9D1070FE58489F5EE7B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,518 +198,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431003   (168949) от 12.12.2020
+###  Публикация: 1431010   (19084) от 07.05.2025
 
-Александр Маршал - Невыдуманные Истории (2020) [AAC|~329 Kbps] <Pop>
+Артур Конан Дойл | Шерлок Холмс и доктор Ватсон (2020) [M4B|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168949.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Дуэль (3:57)
-02. Я Помню Тот День (4:20)
-03. Роль (3:53)
-04. Отец (6:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:38
+Безусловно, все знают кто такой Шерлок Холмс и чем он знаменит. Его имя говорит само за себя. Благодаря своему методу  раскрытия преступлений, Шерлок Холмс известен на всю Англию. Да и не только Англию, нет в мире человека, который бы не слышал об этом сыщике!
+Шерлок Холмс расследует огромное количество дел, но не все они могут быть в общедоступной печати. Но с течением (   Читать дальше...   )Жанр: ДетективИздательство: Своими рукамиФормат: M4BПродолжительность: 78:29:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A76139BF8A138A6E0EC04907CD2E733B2F312F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431131   (168885) от 12.12.2020
-
-Каста - Чернила осьминога (2020) [AAC|~287 Kbps] <Rap, Hip-hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пароль от почты (4:32)
-02. Не то (4:27)
-03. Каста, Рем Дигга - Годы неправды (4:42)
-04. Нипонимони (3:34)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1978598F815F32C249E59D54FD118CE16947BC74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344859   (168840) от 12.12.2019
-
-Эверест / Abominable (2019) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестный науке мохнатый зверь сбегает из лаборатории, оказывается посреди шумного мегаполиса и в панике прячется на крыше одного из домов. Вскоре там его обнаруживает школьница Лу и, поняв, что находка хоть и дикая, но вполне симпатичная и, скорее всего, волшебная, решает во чтобы то ни стало помочь животному спастись от злых учёных и вернуться домой в горы. За (   Читать дальше...   )Производство: Китай, США, DreamWorks Animation, Pearl StudioЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джилл Калтон, Тодд ВилдерманАктеры: Хлоя Беннет, Альберт Цай, Тензинг Норгай Трэйнор, Джозеф Иццо, Эдди Иззард, Сара Полсон, Цай Чинь, Мишель Вонг, Рич Дитль, Джеймс ХонгПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), Английские (Full)Продолжительность: 01:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89014BFC1EE2F1496CF852DAA191BD3B0104ABCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515682   (168797) от 08.12.2021
-
-VA - Casa of House, Vol. 1 (2021) [AAC|~335 Kbps] <Progressive House, Electro House, Club House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - Sweet Dreams (Avicii Swede Dub Mix) (5:54)
-02. Brockman, Basti M - Eniac (Radio-Edit) (3:39)
-03. Superfinger, Genius Jane - Dreams (AL-Faris & Superfinger Mix) (3:50)
-04. DJ Tonka - She Knows You (Radio-Edit) (3:05)(   Читать дальше...   )Жанр: Progressive House, Electro House, Club HouseПродолжительность: 01:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49A115033E61357CCF33BA7F18B3E9839F4E73B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515681   (168789) от 08.12.2021
-
-VA - Sacred Journey, Vol. 4 (2021) [AAC|~303 Kbps] <Electronic, Ambient>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Count of S.G. - From the Inner Lights (2:32)
-02. La Nau - Theta Waves (3:02)
-03. Somnia Magnus - Dream of Gilgamesh (2:28)
-04. Rol - Gemal (2:29)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA00666907579A4BDC81FB6F5B14672F6C98A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515667   (168787) от 08.12.2021
-
-VA - Nightflight Berlin – 22 Premium Downbeat & Lounge Trax (2014) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Borell - A Little Bit (Shattered Dream Mix) (4:44)
-02. Sky Sergeant - Orion Trail (Eclipse Mix) (5:05)
-03. Mahoroba - Unearthly (From Space to Earth Mix) (4:54)
-04. Moon Patrol - Jules vs. Verne (Aircontrol Mix) (6:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 04:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D484D1A63C12D15B5B469BCE8FEE76DC2FC8AA51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515663   (168781) от 08.12.2021
-
-Pier-O - Dreams (2021) [AAC|~329 Kbps] <Chill Out, Downtempo, Soulful House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funkaholic Talk (5:17)
-02. Night Sky (5:43)
-03. Whisky and Cigars (5:48)
-04. New Moon (5:34)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Soulful HouseПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FA31756A75163483AF46F1638637B164500B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515702   (168777) от 08.12.2021
-
-VA - Life Is Better with Lounge (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mono tuned - Sizzling Hot (6:31)
-02. Duenec - Innuendo (5:46)
-03. Vostok Divers - A Slight Vestige (5:57)
-04. Prandtl - Dissolved Rage (6:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C47024AF6A8D983F5472B7F35688A418854F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515703   (168773) от 08.12.2021
-
-VA - Jazzy Weekend, Vol. 1 (2021) [AAC|~318 Kbps] <Chill Out, Lounge, Jazzy>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Just Some Little Jazz Vibes (Original Mix) (4:02)
-02. Lounge Groove Avenue - Diamonds (Original Mix) (2:36)
-03. El Scaparon - Te Falta un Beso (Original Mix) (2:52)
-04. Music Of The Earth - Jazz Skit Lick (Pearldiver Remix) (3:20)(   Читать дальше...   )Жанр: Chill Out, Lounge, JazzyПродолжительность: 02:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30D34C523DF30663CB07FBB09FD6776629C1F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515695   (168768) от 08.12.2021
-
-VA - The World Series of Chill Out, Vol. 2 (2021) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo, Trip Hop, New Age>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nale - Heaven (3:52)
-02. Vechigen - The Visitors (6:05)
-03. Aiemo, Miki Flores - Left With Silence (Vocal Mix) (3:11)
-04. Tim Angrave - Refined Interjection (6:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Trip Hop, New AgeПродолжительность: 01:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009BBB6A96E28A42684EDB08EA0F0CFAFCA47134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515694   (168763) от 08.12.2021
-
-VA - The World Series of Chill Out, Vol. 1 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo, Trip Hop, New Age>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Tom Club - Love to Love You Baby (Vavinchi Remix) (6:34)
-02. David K. - This City (Acoustic) (2:55)
-03. Simone Gatto, Merialma Colucci - Sarvesham svastir bhavatu mantra (3:23)
-04. Thomas Lemmer - Different World (3:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Trip Hop, New AgeПродолжительность: 01:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B362CFA6B5B5B0DB93B90D39558EB8F5CE3483B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515686   (168759) от 08.12.2021
-
-Schwarz & Funk - Back to the Beach (2019) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off the Shore (Beach House Mix) (6:04)
-02. Hang Out (Main Mix) (5:02)
-03. Voices (Beach House Mix) (6:24)
-04. Messin' Around (Beach House Mix) (5:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB77B2A11A2E4D779E5FBADCBE283EBBFDB9AEDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515699   (168757) от 08.12.2021
-
-VA - The World Series of Chill Out, Vol. 4 (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo, Trip Hop, New Age>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Rain - On the Other Side of the Soul (5:00)
-02. T2'n - Warp Molecular (4:10)
-03. Alexander Dancaless - Another (5:18)
-04. Leandro Fresco - Los Años Que Vivimos en Peligro (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Trip Hop, New AgeПродолжительность: 01:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6F18CAF88BEE447DC8CF0FAAF2AA967556524C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515697   (168726) от 08.12.2021
-
-VA - The World Series of Chill Out, Vol. 3 (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo, Trip Hop, New Age>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man In A Room, Sara Azrie - Brave This Moment (5:35)
-02. Twins In Mind - Floating Clouds (3:31)
-03. T2'n - Le Desert de Michat (3:58)
-04. Stuce The Sketch - Seventh Heaven (Acoustic) (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Trip Hop, New AgeПродолжительность: 01:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07ECEE6DADAAF567D2149996A2CD06055DC56BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515167   (168715) от 08.12.2021
-
-Marga Sol - Natural High (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unimaginable (5:25)
-02. Marga Sol, Digby Jones - What I Need (Original Mix) (4:38)
-03. Kisses in the Rain (4:00)
-04. Marga Sol, Hal McMiellen - My Catalyst (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21AE6148E58C3209CC57DACF25E150C1431893BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515692   (168711) от 08.12.2021
-
-The Best Of Chill Out Lounge - Winter Chillout Lounge 2021 (2021) [AAC|~307 Kbps] <Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Trance (3:40)
-02. Frozen Beach (3:44)
-03. Melting (3:40)
-04. Endless Chill Out Music (3:44)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D737D9F00ADE9A2B1B68164155B1A1C3587A1F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515688   (168710) от 08.12.2021
-
-Schwarz & Funk - Back to the Beach, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanished & Gone (Beach House Mix) (5:26)
-02. Nice (Beach House Mix) (4:43)
-03. Good Times (Beach House Mix) (6:30)
-04. Loungin' (Beach House Mix) (6:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF06C0EDA95D0F494DEE942A7FEEDDFEA6B3C4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515666   (168686) от 08.12.2021
-
-Project Blue Sun - Oriental Touch (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo, Chill House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Paradise (Original Mix) (4:42)
-02. Oriental Kiss (Original Mix) (3:23)
-03. Desert Caravan (Original Mix) (3:42)
-04. Voices of Eternity (3:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Chill HouseПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0170F5409BBEDA16C2F90DD233AC56A3CC8AFF
+magnet:?xt=urn:btih:B3EB7760867A4D798308F85DBBE331C5EE070D0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

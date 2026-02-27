@@ -1,22 +1,22 @@
-###  Публикация: 1389003   (785079) от 08.06.2020
+###  Публикация: 1123825   (785846) от 10.04.2017
 
-Мой папа – супергерой / Copperman (2019) BDRemux [H.264/1080p]
+Need for Speed: Undercover (2008) [Ru/Multi] (1.0.1.18/dlc) Repack ivandubskoj
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>След.
+>>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785079.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785846.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ансельмо — особенный. Уже взрослый мужчина, он смотрит на мир глазами ребенка и до сих пор верит, что отец, который когда-то оставил его, — супергерой. Ансельмо живет своей детской мечтой и однажды понимает: пришло время самому исполнить ее.Производство: Италия / Eliofilm, Notorious Pictures, Rai CinemaЖанр: МелодрамаРежиссер: Эрос ПульеллиАктеры: Лука Арджентеро, Антония Труппо, Галатеа Ранци, Джанлука Гобби, Томмазо Раньо, Себастьян Димулеску, Анджелика Белуччи, Гуальтьеро Бурци, Луис Мольтени, Паоло РоманоПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (Full), Итальянские (Full)Продолжительность: 01:40:07
+Кто бы мог подумать, что твоя жизнь обернется погоней, где ты - то дичь, то охотник. Садись за руль, чтобы внедриться в безжалостный международный преступный синдикат и обрушить его изнутри. Тот, кого ты преследуешь, - настоящий маньяк на колесах. Он гоняет, словно от этого зависит его жизнь, и, возможно, так оно и есть. У него ответы на все твои вопросы, и твоя (   Читать дальше...   )Тип издания: RepackРазработчик: EA Black BoxЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABCD0C5102CCB8CBF37C4A04DF17E8583EF76CBC
+magnet:?xt=urn:btih:A342085DDA195A239F3DA780A352C2703EB23F00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388787   (785078) от 08.06.2020
+###  Публикация: 1124114   (785845) от 10.04.2017
 
-Леонардо да Винчи. Неизведанные миры / Io, Leonardo (2019) BDRip [H.264/1080p]
+Navitel / Навител Навигатор v9.8.3 RePack для карт релиза Q1-2017 [Ru/En]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785078.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Путешествие в сознание Леонардо да Винчи, легенды мировой культуры, одного из самых удивительных гениев, каких знает история человечества, создателя «главной в мире картины» — «Моны Лизы». С помощью самых современных технологий в фильме воссоздаются великие произведения мастера.Производство: Италия / Progetto Immagine, Sky Arte HD, Comune di FirenzeЖанр: БиографияРежиссер: Хесус Гарсес ЛамбертАктеры: Лука Арджентеро, Анджела Фонтана, Массимо Де Лоренцо, Matt DeLuise, Франческо ПаннофиноПеревод: Профессиональный (многоголосый закадровый) (iTunes)Субтитры: Русские форсированныеПродолжительность: 01:26:04
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 09.04.2017Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский / Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:325CDCA189D375C62B5DBF9AA579E51709797CB2
+magnet:?xt=urn:btih:C4FB7F2D43D26C805698C76DABF28BE11855EA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,26 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388862   (785077) от 08.06.2020
+###  Публикация: 1124443   (785844) от 11.04.2017
 
-Футажи - Bounce Color - Aura Lens Flares 4K [MOV]
+Paul Bley - Live In Haarlem (1966) 1999, DA Music [FLAC|Lossless|image + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Футажи
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785077.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785844.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Блики Aura могут использоваться на последовательностях титров, в качестве переходов и могут работать поверх любого видео. Цвет также можно отрегулировать с помощью встроенного цветового инструмента. Есть много способов использовать данные световые эффекты, вы просто должны проявить творческий подход!
-Все блики сняты в разрешении 3840 x 2160 с использованием реальных (   Читать дальше...   )Формат: MOVРазрешение файлов: 3840x2160
+01.Blood [18:41]
+ 02.Mister Joy [23:53]Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:42:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4DD9F5A0D5A1E5CE36BFB301A016EE7D5786574
+magnet:?xt=urn:btih:302E913289D6E97CC9FB4E88E30DE3AF1FB12D7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,25 +77,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352324   (785076) от 08.06.2020
+###  Публикация: 1124280   (785843) от 11.04.2017
 
-VIP Notes 9.9.28 (Paid) [RU]
+Valery Ponomarev - The Messenger (2001) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Driving To A Gig II [06:15]
+ 02.Messenger From Russia [09:05]
+ 03.Long Distance Relationship [06:11]
+ 04.Escape From Gorki Park [09:43](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCBAE7BD5472BA685E7EAFC7B307BA2903A5316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124435   (785842) от 11.04.2017
+
+Johnnie Pate Trio - Complete Recordings 1955-1956 (2013) Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Oo, You're A Livin' Doll [02:10]
+ 02.Midnight Sun [03:12]
+ 03.Montoona [02:51]
+ 04.A Foggy Day [02:48](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024DE7037FCEA870505600BF0DEE0176F8BF85C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124505   (785841) от 11.04.2017
+
+Волейбол. Лига Чемпионов 2016-2017. Мужчины. Плей-офф-Раунд 12. 2-й матч. Динамо (Россия) — Аркас (Турция) (21.03.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785076.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785841.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Защищенный блокнот с вложениями.Тип издания: ПираткаРелиз состоялся: 08.06.2020Разработчик: Oleg RomantsevПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+21 марта 2017 года
+Лига Чемпионов 2016-2017. Мужчины. Плей-офф  «Раунд 12-ти». 2-й матч
+Динамо (Москва, Россия) — Аркас (Измир, Турция)
+Стадион:	СК Динамо (Москва, Россия), зрителей: 1900 (вместимость: 5000)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F93978DED96DF3FB64551912738E4D905BF54DD
+magnet:?xt=urn:btih:A7005F08F497D97D5F63479A0533C8591A231DD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -103,142 +164,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277667   (785075) от 21.01.2019
+###  Публикация: 1124503   (785840) от 11.04.2017
 
-Asphyxiate - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Feast Ripping Putrescent (3:57)
- 02. Sickening Canvas of the Dead (3:07)Жанр: Death MetalПродолжительность: 00:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6603456E1504D1044367565AF65658ECD8BD71A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277674   (785074) от 21.01.2019
-
-Deteriorate - Rotting in Hell (1993) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agonized Display (3:46)
- 02. A Thousand Years of Anguish (3:12)
- 03. Cannibal Autopsy (3:40)
- 04. Devoured (2:41)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3E967C64DBAB0C448612294769FCB8E5896D1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277673   (785073) от 21.01.2019
-
-Despondency - God on Acid (2003) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embodiment of a Failed Brood (3:52)
- 02. Fucked (5:00)
- 03. 9mm Headfuck (4:27)
- 04. God on Acid (4:30)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B726B4FCB7B201112E8E9DE30A6F1D1F6E01157E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277662   (785072) от 21.01.2019
-
-Orchidectomy - A Prelate's Attrition (2008) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Debridement (2:06)
- 02. Writhing in Psychotic Hysteria (2:30)
- 03. Fourth Blessed Gorge (2:59)
- 04. Procreate to Eviscerate (2:46)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFCB8B17DF28EDE0BBC3F91A0F1449DC482899C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277573   (785071) от 21.01.2019
-
-Eddie Gomez - Power Play (1988) Sony [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+Lou Donaldson - The Righteous Reed! The Best Of Poppa Lou (1967 - 1973) 1994, EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785071.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785840.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Power Play [5:40]
-02. Loco Motive [3:54]
-03. Spanish Flower [5:16]
-04. Mel [5:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:31
+01.Alligator Bogaloo [06:54]
+ 02.Rev. Moses [06:26]
+ 03.Peepin' [08:19]
+ 04.Midnight Creeper [06:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:16:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21FEB9744C41D6B4E6DEE5EE3BD150B0BB3249A4
+magnet:?xt=urn:btih:3AF826B68E985E0C0113B31CD4B026E81EB48993
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,57 +193,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277575   (785070) от 21.01.2019
+###  Публикация: 1124367   (785839) от 11.04.2017
 
-Ornette Coleman Trio - Live Manchester Free Trade Hall 1966 (2018) 2CD, Hi Hat [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785070.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. European Echoes [14:20]
-02. Unnamed [13:54]
-03. Unnamed [17:21]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0DCF3CC4C89A3FC16EC2B5007161E004001908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277675   (785069) от 21.01.2019
-
-Deteriorate - The Senectuous Entrance (1996) [FLAC|Lossless|tracks + .cue] <Death Metal>
+Taliandorogd - Neverplace (2002) [APE|Lossless|image + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785069.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Senectuous Entrance (2:53)
- 02. In the Presence of Eurus (3:55)
- 03. Xipe Totec (3:15)
- 04. Stealing Strength From the Ivory Boar (3:01)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:34
+01. De Profundis 02:21
+02. Progeny 04:39
+03. Utopia Sworn 05:25
+04. The Glimpse 07:29(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:31:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57221767CB27F99AC4F98B5F0F9DB7C5D882950B
+magnet:?xt=urn:btih:9ABAF866A9883AC6687B0E00CAECFFC2D3480190
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -304,26 +222,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277684   (785068) от 21.01.2019
+###  Публикация: 1124516   (785838) от 11.04.2017
 
-Guttural Disease - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death Metal>
+Волейбол. Лига Чемпионов 2016-2017. Мужчины. Плей-офф-Раунд 12. 2-й матч. ЗАКСА (Польша) — Белогорье (Россия) (22.03.2017) WEB-DL [H.264/720p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785068.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785838.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Asphyxiation Through Human Arteries (3:42)
- 02. Fermented Intestine Warfare (3:52)Жанр: Death MetalПродолжительность: 00:07:34
+22 марта 2017 года
+Лига Чемпионов 2016-2017. Мужчины. Плей-офф  «Раунд 12-ти».. 2-й матч
+ЗАКСА (Кендзежин-Козле, Польша) — Белогорье (Белгород, Россия)
+Стадион:	Дворец спорта "Кендзежин-Козле" (Кендзежин-Козле, Польша), 2700 зрителей(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:05:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B9456082F60FA1604C63433D92363D45091EBD4
+magnet:?xt=urn:btih:DE64BB05BA28521F0BDFF372D2CF4E9EB2B80FBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -331,28 +251,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277676   (785067) от 21.01.2019
+###  Публикация: 1124296   (785837) от 11.04.2017
 
-Lividity - The Age Of Clitoral Decay (2000) [FLAC|Lossless|tracks + .cue] <Death Metal>
+VA - Lounge Sensations Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785067.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785837.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oozing Vaginal Discharge (3:53)
- 02. The Urge to Splurge (1:38)
- 03. Chamber of Bone (4:28)
- 04. Anal Action Wife (4:39)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:52
+01.  Deeper Sublime - La Musica Sei Tu  5:58
+02.  Fade - Aguhja  7:06
+03.  Mark One - Out Of Touch  4:05
+04.  Marc Hartman - People Of Beijing  4:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33F3D01BE79BDD586300876DA087204AAE035BC2
+magnet:?xt=urn:btih:BB403258BC4DD24C84D0894CD9BD5F79B82A49D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,28 +280,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277665   (785066) от 21.01.2019
+###  Публикация: 1124308   (785836) от 11.04.2017
 
-Waking The Cadaver - Beyond Cops. Beyond God. (2010) [FLAC|Lossless|tracks + .cue] <Death Metal>
+VA - Lounge Expression. Chillout Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785066.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785836.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beyond Cops (3:56)
- 02. Reign Supreme (3:09)
- 03. Sadistic Tortures (5:02)
- 04. Made in Hell (3:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:28:36
+01. Rawback - Web Dream - Bunny Mix
+02. Inside Soul - Grassland - Rose Extended
+03. Roben Bucks - Falling Apart - Mirror Version
+04. Vintage Bullet - Dance Hole - Soul Cut(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4DB30FB134DCC6955B9B7978A69336057BECA2A
+magnet:?xt=urn:btih:0B8CA35134DBA3BE64130ABA154D534CA9B0C760
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,28 +309,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277669   (785065) от 21.01.2019
+###  Публикация: 1124429   (785835) от 11.04.2017
 
-Despondency - Revelation IV (Rise of the Nemesis) (2009) [FLAC|Lossless|tracks + .cue] <Death Metal>
+VA - Just Slow Music: 10 Exclusive Selected Electronic Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armanda Carlay - Paris - Dakar - Slow Beat Mix
+02. St. Robert - Inner Light
+03. Ann Carola - Feel the Presents
+04. Maya Girl - Rain Forrest(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93853DA05C9D34DAA1ECF352343FB31C918AF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124412   (785834) от 11.04.2017
+
+А. И. Лобачев | Против тьмы (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге освещается деятельность профсоюзов республик Средней Азии по утверждение социального равенства женщин в период построения социализма. Через призму критического осмысления опыта прошлых лет даются рекомендации по совершенствованию работ партийных, профсоюзных, государственных и хозяйственных органов среди женщин на современном этапе.Жанр: История, политология, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0195BE7946E5F7D39915F60C3755BD98487AE82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124538   (785833) от 11.04.2017
+
+Takeri - Imagination Vol. 7 (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785065.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785833.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Existence of Dismay (3:47)
- 02. Victimize Their Idols (4:55)
- 03. Invidious (4:56)
- 04. Rise of the Nemesis (5:40)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:17
+01. Above The Ocean (07:06)
+02. In The Quest Of An Angel (10:31)
+03. Sunrise (06:48)
+04. Beyond Reality (03:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CC8715DD7A79E6E33950E40F0D5BBBE38EB46FA
+magnet:?xt=urn:btih:F868F966AACB8A94E5C1F7EA222C3023FC42DA4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,25 +393,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277611   (785064) от 21.01.2019
+###  Публикация: 1124239   (785832) от 11.04.2017
 
-FSNotes 2.6.0 [En/Ru]
+QuickPhotos for Google 1.1.6 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785064.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785832.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский
+QuickPhotos for Google - это самый простой способ использования Google Фото на Mac.
+QuickPhotos for Google - это приложение для Mac, в котором пользователи могут загружать, просматривать и загружать фотографии в облаке Google. Это приложение даст вам быстрый доступ к вашим фотографиям Google в компактном макете приложения, откуда пользователи смогут загружать и загружать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04.04.2017Разработчик: AppEaseПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:117BB46776537B12748CF7253EACB443C63CAE88
+magnet:?xt=urn:btih:773CFAE75E6B795901A98374FD54EE5BD5D86A72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,25 +420,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277622   (785063) от 21.01.2019
+###  Публикация: 1124565   (785831) от 11.04.2017
 
-SQLPro Studio 1.0.335 [En]
+VA - Lone Scapes: Chillout and Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785063.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785831.jpg" />
 </div>
 
 
 ###  Подробнее
 
-QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и OracleТип издания: macOS SoftwareРелиз состоялся: январь 2019Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+01. Enrico Donner - Golfinhos
+02. Don Gorda Project - Greenwood
+03. Cane Garden Quartet - Erotisme
+04. Cane Garden Quartet - Into the Green(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D3F9B4E69E01D148360C6BB548200EBBC6213CF
+magnet:?xt=urn:btih:B61D183DEB1544385F43487E9F2DE753EE856EBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,28 +449,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277712   (785062) от 21.01.2019
+###  Публикация: 1124417   (785830) от 11.04.2017
 
-Flasher - Constant Image (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+VA - When The Sun Goes Down Vol.6 (Deep House Essentials) (2017) [MP3|320 Kbps] <House>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785062.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785830.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Go (01:41)
-02. Pressure (03:15)
-03. Sun Come And Golden (03:35)
-04. Material (03:46)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:16
+01.  Soap Bubbles - I Remember U & Me (Extended Mix)  5:13
+02.  Bildertal - Sunder Uul (Soundspretty Remix)  4:53
+03.  Sak Chaime - Swag (Extended Mix)  5:08
+04.  After Sunrise - Time To Chill  7:48(   Читать дальше...   )Жанр: HouseПродолжительность: 02:30:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03C2BFEC81EB770CBCB8BB2840B38FF3D65096C7
+magnet:?xt=urn:btih:A8CDC344706388AA0A39936F0E55AC2BB9952939
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,28 +478,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277604   (785061) от 21.01.2019
+###  Публикация: 1124438   (785829) от 11.04.2017
 
-Ari Brown - Groove Awakening (2013) Delmark [FLAC|Lossless|tracks + .cue] <Post-Bop>
+Chet Baker Quartet - Jazz At Ann Arbor (1954) 2002, Toshiba [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785061.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One For Ken [5:20]
-02. Groove Awakening [5:03]
-03. Enka [11:06]
-04. Veda's Dance [8:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:26
+01.Line For Lyons [07:33]
+ 02.Lover Man [06:00]
+ 03.My Funny Valentine [05:31]
+ 04.Maid In Mexico [05:17](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:46:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B8C97F966F49FEA0621F40753A15DCEFB15272A
+magnet:?xt=urn:btih:6DFE0DC210FD69115CC58DFEEA293BE799CED41B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,28 +507,201 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277651   (785060) от 21.01.2019
+###  Публикация: 1124442   (785828) от 11.04.2017
 
-myTracks 3.4.1 [Multi]
+Eric Alexander Trio - Just One Of Those Things (2016) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You'd Be So Nice To Come Home To [06:48]
+ 02.Just One Of Those Things [06:45]
+ 03.Wise One [06:20]
+ 04.Beautiful Love [06:48](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD52188211685F2D3CF63F8859F352E0A1CBACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124475   (785827) от 11.04.2017
+
+VA - Summer Dream Chill Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Peter Pearson - Feeling Free  6:03
+02.  Michael E - She's Hypnotic  5:27
+03.  Placid Larry - Mend  4:32
+04.  Lazy Hammock - Surround Me  5:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729CD9CD6F2B699CA229868180D60901035A4282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124522   (785826) от 11.04.2017
+
+Волейбол. Лига Чемпионов 2016-2017. Мужчины. Плей-офф-Раунд 12. 2-й матч. Зенит (Россия) — Кнак (Бельгия) (22.03.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785826.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 марта 2017 года
+Лига Чемпионов 2016-2017. Мужчины. Плей-офф  «Раунд 12-ти».. 2-й матч
+Зенит (Казань, Россия) — Кнак (Руселаре, Бельгия)
+Стадион:	Центр волейбола "Казань" (Казань, Россия), 3250 зрителей(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D19D783C7B2FD1F52C439B48E2970A472FEBBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124318   (785825) от 11.04.2017
+
+VA - Ibiza Night Tales: The Best of Mediterranean Chillout Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ambient Grooves - Sunset Beach Cruise  7:04
+02.  Exit Gravity - Late Night Fever  5:22
+03.  Wagu - Forms & Colours  4:45
+04.  Skye Dream - Ocean's 66  7:49(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D420B8CC9ED108A5C230D72F3CCE092859A81DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124345   (785824) от 11.04.2017
+
+VA - Essential Guide: Progressive Trance Vol.12 (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Axis - Daylily (Extended Mix)  5:24
+02.  Jens Jakob - Horizon (Original Mix)  8:58
+03.  Emanuele Braveri & Amo R - Mauna Kea (Original Mix)  6:03
+04.  Elitist - Again & Again (Original Mix)  6:17(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97D357D49786C92919E394E29F6EF58A9E83A92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124226   (785823) от 11.04.2017
+
+VA - Color Emotion Vocal In House (2017) [MP3|212-320 Kbps] <Vocal House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785823.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andrey Keyton, Sharapov - I Want Your Sou
+002. Beat Service Ft Ana Criado - An Autumn Tale
+003. BT & Senadee Feat. Dragon & Jontron - Lifeline
+004. David Guetta Vs Ryan Blyth - The World Is Mine(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 07:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4BC663D8CDC92451E5B2223D4828BC6886B80E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124541   (785822) от 11.04.2017
+
+NetWorker - Advanced Network Information App 3.0.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785060.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-myTracks — удобный геотаггинг фото
-myTracks — замечательная программа, которая будет полезна многим фотографам и путешественникам. С ее помощью можно легко загрузить ваши маршруты с большинства известных GPS-девайсов или просто из GPX-файла, и добавить геотаги к отснятым во время путешествия фотографиям.
+NetWorker отображает сетевую информацию в строке меню. В нем также есть окно, которое показывает дополнительную информацию о текущем активном сетевом адаптере.
 
-Кроме этого myTracks показывает проделанные маршруты на картах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: Dirk StichlingПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский, Датский и Японский
+ NetWorker: ● Полностью настраиваемый вид. Вы можете просматривать следующие свойства (поддерживаются загрузка и выгрузка): • Скорость • Ежедневный, месячный и общий трафик • График ● Текущий активный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.04.2017Разработчик: Sascha SimonПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0854B35FB97F72FAB2087EC3654BFEA5CBA29A34
+magnet:?xt=urn:btih:2C1ECB8F98CC66A2D04CBFB0827D93B90424F61F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,158 +709,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277743   (785059) от 21.01.2019
+###  Публикация: 1124572   (785821) от 11.04.2017
 
-VA - German Top 50 Party Schlager Charts 21.01.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+Craven Idol - The Shackles Of Mammon (2017) [MP3|320 Kbps] <Blackened Thrash Metal>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785059.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785821.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-02. Maite Kelly - Die Liebe Siegt Sowieso
-03. Andrea Berg - Ja Ich Will
-04. Kerstin Ott - Regenbogenfarben(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:59:23
+1. Pyromancer
+2. A Ripping Strike
+3. Black Flame Divination
+4. The Trudge(   Читать дальше...   )Жанр: Blackened Thrash MetalПродолжительность: 00:44:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:904A3C752ACE2E852C968F6C33A6A7CAA4657B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389014   (785058) от 08.06.2020
-
-Мой папа – супергерой / Copperman (2019) BDRip [H.264/720p] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ансельмо — особенный. Уже взрослый мужчина, он смотрит на мир глазами ребенка и до сих пор верит, что отец, который когда-то оставил его, — супергерой. Ансельмо живет своей детской мечтой и однажды понимает: пришло время самому исполнить ее.Производство: Италия, Eliofilm, Notorious Pictures, Rai CinemaЖанр: МелодрамаРежиссер: Эрос ПульеллиАктеры: Лука Арджентеро, Антония Труппо, Галатеа Ранци, Джанлука Гобби, Томмазо Раньо, Себастьян Димулеску, Анджелика Белуччи, Гуальтьеро Бурци, Луис Мольтени, Паоло РоманоПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (Full), ИтальянскиеПродолжительность: 01:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F387DEF1C4E1D5F38AB0EE5E54A07FDE8754340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388817   (785057) от 08.06.2020
-
-Псы 3: Во имя правил / Psy 3: W imie zasad (2020) HDRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давно знакомый герой культовой саги о полицейских и сотрудниках Службы Безопасности, Франс Маурер выходит на свободу после 25 лет в заключении. Страна изменилась до неузнаваемости, а вместе с ней - сменились и враги...Производство: Польша / Wonder Studio, Polsat, Cyfrowy PolsatЖанр: Боевик, драма, криминалРежиссер: Владислав ПасиковскийАктеры: Богуслав Линда, Марчин Дорочиньский, Цезарий Пазура, Ян Фрыч, Себастьян Фабияньский, Томаш Шухардт, Мирослав Бака, Доминика Вало, Артур Жмиевски, Войцех ЗилинскиПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 02:04:58Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE234923E01B1913C2E0F2110A4E9811ED61ABFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388849   (785056) от 08.06.2020
-
-Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack xatab (обновляемая)
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в 1940-е годы. В Европе бушует война, США готовится вступить в бой, а бандиты обстряпывают свои делишки, как и всегда. Но сейчас они зашли слишком далеко даже по меркам Винни. Вы сделали шокирующее открытие о том, что же на самом деле случилось в последней сцене из Guns, Gore & Cannoli 1 — бойни в городе бандитов, — а теперь вам надо отправляться (   Читать дальше...   )Тип издания: RepackРазработчик: Crazy Monkey Studios, ClaeysbrothersЖанр: Arcade, Indie, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20372E4EA90F20FBD5DD82F3CD4D90A84048A9BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373184   (785055) от 08.06.2020
-
-Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Eternity and the Auto Memories Doll | Виолетта Эвергарден: Вечность и призрак пера [2019, Movie] BDRemux 1080p raw+rus
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785055.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Виолетта Эвергарден: Вечность и призрак пера» изображает жизнь Изабеллы Йорк, благородной девушки и наследницы дома Йорков, которая вынуждена своим отцом посещать школу для привилегированных молодых особ. Несмотря на внешнюю красоту школы, она для неё не более чем тюрьма, потому что она задыхается в её стенах. Потеряв всякую надежду, она встречает Вайолет Эвергарден, (   Читать дальше...   )Производство: Kyoto AnimationЖанр: ПриключенияРежиссер: Фудзита ХарукаЯзык озвучки: Японский и русскийСубтитры: ОтсутствуютПродолжительность: 95 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877643064085A3DD96F7A4D8F41867C7BFC47491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363555   (785054) от 08.06.2020
-
-Одинокие родители / Single Parents (2019) WEB-DL [H.264/720p] (сезон 2, серии 1-22 из 22) FOX Life
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уиллу немного за тридцать, и он в одиночку воспитывает прекрасную семилетнюю дочь. Он настолько глубоко погрузился в роль родителя, что совершенно забыл о том, какой он человек. Именно в это время он знакомится с другими героями сериала «Родители-одиночки»: с людьми, которые понимают его, готовы поддержать, помогут найти потерянную идентичность и наладить личную (   Читать дальше...   )Производство: США / Twentieth Century Fox Film CorporationЖанр: КомедияРежиссер: Эрин О’Мэлли, Джейсон Уайнер, Кэт КойроАктеры: Таран Киллэм, Лейтон Мистер, Кимри Льюис-Дэвис, Джейк Чои, Марлоу Барклей, Тайлер Владис, Миа Аллан, Элла Аллан, Девин Трей Кэмпбелл, Брэд Гэррет и др.Перевод: Многоголосый профессиональный (FOX Life)Субтитры: английские (full, SDH)Продолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF335106C9BBBF6DEFB153261DFC142CC5D4A301
+magnet:?xt=urn:btih:D5D121ED1D124E22793B515E6321D4CD3AE14624
 ```
 
 https://mybot314.ru/tekegram_catalog/

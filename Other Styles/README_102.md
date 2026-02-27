@@ -1,3 +1,67 @@
+###  Публикация: 526752   (595523) от 25.07.2012
+
+Andres Segovia - Collections 2 альбома - 6CD (1994 - 1998) [APE|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_595523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recuerdos de la Alhambra (F.Tarrega)    [03:23]
+02. Granada de la suite espaсola N1 (I Albeniz)    [04:21]
+03. Danza espaсola N5 en si menos op 37 (E Granados)    [04:31]
+04. Alegretto de sonatina en do mayor (Moreno Torroba)    [03:19]
+05. Preludio (Moreno Torroba)    [01:54.71]
+06. Sevilla de la suite espaсola N6 (I.Albeniz)    [04:18.21]
+07. Variaciones y fuga de cosas de espaсa (Manuel Ponce)    [14:35]
+08. Fandanguillo de la suite castellana(Moreno Torroba)    [01:59]
+09. Nocturno (Moreno Torroba)    [03:08]
+10. Fandanguillo (J Turina)    [03:57]Жанр: Classical GuitarПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548349   (594731) от 05.05.2022
+
+Paddy and the Rats - From Wasteland to Wonderland (2022) [MP3|320 Kbps] <Folk Punk, Sailor Punk, Celtic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasteland [00:03:40]
+02. Ship Will Sail [00:03:40]
+03. Party Like a Pirate [00:02:43]
+04. After the Rain [00:03:27](   Читать дальше...   )Жанр: Folk Punk, Sailor Punk, CelticПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F1EE339740FB671B46B4DBB47D271B2E777197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039543   (594560) от 02.08.2016
 
 Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
@@ -687,64 +751,6 @@ Amaru Tribe - Between Two Worlds (2022) [MP3|320 Kbps] <Folktronica, World, Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71F1D0E02C53A721BF92D4ABD633DE55AE74D803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552255   (587626) от 20.05.2022
-
-Giovanni Marradi - The Best of Giovanni (2008) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Whiter Shade of Pale (4:17)
-02. Summmertime (3:53)
-03. Fuga in Bb Minor (2:35)
-04. Nocturnes (3:12)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE0D41720921B531CEA789DDB8E45C0A59DDB3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 56825   (587494) от 20.05.2022
-
-Vangelis - 11 альбомов (1971-2003) [FLAС|APE|Lossless|image, tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ванге́лис (греч. Βαγγέλης, англ. Vangelis, полное имя Эва́нгелос Одиссе́ас Папатанаси́у, греч. Ευάγγελος Οδυσσέας Παπαθανασίου; род. 29 марта 1943, Волос) — греческий (   Читать дальше...   )Список альбомов:
-1971 - Fais Que Ton Reve Soit plus Long Que La Nuit
-1971 - The Dragon
-1977 - Ignacio(   Читать дальше...   )Жанр: New AgeПродолжительность: 09:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56F22EFD9E261483613E0B2C2ECE5CD70243214F
 ```
 
 https://mybot314.ru/tekegram_catalog/

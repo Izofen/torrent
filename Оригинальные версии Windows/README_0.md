@@ -483,33 +483,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 252255   (973934) от 09.01.2014
-
-Windows 7 Enterprise х64 (90-day Trial Technet) ENG
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Windows 7 Enterprise — это выпуск Windows 7, в котором реализованы уникальные технологии, ориентированные на нужды корпоративных клиентов. Windows 7 Enterprise доступна исключительно клиентам, купившим Software Assurance для операционной системы. Помимо функций Windows 7 Professional, заказчики Windows 7 Enterprise получают дополнительные инструменты призванные обеспечить пользователю плодотворную работу в офисе и за его пределами, улучшить безопасность, повысить контроль и сделать администрирование ПК более простым и гибким.
-Основные отличительные черты ОС Windows 7 Enterprise:Язык интерфейса: English
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 857041   (954286) от 07.01.2015
 
 Windows Embedded 8.1 with Update [November 2014] - Оригинальные образы от Microsoft MSDN [Ukr]
@@ -688,6 +661,33 @@ Microsoft Windows 10.0.17763.2114, Version 1809 (Updated August 2021) - Ориг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24AD3400E0C3E8196F1DDC8C4F77B9CD8EF478D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489846   (923441) от 17.08.2021
+
+Microsoft Windows 10.0.19042.1165, Version 20H2 (Updated August 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1165.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FD1DDBD7D0FF26A01BD04D5B440D85CDFA6FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,54 +1,25 @@
-###  Публикация: 957157   (327367) от 17.11.2015
+###  Публикация: 1536406   (244155) от 12.03.2022
 
-Ludovico Einaudi - Elements (2015) Deluxe Version [AAC|256 кб/с|WEB]<Modern Classical, Piano>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ludovico Einaudi & Daniel Hope - Petricor (6:35)
- 02. Ludovico Einaudi & Amsterdam Sinfonietta - Night (5:31)
- 03. Ludovico Einaudi - Drop (5:00)
- 04. Ludovico Einaudi & Amsterdam Sinfonietta - Four Dimensions (4:42)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 01:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0C2835E479D5E8D4162038D1CD1CD2515F4E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957168   (327335) от 17.11.2015
-
-Lindsey Stirling - Shatter Me (2014) [AAC|256 кб/с|WEB]<Classical Crossover, Electronic, Instrumental>
+VA - Fresh Vibes: Urban Chillout Music (2022) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327335.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beyond The Veil (04:15)
- 02. Mirror Haus (03:56)
- 03. V-Pop (03:46)
- 04. Shatter Me (feat. Lzzy Hale) (04:41)(   Читать дальше...   )Жанр: Classical Crossover, Electronic, InstrumentalПродолжительность: 00:46:14
+01. Firas Tarhini - Apricity (Original Mix) (4:17)
+02. SoulAvenue - Swept Away (Original Mix) (4:54)
+03. Lazygrooves - Walk with Me (Original Mix) (5:19)
+04. Mission Brown - Same Old Temptations (Original Mix) (4:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:10:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E0F83AC1C437F37852F05D345E008463F791281
+magnet:?xt=urn:btih:1D8630166B733AA772AD8A80BD47F9EA21B3DA6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,54 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 957385   (327284) от 17.11.2015
+###  Публикация: 1536442   (244130) от 12.03.2022
 
-Человек-муравей / Ant-Man (2015) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вооружившись удивительной способностью уменьшаться в размере, но обладать при этом большой силой, мошенник Скотт Лэнг должен стать героем и помочь своему наставнику, доктору Хэнку Пиму, сохранить в тайне существование костюма Человека-муравья от угроз нового поколения.Производство: СШАЖанр: Фантастика, боевик, комедия, приключенияРежиссер: Пейтон РидАктеры: Пол Радд, Майкл Дуглас, Эванджелин Лилли, Кори Столл, Майкл Пенья, Бобби Каннавале, Ти-Ай, Давид Дастмалчян, Эбби Райдер Фортсон, Джуди ГрирПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  Английские (полные, отключаемые)Продолжительность: 01:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC75357A7518C473B0FB8DAE02C3F334D3DE302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957703   (326587) от 18.11.2015
-
-Rammstein - Herzeleid (1995) [AAC|256 кб/с|WEB]<Metal, Industrial>
+VA - Il Caffe Italiano Rimini (Italian Lounge Espresso Music) (2022) [AAC|~316 Kbps] <Nu Jazz, Pop, Lounge>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326587.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_244130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wollt Ihr Das Bett In Flammen Sehen (05:17)
- 02. Der Meister (04:11)
- 03. Weisses Fleisch (03:36)
- 04. Asche Zu Asche (03:52)(   Читать дальше...   )Жанр: Metal, IndustrialПродолжительность: 00:49:27
+01. Melania, Christian Lisi - Ma Che Bella Compagnia (3:02)
+02. D'Andy, Bodyles, Paola Iezzi - Balla balla ballerino (4:32)
+03. Papik, Alan Scaffardi - Canzoni Stonate (4:00)
+04. David Florio - Doce Doce (4:53)(   Читать дальше...   )Жанр: Nu Jazz, Pop, LoungeПродолжительность: 01:46:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61F43D0CD1D2EBC6B3A6CF38027CF51118773830
+magnet:?xt=urn:btih:F2F944BCE7709E8D3D4E26A35E8EF66A95C07920
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 957706   (326543) от 18.11.2015
+###  Публикация: 1537367   (243953) от 17.03.2022
 
-Rammstein - Reise, Reise (2004) [AAC|256 кб/с|WEB]<Metal, Industrial>
+VA - Hangover Lounge Grooves, Vol. 6 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326543.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Reise, Reise (04:11)
- 02. Mein Teil (04:32)
- 03. Dalai Lama (05:39)
- 04. Keine Lust (03:43)(   Читать дальше...   )Жанр: Metal, IndustrialПродолжительность: 00:47:46
+01. Project Blue Sun - Just for Now (5:30)
+02. Simon Le Grec - I Need U (5:46)
+03. Tim Angrave - Refined Interjection (6:41)
+04. Man In A Room, CIVILIAN - Night Mail (5:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:38:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A83FC884F3B899741419804083FCDD92D908A386
+magnet:?xt=urn:btih:F1F4F55FB8954743B6FE725AFEBB877C2BFFFA8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 957704   (326467) от 18.11.2015
+###  Публикация: 1537371   (243927) от 17.03.2022
 
-Rammstein - Sehnsucht (1997) [AAC|256 кб/с|WEB]<Metal, Industrial>
+Lyre le temps - Lady Swing (2010) [AAC|~278 Kbps] <Electro Swing, Hip Hop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326467.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sehnsucht (04:06)
- 02. Engel (04:26)
- 03. Tier (03:48)
- 04. Bestrafe Mich (03:38)(   Читать дальше...   )Жанр: Metal, IndustrialПродолжительность: 00:43:43
+01. Lady Swing (Intro) (0:18)
+02. About the Trauma Drum (4:24)
+03. Against the Grain (4:10)
+04. Go Down (4:29)(   Читать дальше...   )Жанр: Electro Swing, Hip HopПродолжительность: 00:49:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:180B50BE696342AB96247FB5F005DDADA606D6A5
+magnet:?xt=urn:btih:C8B3937EE685542CD0D0ECF261B0109C79C3F971
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 957708   (326400) от 18.11.2015
+###  Публикация: 1537360   (243921) от 17.03.2022
 
-Rammstein - Liebe ist fur alle da (2009) [AAC|256 кб/с|WEB]<Metal, Industrial>
+VA - Hangover Lounge Grooves, Vol. 4 (2013) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326400.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rammlied (05:19)
- 02. Ich Tu Dir Weh (05:02)
- 03. Waidmanns Heil (03:33)
- 04. Haifisch (03:45)(   Читать дальше...   )Жанр: Metal, IndustrialПродолжительность: 00:52:31
+01. Simon Le Grec, Kelly Johnson - Tell Me What Love Can Do (5:25)
+02. Lemongrass, Jane Maximova - Riddle (4:28)
+03. Cardinal Zen - Summer Solstice (4:48)
+04. Ilirjan Guri - Ancient Love (4:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:11:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E659DCEEA227DE526036E5EA895425005D8B30C6
+magnet:?xt=urn:btih:96D6E5C91606997BD1854364ADEFCC54675A6DA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 957707   (326398) от 18.11.2015
+###  Публикация: 1537376   (243915) от 17.03.2022
 
-Rammstein - Rosenrot (2005) [AAC|256 кб/с|WEB]<Metal, Industrial>
+Lyre le temps - Clock Master (2019) [AAC|~333 Kbps] <Electro Swing, Hip Hop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326398.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243915.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Benzin (03:46)
- 02. Mann Gegen Mann (03:51)
- 03. Rosenrot (03:55)
- 04. Spring (05:25)(   Читать дальше...   )Жанр: Metal, IndustrialПродолжительность: 00:51:45
+01. Sad Swing (3:12)
+02. Time Train (3:12)
+03. Brokopoly (2:17)
+04. Nanana (2:52)(   Читать дальше...   )Жанр: Electro Swing, Hip HopПродолжительность: 00:38:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C1C1A2B7F9BECEF802DDD31BB75A39C257B3EA6
+magnet:?xt=urn:btih:A69A93AA9B0614272430B05DA83DA648E335AC42
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 957712   (326389) от 18.11.2015
+###  Публикация: 1537370   (243906) от 17.03.2022
 
-Rammstein - Made in Germany (1995-2011) (2011) Special Version [AAC|256 кб/с|WEB]<Metal, Industrial>
+VA - Hangover Lounge Grooves, Vol. 7 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326389.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1-01. Engel (04:23)
- 1-02. Links 2 3 4 (03:40)
- 1-03. Keine Lust 03:42)
- 1-04. Mein Teil (04:38)(   Читать дальше...   )Жанр: Metal, IndustrialПродолжительность: 02:26:11
+01. Chris Gusella - Intro Cayo Blanco (1:25)
+02. 351 Lake Shore Drive, J'Unique - XTC (5:30)
+03. Simon Le Grec - Betrayed (The Day After) (4:23)
+04. Man In A Room, Natasha Tsirou - Marveland (5:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:33:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77082476198BD104FE20F0F129AF551CA8677AE9
+magnet:?xt=urn:btih:97C5D487A62A9F2F46DB99F304A55F449C003E7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,54 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 957850   (325794) от 19.11.2015
+###  Публикация: 1537552   (243897) от 17.03.2022
 
-Человек-муравей / Ant-Man (2015) WEB-DLRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вооружившись удивительной способностью уменьшаться в размере, но обладать при этом большой силой, мошенник Скотт Лэнг должен стать героем и помочь своему наставнику, доктору Хэнку Пиму, сохранить в тайне существование костюма Человека-муравья от угроз нового поколения.Производство: СШАЖанр: Фантастика, боевик, комедия, приключенияРежиссер: Пейтон РидАктеры: Пол Радд, Майкл Дуглас, Эванджелин Лилли, Кори Столл, Майкл Пенья, Бобби Каннавале, Ти-Ай, Давид Дастмалчян, Эбби Райдер Фортсон, Джуди ГрирПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  Английские (полные, отключаемые)Продолжительность: 01:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F644D71F78CFD1208D519DB692E0ACDE3EC159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957705   (325540) от 19.11.2015
-
-Rammstein - Mutter (Double CD Tour Edition) (2001) [AAC|256 кб/с|WEB]<Metal, Industrial>
+VA - This Is Chillout Jazz, Vol. 3 (Cool Jazzy Sounds in a Lounge Mood) (2015) [AAC|~331 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325540.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1-01. Mein Herz Brennt (04:40)
- 1-02. Links 2 3 4 (03:37)
- 1-03. Sonne (04:33)
- 1-04. Ich Will (03:38)(   Читать дальше...   )Жанр: Metal, IndustrialПродолжительность: 01:04:03
+01. Duran Y Garcia - Un peu de jazz (5:27)
+02. Sugarpie And The Candymen - Drive My Car (2:18)
+03. JBx Project - Samba da Palma (5:07)
+04. Italian Secret Service - Not the Same (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:45:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4619B96E8CFCA4E137A2921CD7B060CD6BFDDAB5
+magnet:?xt=urn:btih:AF4C1E98C7A3C9D326381B0152DE5A87D6693DA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958121   (324826) от 20.11.2015
+###  Публикация: 1537675   (243889) от 17.03.2022
 
-Enya - Dark Sky Island (2015) Deluxe [AAC|256 кб/с]<New Age, Ambient, Pop>
+VA - Loungerie (25 Amazing Lounge Tunes), Vol. 1 (2017) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324826.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Humming…
-2. So I Could Find My Way
-3. Even in the Shadows
-4. Forge of the Angels(   Читать дальше...   )Жанр: New Age, Ambient, PopПродолжительность: 00:54:38
+01. Florent Campana, Rochelle - Ballerina Footprints (2:59)
+02. Dee C'rell - The Fool And The Thief (5:28)
+03. Newton - Unbearable Lightness Of Beeing (4:45)
+04. Velvet Dreamer, Tim Gelo - Time Together (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:57:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82DBA1FDE293DD5BF435F566B4DC76775FDEC1EC
+magnet:?xt=urn:btih:9DA072B448C4F2FFDA87DD1E65ED2085D35B540B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 957989   (324780) от 20.11.2015
+###  Публикация: 1537374   (243882) от 17.03.2022
 
-Flume - Flume (2013) Deluxe Edition [AAC|256 кб/с]<Electronic, Future Bass>
+Lyre le temps - Prohibition Swing (2016) [AAC|~185 Kbps] <Electro Swing, Hip Hop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324780.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1
-    01. Sintra (2:35)
-    02. Holdin On (2:34)
-    03. Left Alone (feat. Chet Faker) (3:30)(   Читать дальше...   )Жанр: Electronic, Future BassПродолжительность: 01:55:03
+01. Prohibition Swing (3:10)
+02. The Game (3:09)
+03. The Mask (3:08)
+04. Violetta Swing (2:36)(   Читать дальше...   )Жанр: Electro Swing, Hip HopПродолжительность: 00:32:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C53E6A6DA0D99132B5C128FBA9CA499861068118
+magnet:?xt=urn:btih:AA1111400573EE9C1A44AD93DDA4AC958F98F8E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,184 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958293   (324779) от 20.11.2015
+###  Публикация: 1537357   (243872) от 17.03.2022
 
-Дама в очках и с ружьем в автомобиле / La dame dans l'auto avec des lunettes et un fusil (2015) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она самая прекрасная, самая чувственная, самая импульсивная, самая упрямая, самая незадачливая девушка. Она хотела воплотить мечту и увидеть море, а в результате попала в невероятную переделку. В чужом автомобиле и с трупом в багажнике, скрываясь от полиции и рискуя собственной жизнью, ей осталось только одно — убедить себя в том, что она еще не окончательно сошла (   Читать дальше...   )Производство: Франция, БельгияЖанр: ТриллерРежиссер: Жоанн СфарАктеры: Фрейя Мавор, Бенжамин Биолэй, Элио Джермано, Стэйси Мартин, Тьерри Анкиссе, Сандрин Ларош, Фредерик Этерлинк, Ален Белло, Эдуар Жиар, Франсуа-Доминик БленПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5FE40716C6F39E485AE79AD0A789C87647669E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843511   (324665) от 22.11.2014
-
-Отважная / Mardaani (2014) BDRip [720p] ATV [VO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старший инспектор отдела полиции Мумбаи по борьбе с организованной преступностью Шивани Шиваджи Рой наделена безграничной отвагой и неподкупностью. Глава мафии, специализирующейся на торговле детьми совершает ошибку - похищает девочку-подростка Пьяри, торгующую цветами на улице, которая очень дорога семье Шивани, где к ней относятся как к дочери. Когда Пьяри не появляется (   Читать дальше...   )Производство: Индия, Yash Raj FilmsЖанр: боевик, триллер, драма, криминалРежиссер: Прадип СаркарАктеры: Рани Мукхерджи, Тахир Радж Бхасин, Джишу Сенгупта, Санджай Танеджа, Анил ДжорджПеревод: Любительский одноголосыйСубтитры: АнглийскиеПродолжительность: 01:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB4859EE23A78DFE42FB8A1EE91B6658810E03D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958562   (323780) от 21.11.2015
-
-Скорость: Автобус 657 / Heist (2015) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все знают, что обокрасть Фрэнка Поупа, владельца казино и босса мафии — это самоубийство. Но однажды некогда преданный ему крупье решается вынести из кассы казино несколько миллионов долларов. Все было продумано, но план не сработал. Скрываясь с места преступления, грабители захватывают автобус, полный заложников. На бешеной скорости автобус мчится к мексиканской (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллерРежиссер: Скотт МаннАктеры: Джеффри Дин Морган, Роберт Де Ниро, Кейт Босворт, Дэйв Батиста, Джина Карано, Марк-Пол Госселаар, Моррис Честнат, Саммер Элтис, Д.Б. Суини, Джошуа МикельПеревод: ДублированныйСубтитры: Английские (полные, отключаемые)Продолжительность: 01:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26AF969AD36B053D4E0ABB448C178F54DE4FD7A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958540   (323765) от 21.11.2015
-
-Скорость: Автобус 657 / Heist (2015) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все знают, что обокрасть Фрэнка Поупа, владельца казино и босса мафии — это самоубийство. Но однажды некогда преданный ему крупье решается вынести из кассы казино несколько миллионов долларов. Все было продумано, но план не сработал. Скрываясь с места преступления, грабители захватывают автобус, полный заложников. На бешеной скорости автобус мчится к мексиканской (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллерРежиссер: Скотт МаннАктеры: Джеффри Дин Морган, Роберт Де Ниро, Кейт Босворт, Дэйв Батиста, Джина Карано, Марк-Пол Госселаар, Моррис Честнат, Саммер Элтис, Д.Б. Суини, Джошуа МикельПеревод: ДублированныйСубтитры: Английские (полные, отключаемые)Продолжительность: 01:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3483F0E406BE74D197A59D44A9956F1FE1D0811C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181397   (323496) от 07.11.2017
-
-На глубине 6 футов / 6 Below: Miracle on the Mountain (2017) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323496.jpg" />
-</div>
-
-
-###  Подробнее
-
-После окончания блестящей спортивной карьеры Эрик Лемарк, олимпийский чемпион мира по хоккею, уже не может жить без адреналина. Теперь драйв он находит в наркотиках и сноуборде. Когда лыжный патруль в горах Маммос (Калифорния) закрывает все трассы из-за надвигающейся бури, Лемарк решает сделать последний спуск и оказывается в смертельной снежной западне…Производство: СШАЖанр: Триллер, драма, приключения, биографияРежиссер: Скотт ВоАктеры: Джош Хартнетт, Мира Сорвино, Сара Дюмон, Кейл Калли, Джейсон Коттл, Остин Р. Грант, Нэйтан Стивенс, Марти МакСорели, Шон Пильц, Ваши НедоманскиПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3256F4B7FBD7487113C17C19B8EBC5D10E0814E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259088   (323262) от 02.11.2018
-
-Джим Пуговка и машинист Лукас / Jim Knopf und Lukas der Lokomotivführer (2018) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебная страна Медландия расположена на острове. Сюда почтальон доставляет посылку c маленьким мальчиком. Он вырастает в храброго искателя приключений. На поезде-вездеходе Джим отправляется через океан и пустыню в город Драконов, чтобы спасти принцессу.Производство: ГерманияЖанр: Фэнтези, приключения, семейныйРежиссер: Деннис ГанзельАктеры: Хеннинг Баум, Соломон Гордон, Ширли МакЛейн, Милан Пешель, Михаэль Хербиг, Кристоф Мария Хербст, Уве Оксенкнехт, Аннета Фрир, Фолькер Михаловски, Хон Пинг ТангПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8BEBE0E2C8ED82EC06FADD799537E1A05193C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421013   (322341) от 03.11.2020
-
-Snowgoose - The Making Of You (2020) [AAC|~320 Kbps] <Folk, Rock>
+VA - Hangover Lounge Grooves, Vol. 1 (2012) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322341.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Everything (5:01)
-02. Who Will You Choose (3:50)
-03. Hope (3:30)
-04. The Making Of You (4:01)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:38:23
+01. Johannes Huppertz, Twila.too - Sapristi (4:48)
+02. Fenena Mijas, Sandrina Middleton - All I've Got (Hotel Balearic Mix) (5:09)
+03. Simon Le Grec - Broken Hearts (Sensual Mix) (5:07)
+04. Aimée Sol, Jamie Fishburn - Walls (Cafe Ibiza Edit) (4:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:16:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F53E345FDADAF00DCF276D18DBFC32C43908B45
+magnet:?xt=urn:btih:3777C5431F33F05480FA13722D53BC1E2483EA45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421014   (322282) от 03.11.2020
+###  Публикация: 1536709   (243856) от 17.03.2022
 
-VA - Acoustic Classic Rock Covers (2020) [AAC|~312 Kbps] <Rock>
+VA - Il Caffe Italiano Firenze (Italian Lounge Espresso Music) (2016) [AAC|~318 Kbps] <Jazz, Nu Jazz, Lounge>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322282.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shannon & Keast - Free Fallin’ (4:18)
-02. Meg Birch - Never Tear Us Apart (3:02)
-03. Karizma Duo - Somebody Told Me (3:36)
-04. Thom Cooper - Sex on Fire (3:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:21
+01. Cocktail Martino, Fred Buccini - Se mai (Smile) (3:19)
+02. Paolo Di Sabatino, Fabio Concato - Cosa ne Sara' (4:09)
+03. Matteo Brancaleoni - Il Mondo (3:14)
+04. Dagmar's Collective - Un giorno che non va (3:30)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:38:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6AB0B94E5B65304417A93913EA0EA2BF8813A01
+magnet:?xt=urn:btih:799206FE586F5FE7606CD60F358E7FCE23FF4FAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421138   (322224) от 03.11.2020
+###  Публикация: 1537358   (243845) от 17.03.2022
 
-Joe Bonamassa - Royal Tea (2020) [AAC|~338 Kbps] <Rock, Blues>
+VA - Hangover Lounge Grooves, Vol. 2 (2012) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322224.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When One Door Opens (7:35)
-02. Royal Tea (4:29)
-03. Why Does It Take So Long To Say Goodbye (6:45)
-04. Lookout Man! (5:31)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:03:06
+01. Raffunk, Gushi - What Should I Care (5:12)
+02. Marga Sol - Tocca Me (4:27)
+03. Newton, Jana Tarasenko - The Right Time (Vocal Version) (4:01)
+04. Michael e - Aha (5:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:28:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:799BAFC3A64CE560DDEF306EFC7C436C322261E7
+magnet:?xt=urn:btih:0883F215A5582882FD806E58A81C4B4BA1338953
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421031   (321672) от 03.11.2020
+###  Публикация: 1537697   (243821) от 18.03.2022
 
-AC/DC - POWER UP (2020) [AAC|~354 Kbps] <Hard Rock>
+VA - Chillax (20 Chill-Out Tunes), Vol. 3 (2017) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321672.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243821.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Realize (3:37)
-02. Rejection (4:06)
-03. Shot in the Dark (3:05)
-04. Through the Mists of Time (3:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:07
+01. Peter Pearson - Silken Skies (5:47)
+02. Lemongrass - Love Is The Answer (4:33)
+03. Eskadet - Inaccessible (7:36)
+04. Ingo Herrmann - Lost In Space (3:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:32:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6E1FDC9C89BF480BE56442EA2D630337D780ED9
+magnet:?xt=urn:btih:467E27898712C4C4ED68DD8C9F28B6DC14FAA0AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,25 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958813   (321622) от 22.11.2015
+###  Публикация: 1537701   (243805) от 18.03.2022
 
-Дама в очках и с ружьем в автомобиле / La dame dans l'auto avec des lunettes et un fusil (2015) WEB-DL [720p] ATV
+VA - Chillax (20 Chill-Out Tunes), Vol. 4 (2018) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321622.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Она самая прекрасная, самая чувственная, самая импульсивная, самая упрямая, самая незадачливая девушка. Она хотела воплотить мечту и увидеть море, а в результате попала в невероятную переделку. В чужом автомобиле и с трупом в багажнике, скрываясь от полиции и рискуя собственной жизнью, ей осталось только одно — убедить себя в том, что она еще не окончательно сошла (   Читать дальше...   )Производство: Франция, БельгияЖанр: ТриллерРежиссер: Жоанн СфарАктеры: Фрейя Мавор, Бенжамин Биолэй, Элио Джермано, Стэйси Мартин, Тьерри Анкиссе, Сандрин Ларош, Фредерик Этерлинк, Ален Белло, Эдуар Жиар, Франсуа-Доминик БленПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:34:48
+01. Living Room - My William (4:40)
+02. Lemongrass, Jane Maximova - Deep River (Stuce The Sketch Remix) (6:06)
+03. Eskadet - Meander (6:24)
+04. Ingo Herrmann - Skyway (2:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:37:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E94AEA5693A46FDF8ACA21D4995C309042DA6FF
+magnet:?xt=urn:btih:0367E6A4F7DF4D1D3A6890A942DCA284A889760A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,25 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259298   (321254) от 03.11.2018
+###  Публикация: 1537681   (243800) от 18.03.2022
 
-Лондонские поля / London Fields (2018) WEB-DL [720p] ATV
+VA - Loungerie (25 Amazing Lounge Tunes), Vol. 3 (2017) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321254.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243800.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Никола Сикс, роковая красотка, обладающая даром ясновидения, живет с предчувствием своей скорой смерти. Не удержавшись, она начинает опасный любовный роман сразу с тремя совершено разными мужчинами, хотя Никола точно знает, что один из них вскоре станет её убийцей…Производство: СШАЖанр: Триллер, криминал, детективРежиссер: Мэтью КалленАктеры: Эмбер Хёрд, Джим Стёрджесс, Тео Джеймс, Билли Боб Торнтон, Джейми Александер, Кара Делевинь, Джемма Чан, Джейсон Айзекс, Лили Коул, Дженнифер МиссониПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: Великобритания, США
+01. Openzone Bar, Ilias Katelanos - On A Summer Drink (3:55)
+02. Lemongrass, Karen Gibson Roc - On The Edge Of Time (4:54)
+03. Johannes Huppertz - By The Way (5:15)
+04. Karen Gibson Roc - So I Say (4:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3346C77CA3E0AFE79CD247534E9746ACEE1FD132
+magnet:?xt=urn:btih:CAC49E1F86EF58C013A76D5F9AE4BB6719087C60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,25 +462,289 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181715   (321210) от 08.11.2017
+###  Публикация: 1537913   (243791) от 18.03.2022
 
-Взрывная блондинка / Atomic Blonde (2017) BDRip [720p] ATV
+VA - Dirty Weekend (25 Groovy House Tunes), Vol. 4 (2022) [AAC|~335 Kbps] <House>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321210.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Агент Лоррейн Бротон, бриллиант в короне Секретной разведывательной службы Ее Величества, не просто мастер шпионажа: она бомбически сексуальна, взрывоопасна и использует весь арсенал своих уникальных умений во время невыполнимых миссий. В неспокойном Берлине, куда ее направляют с заданием вернуть бесценное досье, она вынуждена объединиться с агентом под прикрытием (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, детективРежиссер: Дэвид ЛитчАктеры: Шарлиз Терон, Джеймс МакЭвой, Эдди Марсан, Джон Гудман, Тоби Джонс, Джеймс Фолкнер, Роланд Мюллер, София Бутелла, Билл Скарсгард, Сэм ХаргрейвПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  АнглийскиеПродолжительность: 01:55:44
+01. Peverell - I Love It (Loris Buono Remix) (5:18)
+02. Martin Sharp - Disco Cat (Original Mix) (8:15)
+03. Joka Chups - Space Funk (Extended Mix) (7:03)
+04. Baseek, Ermanito - Mumbasa (Original Mix) (5:50)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA09CC67E3D055E715EEFDB6943E8488797510B4
+magnet:?xt=urn:btih:C18468A851C15C707DE560EAFCC3B1D334CA212E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537907   (243782) от 18.03.2022
+
+VA - Deep & Joy, Vol. 4 (2022) [AAC|~317 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circles Of Sound, Yasmin Elvira Steenholt - Won't Give Up (7:16)
+02. Sak Chaime - How To Love (5:17)
+03. Antennasia - Velowitch's Trick (DJ 3000 Motech Remix) (7:07)
+04. MAGEE, Thando - Find You (Teleporter) (Radio Edit) (3:27)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77BF9A1165D6CF1620D81355FEFFFFFD4A7BB30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537695   (243774) от 18.03.2022
+
+VA - Chillax (20 Chill-Out Tunes), Vol. 2 (2017) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ingo Herrmann - Birds In The Sun (3:08)
+02. Peter Pearson - It's Getting Late (5:39)
+03. Lemongrass - Moment De Conscience (2:55)
+04. Living Room - New Horizon (4:23)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859EF00DC049169FE89686EBE704E772DFCEC5CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537707   (243764) от 18.03.2022
+
+VA - Daydreamin' (Electronic Lounge Bubbles), Vol. 2 (2019) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo, Chill Hop, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Smokey - Sunset (Original Mix) (3:15)
+02. DJ Cubaton - Home Sweet Home (Original Mix) (14:40)
+03. Züell - Climax (Original Mix) (5:21)
+04. SelivaN DJ - Live (Original Mix) (2:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Chill Hop, JazzПродолжительность: 01:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196614911423B04C288CDFF75080DAF1C0926935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537903   (243758) от 18.03.2022
+
+VA - Dirty Weekend (25 Groovy House Tunes), Vol. 3 (2022) [AAC|~331 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baseek - Get It Girl (Original Mix) (6:41)
+02. Mitch B., Mato Locos, Zen - Keep Coming (Original Mix) (5:17)
+03. Nervous Freaks - Sandals Villa (Original Mix) (4:40)
+04. Capo & Comes - To Me (Original Mix) (7:14)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10EF07B7C4AEDDB97F0D976E057812D2B037C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537710   (243749) от 18.03.2022
+
+VA - Daydreamin' (Electronic Lounge Bubbles), Vol. 3 (2019) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo, Chill Hop, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anemine - Das Wehen Vom Meer (Original Mix) (1:38)
+02. Patrick James - Afro Style (Original Mix) (9:05)
+03. Ficture - Camels Came (Original Mix) (5:19)
+04. The Groove Boy - Deep It (Original Mix) (4:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Chill Hop, JazzПродолжительность: 01:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D52D17F7306A7F31998F7516A9651558FCCF72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537679   (243740) от 18.03.2022
+
+VA - Loungerie (25 Amazing Lounge Tunes), Vol. 2 (2017) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemongrass, Jane Maximova - Deep River (Five Seasons Remix) (6:13)
+02. Northbound - The Trail (4:51)
+03. Abraxas - Esperando La Alluvia (Waiting For Rain) (7:35)
+04. Kiwi Twist - Dark Tango (3:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718C410049AAF0622B3CBC1CDE6FD48089420FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537899   (243731) от 18.03.2022
+
+VA - Dirty Weekend (25 Groovy House Tunes), Vol. 2 (2022) [AAC|~321 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paco Caniza - Return to the Dancefloor (Original Mix) (4:54)
+02. Pansil - Body Music (Original Mix) (4:29)
+03. Tim Porta - One Chance, One Move, One Dance, One Shot (Original Mix) (5:00)
+04. Adam Clay, Andrea Belli, Mastro J - See the Sun (Original Mix) (6:01)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:21:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7839B57B594B9EC8B7D9F0656BFDE03745494BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537897   (243707) от 19.03.2022
+
+VA - Dirty Weekend (25 Groovy House Tunes), Vol. 1 (2022) [AAC|~322 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Lee - Saxed (Hausmore Remix) (7:06)
+02. Noble North, Elementz, Henric - Good for Nothing (Extended Mix) (6:06)
+03. Larry Scottish - In Da House (Extended Mix) (6:17)
+04. Peverell Bros, Sweet Female Attitude - No Matter (Original Mix) (7:00)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93DF67186BB93F0A34BBC7D4735610724250A694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537888   (243700) от 19.03.2022
+
+VA - Dirty Weekend (25 Groovy House Tunes), Vol. 5 (2019) [AAC|~331 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slippy Beats - Daydream (Extended Mix) (4:39)
+02. Tim Nice - Lonely (6:35)
+03. Hoxtones, Amfree, Jenson - Stay The Night (Extended Mix) (4:06)
+04. Housetronix - Turn It Up (6:20)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74689C9967B8AD93E2E6F3887483B7DF5F8504D
 ```
 
 https://mybot314.ru/tekegram_catalog/

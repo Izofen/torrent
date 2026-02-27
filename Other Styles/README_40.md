@@ -1,3 +1,61 @@
+###  Публикация: 20005   (878168) от 07.04.2020
+
+Vangelis - Voices (1995) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices (7:02)
+02. Echoes (8:25)
+03. Come to Me (4:33)
+04. P.S. (2:06)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA2D113DF2D65BCF1FB450F3E077F41058F796B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104942   (878114) от 16.02.2017
+
+Cusco - Essential Cusco: The Journey (2005) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Da Gama (3:33)
+02. Oracle Of Delphi (4:30)
+03. Waters Of Cesme (4:30)
+04. Africa - Africa (4:06)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA47FF17862CEF17F818B31EA8540EB1018AD01C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 764787   (878067) от 10.03.2014
 
 Ecuador Manta - 5 альбомов (1998-2008) [MP3|128-320 кб/с]<Native American, Instrumental, Folklore>
@@ -764,67 +822,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643043   (874414) от 13.04.2013
-
-Caravelli - 54 альбома (1965-2011) [MP3|128-320 кб/с]<Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Оркестр Каравелли (Caravelli Orchestra) - едва ли не самый знаменитый на сегодняшний день оркестр, исполняющий лёгкую инструментальную музыку. Потрясающая фоновая музыка, на все времена! Французский музыкант, пианист, композитор, великолепный аранжировщик, дирижёр, создатель вышеупомянутого коллектива, сын итальянца и француженки - всё это сказано о Клоде Вазори, взявшего себе сценический псевдоним Caravelli. Целая плеяда артистов, приверженцев инструментальной музыки, из самых разных стран, так, или иначе, выросли вместе с творчеством французского маэстро. Почему, собственно, только артистов? Все семидесятники - восьмидесятники, так или иначе, выросли на этих записях...01 - I'm Not In Love
- 02 - Born To Be Alive
- 03 - Dancing Queen
- 04 - Une, Deux, Tois
- 05 - Chiquitita
- 06 - Un Banc, Un Abre, Une Rue
- 07 - Magic Fly
- 08 - Samson & Delilah
- 09 - Tweedle Dee, Tweedle Dum
- 10 - T.S.O.P (The Sound Of Philadelphia)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5143BCAA53CC8283A5D662BD412017FACA753837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300574   (874264) от 25.02.2011
-
-Gregorian - Best Of 1990-2010 (2011) [MP3|320 kbps]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 -Жанр: New AgeПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF34006CC0C96683C19A53C94647A73C73FA7885
 ```
 
 https://mybot314.ru/tekegram_catalog/

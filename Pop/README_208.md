@@ -1,3 +1,291 @@
+###  Публикация: 1572495   (419460) от 28.08.2022
+
+Celine Dion - Courage (2019) [OGG Vorbis|485 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying On My Own (3:32)
+02. Lovers Never Die (2:51)
+03. Falling In Love Again (3:51)
+04. Lying Down (3:59)(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08751BEC023E8A744292DADD8F64CD7EA9B4F077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572756   (419328) от 28.08.2022
+
+Pisces - Disco 6 (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Love (5:25)
+02. Touch Me (4:40)
+03. Superman (6:16)
+04. Magic Flight (3:21)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A79578CCF21BDFC662941F7F046516023B1B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167321   (419261) от 19.09.2017
+
+VA - Dance For Fans Vol.1 (2017) [MP3|320 Kbps] <Eurodance, Eurobeat>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Malu - Fotonovela 2004 (Radio Mix 2004)  3:28
+02.  Mythos 'N Watergate - A Neverending Dream (Mythos Video Edit)  3:57
+03.  Intrance - Always (feat. D-Sign) (Video Mix)  4:04
+04.  Ayla Presents Yel - Sun Is Coming Out (Intrance Single Mix)  3:46(   Читать дальше...   )Жанр: Eurodance, EurobeatПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964E80855039CAFC3152244A06DAA8271F21D8FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065445   (419209) от 23.10.2016
+
+Galaxis - I Want More & Space Rangers (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want More (3:42)
+02. Space Rangers (4:33)Жанр: Electronic, Space-DiscoПродолжительность: 00:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD415F9455DBF3FA370EE36F5956593533DB84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065480   (419098) от 23.10.2016
+
+Rocky - Soft Machines (2016) [MP3|320 Kbps] <Alternative Pop, Soul, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apologize
+02. Band Against the Wall
+03. Big South
+04. Brandy & Monaco(   Читать дальше...   )Жанр: Alternative Pop, Soul, ElectropopПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3626FBC05FAC76B0FE75016CCDE6133C1EA7D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572631   (418958) от 28.08.2022
+
+Bee Gees - The Many Faces Of (2020) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья Barry, Maurice и Robin Gibb, более известные как Bee Gees, являются одними из самых успешных вокальных групп в истории рок-н-ролла. Немногие группы могут сказать, что они держались вместе более сорока лет, не говоря уже о том, что за это время было продано более 200 миллионов пластинок. У братьев Gibb было почти сверхъестественное чутье на создание первых (   Читать дальше...   )CD 1 The Bee Gees In Concert:
+01. This Is Where I Came In (4:01)
+02. Massachusets (2:32)
+03. To Love Somebody (2:45)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 02:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9905A0C9E921A73F2CCB387D5F54AFAA41DCCC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325003   (418826) от 12.09.2019
+
+VA - Now That's What I Call Music! 71 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418826.jpg" />
+</div>
+
+
+###  Подробнее
+
+В августе 2019 г. вышел очередной сборник новинок из топов США (и немножко Великобритании). Не путайте с такой же серией из UK. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности на протяжении последних нескольких месяцев. Официальные клипы первых пяти треков можете посмотреть внизу. А теперь наслаждайтесь хорошей (   Читать дальше...   )01. Jonas Brothers - Sucker  (2:59)
+02. Shawn Mendes - If I Can't Have You  (3:09)
+03. Ariana Grande - break up with your girlfriend, i'm bored  (3:08)
+04. Ava Max - Sweet But Psycho  (3:04)(   Читать дальше...   )Релиз состоялся: 02.08.2019Жанр: Pop, DanceПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D65D8241C2CF5F0A7F9F3CE4ABAEB946A380E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324980   (418662) от 12.09.2019
+
+Бумбокс - Таємний код Рубікон. Частина 1 (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418662.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тримай мене (feat. The Gitas)
+2. Ангела
+3. Дрантя
+4. Безодня(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4D85DADF03DEB569B0101CC001659E844DBE16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412489   (418195) от 29.09.2020
+
+VA - New Italo Disco Top 25 Compilation Vol. 14 (2020) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emy Care - Do You Love Me (Radio Edit) [4:12]
+02. Emy Care - You And Me (Radio Edit) [4:07]
+03. Boy Blue - Don't Break My Heart (Radio Edit) [4:29]
+04. Brad Lake - Yesterday (When I Was Young) (Radio Edit) [4:36](   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, DanceПродолжительность: 01:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B83BA866999D7511B05C3A38949D6630DFD150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947561   (418112) от 17.10.2015
+
+VA - True Party (2006) 3CD[FLAC|track+.cue]<Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418112.jpg" />
+</div>
+
+
+###  Подробнее
+
+True Party - настоящий отдых, ну какой ещё релиз размещать под выходные. И хотя почти десяток лет прошло c тех пор как австралийское подразделение Universal Music выпустило этот трех-дисковый сет, всё равно большинство треков слушается свежо и (может быть в силу своей подзабытости) с интересом. Так что отдыхайте на выходных с хорошей музыкой!CD1:
+01. James Brown - I Got You (I Feel Good)  (2:48)
+02. Kool & The Gang - Celebration  (3:37)
+03. Third World - Now That We've Found Love  (3:52)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB3AE92BE039FD235BF5A9EA12E88609351D3B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251467   (418031) от 01.10.2018
 
 Mehdi - When Will I Be Famous (2008) Single, 2 Tracks Kleiner Preis [MP3|320 Kbps] <Pop>
@@ -451,296 +739,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B39D9B378095EDE77F0EE2168A56C91407331F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066026   (416657) от 24.10.2016
-
-Olivia Newton-John - Greatest Hits (1976) Japanese Edition, 1984, EMI [WavPack|Lossless|image + .cue] <Pop, Country Rock, World>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Home Country Roads   (03:19) 
-  02. If Not For You   (02:55) 
-  03. Changes   (02:32) 
-  04. Let Me Be There   (03:01) (   Читать дальше...   )Жанр: Pop, Country Rock, WorldПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA6B08C239F9A18BF94EE94EE578F960DE94B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065991   (416652) от 24.10.2016
-
-Tom Chaplin (Keane) - The Wave (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Post-Britpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Waiting
-02. Hardened Heart
-03. The River
-04. Worthless Words(   Читать дальше...   )Жанр: Pop, Post-BritpopПродолжительность: 01:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB7ED17512EF4CE2293ABD15038AE5718FEA1E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325117   (416361) от 13.09.2019
-
-Александр Шоуа (НеПара) - Останови меня (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416361.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мир сошел с ума
-2. Останови меня
-3. Девочка с закрытыми глазами
-4. Звёзды сойдутся(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:696F5A337F546E9A5453FE54EA5F761136F2BCBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065789   (416342) от 24.10.2016
-
-The Radio Dept. - Running Out Of Love (2016) [FLAC|Lossless|tracks] <Indie Pop, Synthpop, Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sloboda Narodu
-02. Swedish Guns
-03. We Got Game
-04. Thieves Of State(   Читать дальше...   )Жанр: Indie Pop, Synthpop, Dream PopПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4126E1E9F02A4FA0A3DEC888DAE837849F118C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325114   (416222) от 13.09.2019
-
-VA - Первый танцевальный, Vol. 18 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. MONATIK - LOVE IT ритм
-2. Zivert - Beverly Hills
-3. Feduk - Пальмы
-4. SEREBRO - О, мама(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD7018E8A77DBE17AD6FBA1BC287EF5CB485A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065574   (416179) от 24.10.2016
-
-VA - И Просится Сердце В Полёт... (Аэрофлоту - 75) (1998) [MP3|320 Kbps] <Советская эстрада>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ансамбль Гренада - Когда Душа Поет
-02. Марк Бернес - Любимый Город
-03. Юрий Визбор - Серега Санин
-04. Вахтанг Кикабидзе - Проводы Любви(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D5DDCBB3840A4318653372EE26D20E85B746A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065954   (416003) от 24.10.2016
-
-Михаил Бублик - Маяк (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пахнет домом
-02. Ближе и ближе
-03. Болею
-04. Море(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BDFDE639F2AD03B101C3B1AE00B30C935945C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947864   (415996) от 18.10.2015
-
-VA - Les Stars font leur cinema (2015) Deluxe Edition [FLAC|tracks]<Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tal & Irma - Streets Of Philadelphia (03:48)
- 02. Tenny & Maska - Like A Maniac (03:23)
- 03. M Pokora - Everything I Do (I Do It For You) (04:02)
- 04. Magic System - Toi Et Le Soleil ( I Can See Clearly Now) (03:11)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95EA9D34FF357C7B02A06DA9F019CE29C5D6611D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251691   (415498) от 02.10.2018
-
-Alina Orlova - Daybreak (2018) [MP3|320 Kbps] <Alternative Pop, Psychedelic Folk, Art Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kam?
-02. Elegantiskai Sninga
-03. The Break-Up Blues
-04. Little Bird's Song(   Читать дальше...   )Жанр: Alternative Pop, Psychedelic Folk, Art Pop, Chamber PopПродолжительность: 00:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101099F9F98FC8B8A70FD5B261C7DF6F5D6783AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251642   (415492) от 02.10.2018
-
-VA - Acoustic Music (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tanita Tikaram - Cathedral Song
-02. Beth Nielsen Chapman - All I Have
-03. Jason Castro - Hallelujah
-04. Alannah Myles - Do You Really Want to Know Me(   Читать дальше...   )Жанр: Pop, Folk, AcousticПродолжительность: 01:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF42B36248D88448365952FCBD90A2593E01F241
 ```
 
 https://mybot314.ru/tekegram_catalog/

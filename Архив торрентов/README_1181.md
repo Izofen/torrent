@@ -1,352 +1,3 @@
-###  Публикация: 295766   (892860) от 15.02.2011
-
-Astroff - Star Eater EP (2011) [MP3|~215 kbps] <Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Astroff - Star Eater EP (2011)
-Год: 2011
-Жанр: Psytrance
-Лейбл: Sun Station Records
-Продолжительность: 00:28:28
-Кодек: MP3
-Битрейт: ~215 kbps
-Тип битрейта: VBRТрек лист:
-01. My Lasergun [06:58](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0447FA29511915AB7AE7EA453F5F6A5B0F6C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868950   (892857) от 14.02.2015
-
-Dreamtime - Particles (2015) [MP3|320 кб/с]<Spacesynth>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Phantasm
-02. Cosmoride II
-03. Typhoon
-04. Guru Meditation
-05. Magic Beat(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A651C5020B1BBB716F81CE63C61C82295B7FBA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102106   (892853) от 08.02.2017
-
-Младшая сестра / Little Sister  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892853.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недавнем прошлом Коллин Лансфорд была готкой, слушала металл, красила лицо, вела себя вызывающе. Но теперь она - «серая мышка». Послушница в женском монастыре, которая готовится принять постриг и, возможно, навсегда скрыться от суетного мира. Мать-настоятельница не верит, что девушка готова. Когда Коллин решает взять отгул и посетить напоследок в Северной Каролине (   Читать дальше...   )Производство: СШАЖанр: комедияРежиссер: Зэк КларкАктеры: Эддисон Тимлин, Элли Шиди, Кит Поулсон, Питер Хеджес, Барбара Крэмптон, Кристин Слейсмен, Молли Планк, Джеймс Эшли, Билл БейлиПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82AAF0F0E641B27DA06DE9EAA4838E08F37644AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295700   (892852) от 15.02.2011
-
-VA - Armada Sessions: January (2011) [MP3|320 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.Bas van Essen - Walk Away (Original Mix)Жанр: TranceПродолжительность: 02:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB443D0E1B58183008703709DEA32923181F14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101898   (892848) от 08.02.2017
-
-PDF-XChange Viewer Pro 2.5.320.0 RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892848.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF-XChange Viewer - отличная программа для чтения и редактирования документов в формате PDF, которая сможет стать заменой для Adobe Reader. Программа обладает всеми возможностями для просмотра PDF документов, плюс ко всему, в отличие от других подобных программ, PDF XChange Viewer очень быстро открывает файлы и быстро обновляет содержимое прокручиваемых страниц. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D582DEFB1DD9E7435BA391C0F0DF67EFF7ABCE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295797   (892847) от 15.02.2011
-
-Phyx - Corruption EP (2010) [MP3|~197 kbps] <Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Phyx - Corruption EP (2010)
-Год: 2010
-Жанр: Psytrance
-Лейбл: Timecode Records
-Продолжительность: 00:16:01
-Кодек: MP3
-Битрейт: ~197 kbps
-Тип битрейта: VBRТрек лист:
-01. Smash And Grab [08:00](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CDFAC59E3173A009ACCCB46AAA9BB36AF11355D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295229   (892840) от 15.02.2011
-
-VA - House Vip [11.02.2011] (2011) [MP3|320 kbps]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Belo & Interlock - Summer In Ibiza (Original Mix) (6:03)
-02. Bastian Van Shield Feat Jennifer Karr - Unsay Goodbye (Blood & Chocolate Remix) (5:26)
-03. Chrizz Luvly - Ahhh (Original Mix) (7:18)
-04. Chrizz Luvly & Marie L - Take My Time (Original Mix) (6:03)
-05. Clash The Disko Kids - Transient (Shameboy Remix) (6:27)
-06. Cool My Desire (Electro House Extended Mix) (5:10)
-07. Hot Pink Delorean - To Be Continued (Original Mix) (6:16)
-08. I Am Sam & Men At Work - Down Under 2011(Bombs Away Remix) (5:59)
-09. Get This Place (Gimbal & Sinan Remix) (6:13)
-10. Sultan & Ned Shepard ft Nadia Ali - Call My Name (Dave Aude Remix) (7:51)Жанр: Electro HouseПродолжительность: 01:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DEF147EDAE3F3397B69856E06FD4DE823F866F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639362   (892838) от 04.04.2013
-
-Slim Browser 7.00 Build 009 Beta [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Бесспорно один из лучших веб-браузеров для Windows с точки зрения функций и гибкости. Более быстрый запуск, быстрый просмотр веб-страниц, в 10 раз более быстрая загрузка файлов и видео, в 10 раз более быстрая загрузка фотографий. SlimBrowser позволяет вам использовать все важные и полезные функции без плагинов. Позволяет сократить потери времени, количество нажатий клавиш и щелчков мышью благодаря искусственному интеллекту и автоматизации. Безопасное управление именами пользователя и пароля, безопасное удаление всех следов, блокирование навязчивых рекламных объявлений и всплывающих окон.Язык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639217   (892836) от 04.04.2013
-
-Your Universal MultiBoot Installer 0.0.9.3 [Английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-YUMI (Your Universal Multiboot Installer) - небольшой удобный инструмент с помощью которого можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky Rescue Disk), системные утилиты (CloneZilla, EASUS Disk Copy, FreeDOS, GParted, Memtest86+, Parted Magic, Ultimate Boot CD) и др. Присутствует возможность указать ISO-образ, располагающийся на жестком диске, или скачать требуемое программное обеспечение с официального сайта.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868777   (892834) от 14.02.2015
-
-Fitnesstroll v1.0.0.2 / Фитнес-игра (6.02.2015) <Ru/Multi 3>
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Вы заботитесь о маленьком тролле. Ваша цель: чтобы тролль был счастлив. Всем известно, что счастье для тролля - это его сытый желудок, а единственный способ наполнить живот, пойти и позаниматься спортом. Если тролль хорошо кушает, он начинает быстро расти. Но будьте осторожны! Аппетит тролля растет вместе с ним.Тип издания: FreeРазработчик: IDDQD GROUPПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Эстонский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D450C35ABAF07C02E5AE5BA8DD5D223FB7CD3837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295760   (892833) от 15.02.2011
-
-Virtual Attack - Change In Plan EP (2011) [MP3|320 kbps] <Full On, Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Virtual Attack - Change In Plan EP (2011)
-Год: 2011
-Жанр: Full On, Psytrance
-Лейбл: All Records
-Продолжительность: 00:46:14
-Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Head Funk [08:59](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24680C766F4FC475EC044E51E2C925D7B8821BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295886   (892829) от 15.02.2011
-
-VA - Sushi Volume 5 (2011) (14.02.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 05:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCDF77513C08205A9672383239990BD6F993D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 762176   (892825) от 02.03.2014
 
 Guru - Baldhead Slick & Da Click (2001) [FLAC|Lossless]<Rap, Hip Hop>
@@ -749,6 +400,369 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C93E277D471C900208CB4A44E064CBDC45A872D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102001   (892791) от 08.02.2017
+
+NetSetMan 4.3.4 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпущена новая версия программы NetSetMan, предназначенной для людей, которые часто соединяются с различными сетями, и каждый раз выставляют разные настройки для разных сетей. С помощью этой утилиты можно максимально упростить этот процесс. NetSetMan умеет быстро менять до 6-ти сетевых конфигураций, включая IP адрес, маску сети, шлюз, рабочую группу, адреса DNS серверов, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EA98834CE3848121005DC1FF7F290F186FA1F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762224   (892785) от 02.03.2014
+
+Журнал | Electronics For You №3 (март 2014) [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это журнал для читателей, интересующихся электроникой и техникой. Впервые был выпущен в 1969 году. В нем широко представлены обзоры лучших образцов электронной продукции, сравнения аппаратного и программного обеспечения, новости электронной техники, компьютерного оборудования, источников питания, радиоэлектронных компонентов, цифровых устройствФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414A33F4818DA9ED9DA84CC03342893BBB7216E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762345   (892780) от 02.03.2014
+
+VA - Liquid Brilliants Retrospective (2014) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Command Strange & Jebar - Pure Love (06:31)
+02. Sardi - There For You (05:45)
+03. Intelligent Manners - On The Dancefloor (05:34)
+04. DbAudio & DRamatic - Life (06:14)
+05. Clart - Nu Soul (05:57)
+06. First Function & M25 - Ideas & Feelings (06:42)
+07. The Square - We Move (05:40)
+08. ATP - Dreaming (06:44)
+09. Skill - Ultra Piano (05:10)
+10. DbAudio & DRamatic - Falling (05:34)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DFDD237C0F2CCF0F09529F0CF5BE1DCE1B66C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102198   (892779) от 08.02.2017
+
+Avast Clear 17.1.3394.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда невозможно полностью удалить антивирус Avast стандартным способом - с помощью компонента панели управления «Установка и удаление программ». В этом случае можно воспользоваться фирменной утилитой для удаления Avast.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23975CFE8BB43939D02D54408254B6107319C54F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869207   (892775) от 14.02.2015
+
+Wise Registry Cleaner 8.31.543 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Wise Registry Cleaner - это программный инструмент, предназначенный для быстрой и безопасной очистки системного реестра операционной системы Windows. В ходе свей работы утилита проводит сканирование реестра, осуществляя поиск некорректной, ненужной или устаревшей информации. Удаление обнаруженных данных, как правило, заметно ускоряет работу системы. В целях безопасности перед началом работы Wise Registry Cleaner создает резервную копию всего реестра, что позволяет в случае возникновения непредвиденных ошибок (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93AADE0DE18E596DBBF79D5E56EDADEC78BBF1B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184112   (892774) от 18.03.2010
+
+VA - House Vip (16.03.10) [MP3|192-320 kbps]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axwell - Watch The Sunrise (Moke Essa & Julian Airia Remix) (6:07)
+02. Boyko Sound Shocking - I Miss Your Love (Grey Sound Remix) (6:18)
+03. DJ Red, DJ Scotty Boy - 4am In Vegas (Original Mix) (7:16)
+04. DJ Rooster, Sammy Peralta, Alejandro Montero - Tokyo (Original Mix Instrumental) (7:09)
+05. Guaranna Project - Pink Lights (Original Mix) (6:09)
+06. Jorgensen, Patric La Funk - Hear Here! (J Nitti Remix) (8:10)
+07. Lenzi vs. Soriani Feat. Sily - Poker Face (Alex Berti Version) (6:52)
+08. Linkin Park - Numb Encore 2010 (Hard2house Club Master Mix) (6:52)
+09. Mondotek - New Sound 2010 (Club Edition)(Rip) (4:30)
+10. Ne!tan vs. Addictiv - Little Game (Pump Extended Mix)(Rip) (5:22)(   Читать дальше...)Жанр: Electro House
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184144   (892771) от 18.03.2010
+
+VA - House Vip (15.03.10) [MP3|320 kbps]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Android - Just blonde (Original mix) (5:13)
+02. Antoine Lavenant - Ultima esperanza (4:54)
+03. Darren Bailie & Rene Rodrigezz - What Do You Feel (Rene Rodrigezz Remix) (5:24)
+04. Deadmau5 - Ghosts N Stuff (George Monev Remix) (5:45)
+05. DJ Antonio - Only Thing You Watch (Extended Mix) (5:23)
+06. Edward Maya & Vika Jigulina - Stereo Love (Scotty Extended Mix) (5:21)
+07. Fedde Le Grand Ft. Mr. V - Back & Forth (Eric Chase Remix) (6:57)
+08. Green Day - Boulevard Of Broken Dreams(DJ Solovey remix) (6:12)
+09. Henri Leo Theisen Feat Melor - Sweet Love (Two Vinyls Remix) (5:08)
+10. Mark Lam feat MC Freeflow - Jungle MCs (Funk Jak! remix) (5:21)(   Читать дальше...)Жанр: Electro House
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 183943   (892765) от 18.03.2010
+
+VA - A State Of Trance: Radio Top 15 March 2010 (15.03.2010) [FLAC|Lossless]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Estiva - Friends & Enemies (Mix Edit)
+02. 7 Skies - Caffeine (Mix Edit)
+03. Cressida - Two-O-Ten (Ronski Speed Uplifting Mix)
+04. Beat Service - Hiding to Nothing (feat. Emma Lock)
+05. Steve Brian - La Gomera (Cressida Remix Edit)
+06. Rafael Frost - Flashback
+07. M.I.K.E. & Plastic Boy - Chocolate Infusion
+08. John O'Callaghan - Striker (Ummet Ozcan Remix)
+09. Misja Helsloot & P.M.W. - A*s You Wish (Akira Kayosa & Pete Drury Mix)
+10. Nery - Redawn (Andy Blueman Remix)(   Читать дальше...)Жанр: Trance
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184177   (892759) от 18.03.2010
+
+VA - ClubVip (17.03.10) [MP3|192-320 kbps]<Electro House, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Alex Tekk - Get Up And Dance (The River's & Nexboy! Remix) (4:46)
+2. Beyonce Feat. Damiel - Halo (Electro-House 2K10 Remix) (7:17)
+3. Blestiashchie - Shar (Dj Shevtsov And Alex Menco Radio Edit) (3:22)
+4. Brooklyn Bounce Vs Alex M. & Marc Van Damme - Crazy (Max K. Dub Mix) (5:56)
+5. Bulletproof - La Roux (Hyper Crush Remix) (3:36)
+6. Cidinho & Loca - Rap Das Armas (Max Mafia Bootleg Remix 2K10) (7:39)
+7. Fast Foot - Electro Police (Original Mix) (6:35)
+8. Guf - Ice Baby (Dj Donetsky Extended Remix) (6:44)
+9. Haezer - Warfare (Feat. Label) (3:45)
+10. Lilu - A V Glazah Ego (Original Mix) (3:45)(   Читать дальше...)Жанр: Electro House, Club
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869317   (892755) от 14.02.2015
+
+Food Planner Pro v4.9.0.6 - Планировщик питания с широким функционалом (14.02.2015) <En/Ru>
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Придерживаетесь комплексного питания, составляйте список покупок, и полезные рецепты. В этом деле вам поможет Food Planner. Всё это можно синхронизировать между несколькими девайсами.Тип издания: ПираткаРазработчик: MiniMobileПоддерживаемая ОС: Android 2.1+Язык интерфейса: Английский и Русский (v4.8.2)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC760E974855D31771D071EDCC2C251A2A295A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184306   (892752) от 18.03.2010
+
+LeaderTask 6.8.8.0 ML/Rus
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+LeaderTask это Планировщик + ПИМ + Календарь + Адресная книга + Ежедневник! LeaderTask - умный органайзер для Лидеров! Интеллектуальная система управления проектами, событиями, задачами, контактами, освободит вас от рутины и даст больше времени для творчества! Наш органайзер поможет вам избавиться от различных поглотителей времени, поможет вам увидеть четкую перспективу жизни, иметь подробный обзор дел, задач, вы будете ставить более высокие цели и достигать их. Планировать и выполнять. Думать и находить решения. Измерять и управлять любыми ресурсами вашей жизни! Языки: English, Русский, Francais, Italian, Spanish, Deutsche,Bulgarian, Greek, Serbian, Korean и Chinese, включая Help.
+
+LeaderTask is a business organizer for a modern person. LeaderTask has a smart system for managing projects, tasks, contacts, events. Want to complete more? Get tired less? Earn more? And permanently improve the quality of life, work hard less and contemplate peacefully more? LeaderTask will help you with that! LeaderTask = Scheduler (   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184339   (892749) от 18.03.2010
+
+The Palace Builder (P) [En] (2010)
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+18-ый век, Франция, Вы - молодой, неизвестный архитектор, ищущий свой стиль и шарм которые дадут шанс произвести впечатление на Королеву.
+
+В этой игре симуляции строительства в романтическом мире французской аристократии вам предстоит разрабатывать дизайн и управлять строительством самый красивых зданий страны.
+
+Привлечёт ли ваша работа внимание королевы, суждена ли вам слава и богатство или вы так и останетесь безвестным архитектором?Жанр: Бизнес-симулятор
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

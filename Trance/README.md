@@ -1,4 +1,61 @@
 https://t.me/izofen
+###  Публикация: 1855947   (1058613) от 25.02.2026
+
+VA - FSOE 950 Compilation (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Stone - Macy (Extended Mix) [6:34]
+02. Aly & Fila meets Roger Shah & Susana - Unbreakable (Extended Mix) [7:47]
+03. Sean Tyas & Darren Porter - The Potion (Extended Mix) [8:25]
+04. Aly & Fila - Beyond The Lights (Extended Mix) [7:47](   Читать дальше...   )Жанр: TranceПродолжительность: 03:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2537A0FE8E581D0226746D86422EE7C51E413BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855892   (1058608) от 25.02.2026
+
+VA - A State of Trance: 25 Years - Official Anthem Collection (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Richard Durand & Dicosis - Always You (A State of Trance 2026 ELEVATION Anthem) (Extended Mix) [5:38]
+02. Armin van Buuren & Ben Hemsley feat. Lucy Pullin - Is It Beautiful? (A State of Trance 2025 TRANSFORMATION Anthem) (Extended Mix) [7:12]
+03. Armin van Buuren, Ferry Corsten, RANK 1 & Ruben de Ronde - Destination (A State (   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41DB270CE96DDF111F94AB88F4E14DC8322F0709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854925   (1057892) от 20.02.2026
 
 VA - Festival Anthems 2026 (2026) [MP3|320 Kbps] <Trance>
@@ -688,64 +745,6 @@ VA - We Love Trance 2026 (2026) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08B231EA1643CCE97E20322E4B1029BDC8C1926D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845160   (1050597) от 30.12.2025
-
-VA - Progressive Vibes Dark 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Speckmann - The Redemption (Radio Edit) 03:37
-02. Robinito - Everlasting (Radio Edit) 05:01
-03. Domundo - Intermission (Radio Edit) 03:11
-04. Ahmad Shams Music(TM) - Marionette (Original Mix) 04:03(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0FDF1021CADDDAD795715559C39D914ABD686F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845149   (1050596) от 30.12.2025
-
-VA - Progressive Vibes Music 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Hillfire - Soulfire (Radio Edit) 03:52
-02. Matte Plane - Mar Don Hills 04:00
-03. K.O.V.I. Project - Forgiven (Radio Edit) 03:34
-04. Mekci - Playing With Fire 03:48(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B93311B2F911FD049F7224495EF437D63E410C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,25 @@
-###  Публикация: 1499023   (237578) от 14.10.2021
+###  Публикация: 1430708   (169845) от 11.12.2020
 
-VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 5 (2019) [AAC|~293 Kbps] <Easy Listening, Lounge, Nu Jazz>
+Владимир Высоцкий - Оригинал пятый (октябрь - декабрь 1973 года) [Часть 2] (2020) [AAC|~189 Kbps] <Acoustic, Chanson, Ballad>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237578.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Soundset City - You Are My Angel (Smooth Vocal Lounge Mix) (3:41)
-02. CiYou - Look into My Eyes (Cool Groove Mix) (4:24)
-03. Jean Mare - When I See (Cool Melody Mix) (3:13)
-04. Jazzy System - Jungle Demon (Lo-Fi Chill Mix) (4:49)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:19:33
+01. «Ну о чём с тобою говорить!..» (1:14)
+02. «Эй, шофёр, вези - Бутырский хутор…» (1:17)
+03. «До нашей эры соблюдалось чувство меры…» (1:30)
+04. «То была не интрижка…» (1:23)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:51:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0307B1FB838D0DC4F902851CFBC6B9EE1FDB6DE
+magnet:?xt=urn:btih:9681A4C3260F24A83F380373C1822B92A2F9CA70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497895   (237572) от 14.10.2021
+###  Публикация: 1430693   (169820) от 11.12.2020
 
-Röyksopp & Robyn - Do It Again (2014) [AAC|~331 Kbps] <Electronic, Downtempo>
+Владимир Высоцкий - Оригинал второй (май - декабрь 1972 года) [Часть 1] (2020) [AAC|~181 Kbps] <Acoustic, Chanson, Ballad>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237572.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Monument (9:56)
-02. Sayit (6:27)
-03. Do It Again (5:04)
-04. Every Little Thing (4:03)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:35:22
+01. Кругом пятьсот (МАЗы) (4:06)
+02. Песня канатоходца (3:37)
+03. Увижу восход! (Чёрные бушлаты) (4:05)
+04. Песня про телевизор (3:58)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:55:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8146B1BCED7ADB515ADDE88EC4A14F26FDEAC38B
+magnet:?xt=urn:btih:60035249F427957830AAA0B734A88779D11F0F5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498961   (237564) от 14.10.2021
+###  Публикация: 1430702   (169816) от 11.12.2020
 
-VA - Café Deluxe Chillout - Nu Brazil / Lounge (2014) [AAC|~326 Kbps] <Easy Listening, Lounge, Nu Jazz>
+Владимир Высоцкий - Оригинал четвертый (1973 год) [Часть 1] (2020) [AAC|~184 Kbps] <Acoustic, Chanson, Ballad>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237564.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169816.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jean Mare - Your Gonna Be Allright (Jazzy Caracas Mix) (5:13)
-02. Sannan - Beachbossa (5:28)
-03. Nightzoom - Ipanema Lounge (Latin Chillout Mix) (3:56)
-04. Mathieu, Florzinho, Luis Viola, Ana Paula - Deixe o Sol Entrar (4:18)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 01:57:40
+01. Письмо на выставку (2:23)
+02. Письмо в деревню (2:22)
+03. Бал-маскарад (1:31)
+04. Песня завистника (1:40)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:40:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26CC07E955522243544CBE3F9A6CEBFEA485AA5C
+magnet:?xt=urn:btih:1A58803936ADA17AC5135B1DEDEB083ED8BF66A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499020   (237556) от 14.10.2021
+###  Публикация: 1430796   (169808) от 11.12.2020
 
-VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 4 (2018) [AAC|~302 Kbps] <Easy Listening, Lounge, Nu Jazz>
+Taylor Swift - evermore (2020) [AAC|~284 Kbps] <Pop, Alternative>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237556.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nightview - City Talk (Modern Lounge Mix) (3:56)
-02. Nightbar Jazz - Downtown Lights (Jazzy Groove Mix) (4:43)
-03. Soundset City - Touch My Soul (Jazzy Vocal Lounge Mix) (3:59)
-04. CiYou - Southtown Groove (Café Dela Cita Mix) (4:56)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:46:01
+01. willow (3:35)
+02. champagne problems (4:04)
+03. gold rush (3:05)
+04. ‘tis the damn season (3:50)(   Читать дальше...   )Жанр: Pop, AlternativeПродолжительность: 01:00:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C573B2E17D0545DA32EEB070662970C3BD4802B
+magnet:?xt=urn:btih:2E3A6F65C672E91B09E7C263E157940B5B590D1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499025   (237548) от 14.10.2021
+###  Публикация: 1430706   (169801) от 11.12.2020
 
-VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 6 (2020) [AAC|~284 Kbps] <Easy Listening, Lounge, Nu Jazz>
+Владимир Высоцкий - Оригинал четвертый (1973 год) [Часть 3] (2020) [AAC|~191 Kbps] <Acoustic, Chanson, Ballad>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237548.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nightview - Cityscape (Lounge Sound Mix) (3:28)
-02. Soundset City - Basic Love (Center Lounge Cut) (3:14)
-03. Audiozoom - Cloud City (Short Lofi Chill Radio Cut) (3:04)
-04. Jazzy System - Your Eyes They Worry (4:09)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:21:42
+01. «Один музыкант объяснил мне пространно…» (1:51)
+02. Письмо (2:38)
+03. «Давно смолкли залпы орудий…» (2:09)
+04. После чемпионата мира по футболу. Разговор с женой (1:24)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:43:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FACB075C6084E6805041078C3E132472010CFDB
+magnet:?xt=urn:btih:4847C494DA2892B6459F67E87310F62418534AA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498984   (237536) от 14.10.2021
+###  Публикация: 1430682   (169793) от 11.12.2020
 
-VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 2 (2015) [AAC|~323 Kbps] <Easy Listening, Lounge, Nu Jazz>
+Владимир Высоцкий - Оригинал первый (26 февраля - апрель 1972 года) (2020) [AAC|~181 Kbps] <Acoustic, Chanson, Ballad>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237536.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Velvet Dreamer, Tim Gelo - Waiting Here for You (5:55)
-02. Photo in Lounge - Life Has Just (4:48)
-03. Rouge, Noire - 21st Century (5:03)
-04. Jean Mare - Smooth Lounge Breeze (4:58)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:45:06
+01. Белое безмолвие (2:17)
+02. Кони привередливые (4:56)
+03. «А люди всё роптали и роптали…» (фрагмент) (1:20)
+04. Невидимка (3:04)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:57:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F22D5379CF98E753A8AAC13C26C04C91E7722C6
+magnet:?xt=urn:btih:4A8EC057B06A913B39D2DEED7B096CC591EDD02C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498957   (237525) от 14.10.2021
+###  Публикация: 1430784   (169791) от 11.12.2020
 
-VA - Café Deluxe Chillout - Nu Jazz / Lounge (2013) [AAC|~316 Kbps] <Easy Listening, Lounge, Nu Jazz>
+Britney Spears - Glory (Deluxe) (2020) [AAC|~333 Kbps] <Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237525.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marie Therese - When You Come Home (4:23)
-02. Nightzoom - So Much (Short Plugged Vocal Remix) (3:08)
-03. The Compunist - Deep Funk (4:49)
-04. Dave Neville - The Sun Is Coming (Smooth Jazz Mix) (6:47)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:38:48
+01. Invitation (3:20)
+02. Do You Wanna Come Over? (3:23)
+03. Britney Spears, G-Eazy - Make Me... (3:50)
+04. Private Show (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80DC55306FEF6871BE47E7826FDFBE677F5EE468
+magnet:?xt=urn:btih:B3E06F784003095D6F74551F8D4F44014FE26265
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +201,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497395   (237514) от 14.10.2021
+###  Публикация: 1430739   (169781) от 11.12.2020
 
-VA - Buddhatronic - the Compilation, Vol. 6 (2021) [AAC|~299 Kbps] <Downtempo, Lounge, Chill Out>
+Григорий Лепс - Честь имею! Очи чёрные (Высоцкий) (2020) [AAC|~332 Kbps] <Chanson, Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237514.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Artenovum - A World of Beauty (4:49)
-02. Buddhatronic - Back to the Beginning (4:18)
-03. Aqualuna - Electric Cloud (4:00)
-04. For Found Future - Bees of the Wonderland (4:01)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:13:02
+01. Погоня (Во хмелю слегка) (3:01)
+02. Старый дом (3:27)Жанр: Chanson, PopПродолжительность: 00:06:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03DBF7EACAD6A0144BA315DC18871453C43ECCDD
+magnet:?xt=urn:btih:3E1EE9978CBB2BC01F1D7379EC5ED9C22080B127
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +228,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502302   (237507) от 14.10.2021
+###  Публикация: 1430709   (169772) от 11.12.2020
 
-VA - Urban House Grooves, Vol. 2 (2021) [AAC|~323 Kbps] <House, Progressive House, Club House>
+Владимир Высоцкий - Оригинал шестой (2 апреля 1974 года) (2020) [AAC|~352 Kbps] <Acoustic, Chanson, Ballad>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237507.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Soldera - Not Fidel (Edit) (3:22)
-02. Jag, Yuji Ono - Remind Me (Original Mix) (5:51)
-03. Congotronik, Maria Jap - El Mata Mara (Original Mix) (5:00)
-04. MiCON (UK) - The Gate (Original Mix) (6:54)(   Читать дальше...   )Жанр: House, Progressive House, Club HouseПродолжительность: 02:38:30
+01. Горизонт (3:24)
+02. МАЗы (3:11)
+03. Чужая колея (3:34)
+04. Ой, где был я вчера (2:51)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 01:00:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A0FCB9152B47CE6DBEE90ACA705DFCB78AAC062
+magnet:?xt=urn:btih:FDB269B21A513A541162F0275AFA930E41205DBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +257,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502300   (237498) от 14.10.2021
+###  Публикация: 1515268   (169767) от 07.12.2021
 
-VA - Urban House Grooves, Vol. 1 (2021) [AAC|~323 Kbps] <House, Progressive House, Club House>
+VA - Electronic Moon (The Chill Out Journey), Vol. 1 (2021) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237498.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Victor Victorio - Arpège (House and Glitter Mix) (2:40)
-02. YNOT, Francesco Diaz - Spread Love (Trilllion Radio Edit) (3:33)
-03. Sordid Soundz, Chris Marina - Get Ready (Original Mix) (6:29)
-04. Fijin, Nessa - The One (Sovi Remix) (4:58)(   Читать дальше...   )Жанр: House, Progressive House, Club HouseПродолжительность: 02:22:21
+01. Mysterious - Still Dancing In My Head (3:12)
+02. Red Sea Grooves - The Future Is Unwritten (3:33)
+03. Brian Austin Mesure - Fantasilandia (3:19)
+04. Jack Izzard - Deep Relax (Chillin' Groove Mix) (2:57)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:06:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D5D56466E8633193D009585B6C3C00F3D4AF4BA
+magnet:?xt=urn:btih:CD6839F78476E166C31BD11BD2B8F13FC3EF6B6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +286,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499724   (237490) от 14.10.2021
+###  Публикация: 1515224   (169765) от 07.12.2021
 
-Tequilajazzz - Камни (2021) [AAC|~331 Kbps] <Alternative, Rock>
+VA - A Tribe Called Kotori 5 (2020) [AAC|~332 Kbps] <Progressive House, Deep House, Downtempo, Afro House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237490.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. В тёмную воду. Intro (3:40)
-02. Никого не останется (4:20)
-03. Вьюгина ты дочь (5:33)
-04. Сам с собой (4:46)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:42:40
+01. Aeroplane - We Can't Fly (4:14)
+02. PARALLELLS, Fulltone - How Can I Resist (6:28)
+03. Daniel Rateuke, Benjy - Isondo (6:33)
+04. Acid Pauli - Ahmed (6:49)(   Читать дальше...   )Жанр: Progressive House, Deep House, Downtempo, Afro HouseПродолжительность: 01:23:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23BE160FA5758BB7EC4024F9679AD520D641BA83
+magnet:?xt=urn:btih:D560EDC790A22BBE7AE8626014025AB37BDB71DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +315,289 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499027   (237478) от 14.10.2021
+###  Публикация: 1515566   (169757) от 07.12.2021
 
-VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 7 (2021) [AAC|~294 Kbps] <Easy Listening, Lounge, Nu Jazz>
+VA - Finesse Jazz, Vol.4 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Smooth Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237478.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Audiozoom - Lounge Girl (4:37)
+01. Wonderphazz - Space Hotel (Chillax & Smile Mix) (4:43)
+02. Unisax - Living on the Inside (Cool and Smooth Mix) (4:41)
+03. Ultraviolence - The Rainbow (Jazzy Chill Mix) (4:27)
+04. Craig McKnight - Top Down (Nothing but the Best Mix) (4:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C59E0F0A18AF0E75DDBE6641E4D96889389CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430681   (169751) от 11.12.2020
+
+Владимир Высоцкий - Оригинал первый (7 января - 5 февраля 1972 года) (2020) [AAC|~189 Kbps] <Acoustic, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Горизонт (3:36)
+02. Случай (3:06)
+03. Песня микрофона (3:14)
+04. «Так дымно, что в зеркале нет отраженья…» (3:42)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0746902B513BA866D0B2B6AE6E337FDA0074634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515329   (169747) от 07.12.2021
+
+VA - Fall Winter Moods (Atmospheric Chill and Electronic Jazzy Sounds) (2021) [AAC|~285 Kbps] <Electronic, Nu Jazz, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P. A. Jeron, Peter De Girolamo - City Fashion (3:50)
+02. DOUT.D - Hope (1:49)
+03. Paolo Sessa, Polose - White Paper (3:54)
+04. Anduze - Julie (3:27)(   Читать дальше...   )Жанр: Electronic, Nu Jazz, Chill OutПродолжительность: 01:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A80A766C829ACA605AD0849CF12F3AD0003C6C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515496   (169745) от 07.12.2021
+
+VA - Urban Soulful Grooves, Vol. 2: Urban Vibes for Urban People (2021) [AAC|~317 Kbps] <Chill Out, Downtempo, Soulful House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Keep My Love (Original Mix) (5:46)
+02. The Upsetter, Yasirah Bhelz - Rejection (Original Mix) (7:09)
+03. Marie Therese - Below the Horizon (Original Mix) (6:16)
+04. J.Axel - As Love Decay (Original Mix) (5:19)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Soulful House, Deep HouseПродолжительность: 01:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BCD21FB9F211E7C3B95B6C94779CB91C7ED24B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515221   (169740) от 07.12.2021
+
+VA - A Tribe Called Kotori 4 (2020) [AAC|~324 Kbps] <Progressive House, Deep House, Downtempo, Afro House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Oasis - Ophera (7:42)
+02. SevenJune, Ian Ludvig - Last Nomads (7:20)
+03. Oliver Koletzki - Rainbow Serpent (Iorie Remix) (7:39)
+04. Luke Alessi - The Wheatfields (8:14)(   Читать дальше...   )Жанр: Progressive House, Deep House, Downtempo, Afro HouseПродолжительность: 01:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8C748668DE9FA8360DDAA36B1E0B349DE653EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515563   (169717) от 07.12.2021
+
+VA - Finesse Jazz, Vol.2 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coolcut - Please Come Home (Smooth Radio Edit) (4:26)
+02. Jizz Jazz - Just a Friend (Tenderly Mix) (4:19)
+03. Jazz Breezin - Black or White (For Couples to Make Love) (5:17)
+04. Jazzy Brazzy - Touch Me Kiss Me (Instrumental Mix) (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06969703090D20368C8B42F636C01C8B1AFDBF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515261   (169703) от 07.12.2021
+
+VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 4 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamw41ker - Lullaby (2:06)
+02. Openzone Bar - Caribbean Nights (3:45)
+03. T2'n - Ataraxia Rouge (2:14)
+04. Living Room - Wisdom & Freedom (2:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF09F955FDE43276A7ADAA837C606858D4B4EA7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515333   (169698) от 07.12.2021
+
+VA - Heart of Electronica (Chillwave Downtempo Moods) (2019) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sofa Groovers - Stop Here (Chill Trip Mix) (2:56)
+02. Influenzer - Lofi Smoke (1:46)
+03. Roleystone, Rebel Angel - First Day (Enigmatic Dubstep Chill Mix) (4:04)
+04. Substrata - High Love (Chillax Mix) (4:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CAF075D87710A4D8A860F384B2928C675A19083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515564   (169697) от 07.12.2021
+
+VA - Finesse Jazz, Vol.3 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderphazz - Stories And Lies (4:04)
+02. Gary Rosenblatt - Nightmoves (Guitarras de Luna Mix) (4:22)
+03. Smooth Jazzerz - Look to the Future (Night Lounge Mix) (4:54)
+04. Redundant Mankind - Alpaca (Chillax Saxy Mix) (3:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0365B3CF50BC88285C2E5A583F9D6C48FCC8C9E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515293   (169692) от 07.12.2021
+
+VA - Best of Smooth Lounge, Vol. 2 (A Finest Selection of Chill & Modern Bar Tracks) (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CiYou - Downtown Nights (4:39)
 02. Soundset City - Bar Nights (3:31)
-03. Soundset City - Lounge (Sun Is Shining Mix) (3:52)
-04. CiYou - Merge Of Delays (2:03)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:05:31
+03. Audiozoom - Lounging Keys (4:46)
+04. Jean Mare - Adlipi (2:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:274AC542A9821133731A009D5300B6A0E2DB7288
+magnet:?xt=urn:btih:2585ABFF76217B631515FBA4AD10E0DE80E43DFE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +605,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498988   (237459) от 14.10.2021
+###  Публикация: 1430710   (169687) от 11.12.2020
 
-VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 3 (2017) [AAC|~309 Kbps] <Easy Listening, Lounge, Nu Jazz>
+Владимир Высоцкий - Оригинал седьмой (октябрь 1974 года, дополнение 1971 г. дома у Высоцкого) (2020) [AAC|~234 Kbps] <Acoustic, Chanson, Ballad>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237459.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nightbar Jazz - Blue Hour (Electric Guitar Mix) (3:26)
-02. Velvet Dreamer, Tim Gelo - Blue Horizon (4:47)
-03. Jean Mare - Thinking About You (Lounge Mix) (4:51)
-04. Soundset City - One Night with You (Cool Lounge Cut) (4:07)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 02:35:57
+01. Очи чёрные. Погоня (2:46)
+02. Очи чёрные. Старый дом (2:58)
+03. Инструкция перед поездкой за рубеж, или Полчаса в месткоме (5:08)
+04. Куплеты Бенгальского (2:11)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:44:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0DC25C9C3576E93299C9D8689CBD4E226A3D669
+magnet:?xt=urn:btih:79AED4552B5FF2AFCAA887CA1E2D13D5D8DD0BCD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +634,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501695   (237450) от 14.10.2021
+###  Публикация: 1515503   (169682) от 07.12.2021
 
-VA - Luxury Lounge Sunset, Vol. 3 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Urban Soulful Grooves, Vol. 3: Urban Vibes for Urban People (2021) [AAC|~309 Kbps] <Chill Out, Downtempo, Soulful House, Deep House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237450.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roberto Bronco - River (5:20)
-02. Urban Phunk Society - Shadow Play (3:11)
-03. Worldtraveller - The Rory Glory Smokadelic (Bloomdub) (3:50)
-04. Velvet Dreamer, Tim Gelo - Deserted Beach (5:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:15:13
+01. Joy Legend - Shallow Dive (Original Mix) (4:17)
+02. Soul Trend - Before It Gets Too Late (4:47)
+03. Lounge Groove Avenue - Thoughts (Original Mix) (4:32)
+04. Fl!p - Oh, and I Like You (Simply Chill Remix) (4:35)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Soulful House, Deep HouseПродолжительность: 01:30:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FD0BAD409F5AC3A89B6C0F7F15470A2BBC44E68
+magnet:?xt=urn:btih:EAECF4F6FF37EFA0BC1C31FF3196DA523127A58D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +663,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502107   (237441) от 14.10.2021
+###  Публикация: 1430691   (169677) от 11.12.2020
 
-VA - Playa del Lounge 3 (2012) [AAC|~324 Kbps] <Lounge, Downtempo, Ambient>
+Сплин - Вира и майна (2020) [AAC|~332 Kbps] <Rock, Alternative>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237441.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roger Shah - Island (Album Mix) (4:57)
-02. Bjorn Akesson, Betsie Larkin - Let It Shine (Walsh & McAuley Sunset Mix) (4:15)
-03. Hysteria! - Release My Heart (Chillout Mix) (3:37)
-04. Ana Criado - Afterglow (CJ RcM & Seven24 Chillout Remix) (5:31)(   Читать дальше...   )Жанр: Lounge, Downtempo, AmbientПродолжительность: 02:37:03
+01. Призрак (4:14)
+02. За семью печатями (3:22)
+03. Беги, моя жизнь (4:29)
+04. Джин (4:01)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:44:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6ED037EBCCE077B9B59A57089E02F8D5E1AE1BBC
+magnet:?xt=urn:btih:A5A810D0E57229F5EB7DE7AB465B3BD7D021FA1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +692,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502877   (237402) от 16.10.2021
+###  Публикация: 1515504   (169672) от 07.12.2021
 
-Autumn Tears - The Glow of Desperation (2021) [AAC|~322 Kbps] <Gothic, Neoclassical>
+VA - Urban Soulful Grooves, Vol. 4: Urban Vibes for Urban People (2021) [AAC|~323 Kbps] <Chill Out, Downtempo, Soulful House, Deep House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237402.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Shadow or Perseverance (3:10)
-02. Cast Your Eyes to Behold Me (4:31)
-03. For Only a Day (4:35)
-04. Reunion (3:50)(   Читать дальше...   )Жанр: Gothic, NeoclassicalПродолжительность: 01:02:18
+01. Pier-O - Funkadelphia Love Story (5:15)
+02. Marga Sol - Closer, Longer (5:27)
+03. Kostafunk, Chidi - Paradise (Instrumental Mix) (8:19)
+04. Schwarz & Funk - Seawind (Beach House Mix Radio Cut) (3:01)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Soulful House, Deep HouseПродолжительность: 01:19:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:716FB4564218B30B3A7BECEB35A0ECA99CF9A419
+magnet:?xt=urn:btih:595039CD20ED16FDC2E739B5F29679D60EA569CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,289 +721,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502906   (237388) от 16.10.2021
+###  Публикация: 1515275   (169666) от 07.12.2021
 
-Lords of Black - Alchemy of Souls, Pt. II (2021) [AAC|~315 Kbps] <Metal>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (alchimia Confessio 1458 A.D.) (1:00)
-02. Maker of Nothingness (5:05)
-03. What's Become of Us (4:58)
-04. Bound to You (5:21)(   Читать дальше...   )Жанр: MetalПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67AE6CAA0E354F25B2875C2BEF47B628806AC545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502886   (237343) от 16.10.2021
-
-Lisa Gerrard, Jules Maxwell - Burn (2021) [AAC|~330 Kbps] <Gothic, Neoclassical, Darkwave>
+VA - Chill Out 2022 (Compiled by DoctorSpook) (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237343.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heleali (The Sea Will Rise) (5:48)
-02. Noyalain (Burn) (4:13)
-03. Deshta (Forever) (5:14)
-04. Aldavyeem (A Time To Dance) (4:37)(   Читать дальше...   )Жанр: Gothic, Neoclassical, DarkwaveПродолжительность: 00:35:14
+01. Barby - Angel Droid (9:32)
+02. Sixsense - Wherever You Are (4:17)
+03. The Big Port - Another World (4:40)
+04. TrapaleX - BimBam (3:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:06:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6B04543738836FEF23F8F9ACB46326D042DCDE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504353   (237170) от 23.10.2021
-
-VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 3 (2021) [AAC|~318 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corrado Saija - Blue Girl (Electric Version Edit) (3:39)
-02. Velvet Dreamer, Tim Gelo - Chasing The Moment (5:30)
-03. Harrison & Daicz - Una Luz Tan Brillante (Galician Version) (6:12)
-04. Keisuke Sakai - Nodoka (Lemongrass Sweet Chilli Remix) (3:56)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD49BCAC3FA262CB258E136DB6F7F22BA261A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504388   (237165) от 23.10.2021
-
-VA - Autumn Breeze, Vol. 3: Chill Sounds for Relaxing Moments (2019) [AAC|~327 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cinematic - Hello (Ceremonic Mix) (6:39)
-02. Jazz City - Good Times (The Smooth Flow Mix) (5:44)
-03. Sofa Sweeper - Romeo Is Dreaming (Slow Motion Mix) (5:08)
-04. Airstream - The Darkside (Low Light Mix) (6:59)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92353288EC4C5F52F35997AB48CAF68AA45B9CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504389   (237127) от 23.10.2021
-
-VA - Autumn Breeze, Vol. 4: Chill Sounds for Relaxing Moments (2020) [AAC|~337 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Borell - Ambivalent (Black and White Cut) (4:14)
-02. Cinematic - Good News (Pianodream Mix) (5:20)
-03. Cafe Americaine - Feeling Elephants (Slowback Mix) (5:24)
-04. Lovechair - Promenade (At the Sea Mix) (5:10)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AEF35EF443E5FC47E3D56E6FA1423DEC150E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504385   (237115) от 23.10.2021
-
-VA - Autumn Breeze, Vol. 1: Chill Sounds for Relaxing Moments (2017) [AAC|~323 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mahoroba - Chimes in Motion (Passion Cut) (5:20)
-02. Noise Boyz - It's All About Autumn (Jazzy Fingers Mix) (5:48)
-03. Frank Borell - Beauty Lights (Sentimental Mix) (4:52)
-04. DJ Maretimo - Una Historia de la Mar (Siesta Stories Mix) (6:38)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 03:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FC8403CAF1A85FF4D1AA8D8678C3D0E46AB54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504387   (237103) от 23.10.2021
-
-VA - Autumn Breeze, Vol. 2: Chill Sounds for Relaxing Moments (2018) [AAC|~328 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Borell - Enter the Light (Buddha Gold Mix) (5:47)
-02. Lovechair - Promenade (Smaller Things in Life Cut) (5:08)
-03. Airstream - Mellow Tone (Eternity Mix) (5:51)
-04. Jazzy James Jr. - On a Atmospheric Trip (Jazzlounge Cut) (4:52)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 04:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34180B9B43AECB644B9EB2867F82F580CDF8FEC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505129   (236724) от 26.10.2021
-
-VA - The Essential Downtempo: Chillout Your Mind (2021) [AAC|~314 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florzinho - Onenness Meditation (Original Mix) (8:07)
-02. Marga Sol - Night Sky (Original Mix) (4:17)
-03. La Estación Del Mar - A La Sombra De Un Roble (4:25)
-04. Michael e - Matterhorn (Original Mix) (4:05)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72615E7A9DABF6BDBE905A84D9A416CFD07F9083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505326   (236669) от 26.10.2021
-
-Fausto Papetti - Bonjour France (1998) [AAC|~336 Kbps] <Jazz, Easy Listening>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Que Reste T Il De Nos Amours (2:21)
-02. Melancolie (2:28)
-03. Un Uomo E Una Donna (3:03)
-04. Je T'amerai Jusqua'a' La Fin Du Monde (2:57)(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E76E7B8BBE6F76DDAAD27F32170F241A2D64DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505318   (236634) от 26.10.2021
-
-Fausto Danieli - Sax Pour Danser (1985) [AAC|~313 Kbps] <Jazz, Easy Listening>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Way (3:10)
-02. Feelings (3:09)
-03. Love Story (2:37)
-04. La Mer (4:15)(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2F737B11967EF5235FB1DB7D4D1FAC1C07C109
+magnet:?xt=urn:btih:E1498448C828D9C8BF460124AB7D4B54AF836142
 ```
 
 https://mybot314.ru/tekegram_catalog/

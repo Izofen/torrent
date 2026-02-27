@@ -1,3 +1,61 @@
+###  Публикация: 1610304   (1041524) от 10.02.2023
+
+Laya Project - Laya Project  (2006)  2CD [FLAC|Lossless|tracks + .cue] <World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041524.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD ONE:
+01. Glorious Sun Remix
+02. Muliya
+03. A New Day(   Читать дальше...   )Жанр: WorldПродолжительность: 45:06 + 50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16382E1975297FA8AC101913413F3F566671ED75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610792   (1041359) от 11.02.2023
+
+Indian Spirit - Discography (2009 - 2020)  6 Releases [MP3|320 Kbps] <Native American, New Age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Of Fire [05:03]
+02. The Counterclockwise Circle Of Dance [05:46]
+03. Return From River Island [06:11]
+04. Dance Of The Warrior [06:01](   Читать дальше...   )Жанр: Native American, New Age, World musicПродолжительность: 05:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D78D540F1B3ED8BCCD8F0FEED70A650A04DE68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438462   (1040616) от 10.01.2021
 
 Jim Brickman - The Ultimate Valentine's Day (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Easy Listening>
@@ -687,64 +745,6 @@ VA - Enigma-Forest-Transit 5 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:970CEA88FE6E2CA46FC22CF3BB2325C7938FA93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617225   (1034538) от 09.03.2023
-
-VA - Enigma-Forest-Transit 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. eRa - Sempire d'Amor
-02. Delerium - Silence
-03. Beautiful World - Fearless
-04. Pandana - One Man Woman(   Читать дальше...   )Жанр: Electronic, New Age, DowntempoПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403B15D5D350F670374AC0CD136D50126E6B652F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616943   (1034536) от 09.03.2023
-
-VA - Enigma-Forest-Transit 3 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Physical Motion - Ave Maria
-02. Gregoria - The Rhythm
-03. Karunesh - Call of the Tribes
-04. Beautiful World - The Silk Road(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996CDC8270F2E41DB4B988B74ECA92C64E451783
 ```
 
 https://mybot314.ru/tekegram_catalog/

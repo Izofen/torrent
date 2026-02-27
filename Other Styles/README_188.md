@@ -1,3 +1,67 @@
+###  Публикация: 457630   (94708) от 26.02.2012
+
+Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takaya Mija (05:36)
+02. Farias (05:26)
+03. Gerda (05:59)
+04. Benga (04:44)
+05. Sagrabat (Diumgo) feat. Julien Jacob (03:34)
+06. Oikoumene (07:41)
+07. Tapachula (07:09)
+08. Intifadah (05:13)
+09. Clean Kron (03:25)
+10. Sol De Morte (03:44)(   Читать дальше...   )2012Жанр: Rock, Folk, DarkwaveПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A66B199848D1339B4B472134E2F224F0B41A098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821995   (94701) от 04.10.2025
+
+VA - The Orient Collective: Ancient Spirits (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
+02. Inessa, Tibetania - Kalahari (Original Mix) (5:45)
+03. Ildar Bik, Tibetania - Kids (Original Mix) (6:08)
+04. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C943EB4F92FF9021AD759457C15F6034C005D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822104   (94498) от 05.10.2025
 
 VA - The Orient Collective: Nomadic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -799,76 +863,6 @@ VA - Шедевры православной музыки (2000) [FLAC|Lossless]
 08. Богородице Дево, радуйся
 09. Свете тихий
 10. Трисвятое(   Читать дальше...   )2000Жанр: Церковные песнопенияПродолжительность: 01:15:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481405   (87868) от 11.04.2012
-
-VA - Шедевры православной музыки (2000) [MP3|320 кб/с]<Церковные песнопения>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. От юности моея
-02. Владыка Дней Моих
-03. Отче Наш
-04. Горе мне
-05. Кресту Твоему поклоняемся
-06. Да исправится молитва моя
-07. Бродил я в далекой чужой стороне
-08. Богородице Дево, радуйся
-09. Свете тихий
-10. Трисвятое(   Читать дальше...   )2000Жанр: Церковные песнопенияПродолжительность: 00:01:15:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480332   (87800) от 11.04.2012
-
-Сёстры Берри – Моё счастье и Субботний вечер (2002) [FLAC|lossless]<Jewish Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain Kik Auf Div
-02. Papirossen
-03. Yuh Mein Tiere Tochter
-04. A Lidele
-05. Chiribim Chiribom
-06. Passver Medley
-07. A Byssele
-08. Yingele Nit Vain
-09. Rumeine
-10. Wie Nemt Men A Byssele(   Читать дальше...   )2002Жанр: JewishПродолжительность: 01:59:12
 
 ## Скачать торент
 ```bash

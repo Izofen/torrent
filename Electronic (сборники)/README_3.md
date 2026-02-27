@@ -1,3 +1,61 @@
+###  Публикация: 1444150   (1034939) от 31.01.2021
+
+VA - Beautiful Deep House: Night Club DJ Mix (2021) [MP3|320 Kbps] <Deep House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка тем и прекрасна, что способна создавать настроение, да так, что можно весь день ходить окрыленным или же погруженным в себя. Сами собой всплывают воспоминания, рождаются образы и мысли, и вот мы уже целиком и полностью живем в этой музыке, а сердце бьется в такт ритму.001. Cream Bitches - Deep Me
+002. Black Waters - Wanna Be
+003. Tony Franklin - Open Space
+004. Dj Jerry - Keep In Mind(   Читать дальше...   )Жанр: Deep House, Club, DanceПродолжительность: 07:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641D44EC9B39F4A9925E9A7C9364F71D53CDAED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444293   (1034686) от 01.02.2021
+
+VA - Beatport Dance House: Electro Sound Pack #236 (2021) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный танцевальный сборник в стиле танцевального электро хауса, который полностью наполнен качественными хитами электронной сцены. Представленные треки продуманы до самых мелочей и демонстрируют собой истинную музыкальную эстетическую гармонию.001. Bobby Stewart - Flashback
+002. Julian Jordan - Boss
+003. Duke Jones - Suddenly (Dub Mix)
+004. Glock.Lee - Bring The House Down(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA02BE1F7AC7161DA5D2CE4BAFF2AE5938CE43A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444789   (1034231) от 03.02.2021
 
 VA - Intensity: Trance Compilation (2021) [MP3|320 Kbps] <Trance, Electro>
@@ -687,64 +745,6 @@ VA - Love Juice: Naked Bass Party (2021) [MP3|320 Kbps] <D&B, Bassline>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B5E1571870AEFA77F6173FEDAFE5B337EF4076A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447141   (1032089) от 12.02.2021
-
-VA - Deep House Deluxe: Lounge Party (2021) [MP3|320 Kbps] <Tech, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы являетесь поклонником не тривиальной современной электронной музыки в стиле Deep House, то вам несомненно приглянется этот микс-сборник. Это богатый мир музыки, в котором не сложно потеряться и не заметить течение времени. Красивые аранжировки, прогрессивный саунд и мягкое выделяющееся звучание не оставят равнодушным ни одного уважающего себя фаната электроники.001. Solid Phonic - Road For Me
-002. Antoine Lacroix - Double String
-003. R.I.P Bestia - Lost Tribukha
-004. Carlo Peralta - Cala Codolar(   Читать дальше...   )Жанр: Tech, Deep HouseПродолжительность: 11:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2945BD729D5FC2FF06BBB920F1BE3519FD2C1C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447138   (1032088) от 12.02.2021
-
-VA - Dream Dance Party (2021) [MP3|320 Kbps] <Techno, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032088.jpg" />
-</div>
-
-
-###  Подробнее
-
-С музыкальной подборкой "Dream Dance Party" Вы легко сможете подобрать для себя самые любимые треки, а также отсортировать, что и когда слушать: под хорошее настроение, жаркую погоду, веселую вечеринку дома, для пробежек или за рулём своего автомобиля.001. Netzer Battle - Xeno Rhinos
-002. Akis Ziak - Oscillation
-003. Pwcca - Hydrolysis
-004. Daniel Curley - You Liking(   Читать дальше...   )Жанр: Techno, EDMПродолжительность: 12:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4570F0FDF49F65B3C1E7C8E03001293B029FCEF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1336782   (277528) от 08.11.2019
+
+Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freaks (02:08)
+02. I'm Eleanor Reed (02:40)
+03. Time Bubble (01:34)
+04. She Looks Like an Angel (01:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0DEAE5A4E6F8E1BC723DB5F1C54BA93788BAEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336783   (277526) от 08.11.2019
+
+Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freaks (02:08)
+02. I'm Eleanor Reed (02:40)
+03. Time Bubble (01:34)
+04. She Looks Like an Angel (01:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45824C50A00A5DC1E9A30187576167C658BF026C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 170341   (277404) от 25.11.2018
 
 Зодиак - 7 альбомов (1980-2008) [MP3|320 kbps]<Instrumental>
@@ -684,64 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8506B3631D55FE06318A1658CF89AEAC1D6B2AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083415   (273472) от 16.12.2016
-
-Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёздные войны. Истории (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's Here For Us (03:20)
-02. A Long Ride Ahead (03:56)
-03. Wobani Imperial Labor Camp (00:54)
-04. Trust Goes Both Ways (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1087B4F94CF0A71134112FA3A4AA7FB521830C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431150   (273462) от 11.11.2019
-
-Kevin Kern - Enchanted Piano (2011) [APE|Lossless]<New Age ,Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kevin Kern - Enchanted Piano (2011)
-Год: 2011
-Жанр: New Age , Piano
-Продолжительность: 00:43:00(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44CC487DEC53CFF8EF2C0622E28DFF963D56E02
 ```
 
 https://mybot314.ru/tekegram_catalog/

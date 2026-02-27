@@ -1,3 +1,32 @@
+###  Публикация: 1768139   (21676) от 12.04.2025
+
+Eric Clapton - Compilation (1966-2024) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_21676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Ain't Gonna Stand For It (Reptile 2001)
+02. 32-20 Blues (Me & Mr. Johnson 2004)
+03. Angel (Old Sock 2013)
+04. Anyway The Wind Blows (& JJ Cale) (The Road To Escondido 2006)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 06:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AAC3494885BC95B056CAAB5BB650A3AC1EE0D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762624   (21656) от 12.04.2025
 
 Rag'n'Bone Man - Compilation (2012-2024) [MP3|320 Kbps] <Neo blues, Soul>

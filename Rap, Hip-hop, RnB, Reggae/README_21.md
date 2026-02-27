@@ -1,3 +1,32 @@
+###  Публикация: 1060655   (453220) от 08.10.2016
+
+Apollo Brown & Skyzoo - The Easy Truth (2016) [FLAC|Lossless|tracks] <Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soapbox (0:50)
+02. One In The Same (Feat. Patty Crash) (3:54)
+03. Jordans & A Gold Chain (2:48)
+04. A Couple Dollars (Feat. Joell Ortiz) (4:44)(   Читать дальше...   )Производство: Mello Music Group – MMG-00094-2Жанр: Hip HopПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63A53EA45F59F78D715781A6E11B35CE21A4F995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322008   (450631) от 28.08.2019
 
 Kaisa - K.M.K. (2010) Bonus Edition [MP3|320 Kbps] <Rap>
@@ -719,35 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D54AA06DB1EFC8A576959CFF5E9CFFE70CC250E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413529   (408423) от 04.10.2020
-
-Зараза - Остров невезения (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тебе лучше не знать [03:24]
-02. Выстрел [03:12]
-03. Хип-хоп мёртв [03:18]
-04. Выход [03:26](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFE73D6EDECD4713F425449C477873598E35FDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

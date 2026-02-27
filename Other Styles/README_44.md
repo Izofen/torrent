@@ -1,3 +1,73 @@
+###  Публикация: 767104   (865861) от 17.03.2014
+
+VA - 40 Kansainvalista Iskelmahittia (2011) 2CD [MP3|320 кб/с]<Instrumental, Guitar, Beat, Rautalanka, Surf>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Spectre - Kuningaskobra (Snake Shake)
+02. The Fellows - Surujen kitara (Johnny Guitar)
+03. The Diamonds - Poika varjoiselta kujalta (Guaglione)
+04. The Cruels - Sua vailla (Tres Palabras)
+05. The Fellows - Kultaiset korvarenkaat (Golden Earrings)
+06. The Regends - Kaipaus (Toska)
+07. The Skylights - Besame Mucho
+08. The Webasto - Se jaakoon huomiseen (It Hurts To Say Goodbye)
+09. Hukat - Jaljet hiekassa (La Playa)
+10. The Saints - Romantica(   Читать дальше...   )Жанр: Instrumental, Guitar, Beat, Rautalanka, SurfПродолжительность: 01:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66C8B95494B684FDE410D409B0C64F258366779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 766895   (865735) от 17.03.2014
+
+Metronomy - Love Letters (2014) [FLAC|Lossless]<Indie Pop, Indie Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Upsetter (04:15)
+ 02. I'm Aquarius (04:01)
+ 03. Monstrous (03:53)
+ 04. Love Letters (05:15)
+ 05. Month of Sundays (03:26)
+ 06. Boy Racers (04:18)
+ 07. Call Me (03:51)
+ 08. The Most Immaculate Haircut (04:30)
+ 09. Reservoir (03:14)
+ 10. Never Wanted (04:36)Жанр: Indie Pop, Indie RockПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF2CBD41A6D46BE8937066D095DFA541CF38EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999132   (865724) от 21.03.2016
 
 Jason Graves - Far Cry Primal (Original Game Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
@@ -732,58 +802,6 @@ CD1:
 [04:10] 07. Desolation Zone - untitled
 [05:41] 08. Nekyia - untitled
 [05:40] 09. Sator Absentia - Knurd(   Читать дальше...)Жанр: Neofolk; Neoclassical; Industrial
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189218   (861333) от 06.04.2010
-
-VA - Relaxation (9 CD) (2006) [APE|Lossless]<New Age / Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age / Relaxation
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189811   (861059) от 06.04.2010
-
-Atlas - Прогревочный и размагничивающий диск (2006) [FLAC|Lossless]<Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861059.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Atlas burn-in & demagnetizing disc (00:10:41)Жанр: TestПродолжительность: 00:10:41
 
 ## Скачать торент
 ```bash

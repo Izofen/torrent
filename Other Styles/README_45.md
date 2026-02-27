@@ -1,3 +1,55 @@
+###  Публикация: 189218   (861333) от 06.04.2010
+
+VA - Relaxation (9 CD) (2006) [APE|Lossless]<New Age / Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age / Relaxation
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189811   (861059) от 06.04.2010
+
+Atlas - Прогревочный и размагничивающий диск (2006) [FLAC|Lossless]<Test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861059.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Atlas burn-in & demagnetizing disc (00:10:41)Жанр: TestПродолжительность: 00:10:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109183   (860759) от 26.02.2017
 
 The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) [MP3|320 Kbps] <Soundtracks, Classical, Epic>
@@ -752,73 +804,6 @@ VA - New Age Essence (2012) [MP3|320 кб/с]<New Age, Relax, Meditation>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED5E1DB293AA01E139673A752CEFBC4E3116925F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647653   (856835) от 23.04.2013
-
-VA - Anos 60: Sucessos Inesqueciveis De Uma Decada (5CD) (1998) [MP3|320 кб/с]<Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - The Lion Sleep Tonight - Norman Percival e Orquestra -
-02 - Puppet on a String - Frank Comstock e Orquestra -
-03 - Itsy Bitsy Teenie Weenie Yellow Polka Dot Bikini - Leslie Lewis e Orquestra - -
-04 - Ob-La-Di Ob-La-Da - Christian Colombier e Orquestra -
-05 - Yellow Submarine - The Mike Morrison Congregation -
-06 - Rocking Hoose - Andre Brasseur, Teclado e Orquestra -
-07 - Happy Together - Ralph Benatar e Orquestra -
-08 - Satisfaction - The Mayfair Symphony Orchestra -
-09 - She Loves You - Ralph Benatar e Orquestra -
-10 - I'm Believer - Arthur Greenslade e Orquestra -(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F8E1515C0801556C9D82ABC06446DB5460CD98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647356   (856708) от 23.04.2013
-
-Shinichi Kinoshita & Roby Lakatos - SO GU Kinoshita Meets Lakatos (2002) [APE|Lossless]<World, Classical Violin & Tsugaru Shamisen>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Csardas [07:47]
-02. Hanasachi [07:04]
-03. On The Foot of Csitari Mountain [08:16]
-04. Hora [07:57]
-05. Kobe Rumba [05:57]
-06. So Gu [10:35]
-07. Ichie [05:11]Жанр: World, Classical Violin & Tsugaru ShamisenПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

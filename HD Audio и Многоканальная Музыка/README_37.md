@@ -1,3 +1,212 @@
+###  Публикация: 570613   (386908) от 07.11.2012
+
+Los Angeles Guitar Quartet - LAGQ Latin (2002) [DSD 2.0 / DST 5.1|1bit/2822,4kHz|SACD-R]<Classical, Latin, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_386908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragile 03:59
+02. Hasta Alicia Baila 05:09
+03. Fuga Y Misterio 03:52
+04. Forrobodo 06:23
+05. Cuban Landscape With Rain 07:01
+06. La Trampa 05:02
+07. Paisaje Mexicano 03:09
+08. Danza De Jalisco 03:45
+09. Sevillanas 03:13
+10. Syzygy 07:48(   Читать дальше...   )Жанр: Classical, Latin, AcousticПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B31BDBB53DB02025D22045494D8E840C16FD5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571724   (386777) от 07.11.2012
+
+Bob Dylan - Limited Edition Catalog Box Set (2003 Remaster) (1963-2001) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Folk Rock, Blues Rock, Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_386777.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. All I Really Want To Do - 3:13 / 3:13
+2. Love Minus Zero/No Limit - 2:48 / 2:48
+3. Stuck Inside Of Mobile With The Memphis Blues Again - 7:04 / 7:04
+4. Tangled Up In Blue - 5:45 / 5:43(   Читать дальше...   )Жанр: Folk Rock, Blues Rock, Country RockПродолжительность: (2.0 / 5.1): 00:33:17 / 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B87EBF1B71E006B83E95C5A338FF6F1381E5EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067636   (386261) от 29.10.2016
+
+Yello - Toy (2016) [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_386261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Frautonium Intro
+02 Limbo
+03 30'000 Days
+04 Electrified II(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A87B6CD10F54A36CFEA380C1FCA96B20E93C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326269   (385110) от 20.09.2019
+
+Yujiro Mabuchi '68 All Stars - Okizari Ni Shita Kanashimi Wa / Soshun No Minato (1973) [FLAC 2.0|48/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385110.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ai No Banka
+ A2 Okizari Ni Shita Kanashimi Wa
+ A3 Maruyama Hanamachi Haha No Machi
+ A4 Ken To Mary - Ai To Kaze No Yoni(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62046206D8BC624EE55326F6E99665A95C91B372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068002   (384781) от 30.10.2016
+
+В. Полянский - П. Чайковский. Литургия Святого Иоанна Златоуста (1990) [WavPack|96/32|tracks|Vinyl-Rip] <Classical, Vocal, Religious>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Господи помилуй  2:58
+02. Слава Отцу и Сыну и Святому Духу  3:36
+03. Приидите, поклонимся  4:36(   Читать дальше...   )Жанр: Classical, Vocal, ReligiousПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09940735D84F1A49E0FD1EF3951DC9C9BA281A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833575   (384428) от 22.10.2014
+
+Пикник - Чужестранец (2014)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384428.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Кем бы ты ни был (4:00)
+A2. Чужестранец (3:54)
+A3. Потерянный (3:57)
+A4. Азбука Морзе (4:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C17B31487749AA733E92EA929CC704A65804826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068063   (384349) от 30.10.2016
+
+Кино - Кино (1990) [FLAC 2.0|32/192|image + .cue|Vinyl-Rip] <Rock, Русский Рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_384349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Кончится лето
+02. Красно-желтые дни
+03. Нам с тобой(   Читать дальше...   )Жанр: Rock, Русский РокПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B6824B5AE132B1C5DE346D91FA0155CDD32013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574673   (383653) от 06.09.2022
 
 VA - Folk Rock Collection 1965 - 1975 (2022) Compilation, Unofficial Release [FLAC 2.0|44.1/24|image+.cue|MC-Rip] <Folk Rock>
@@ -540,215 +749,6 @@ Jive Bunny And The Mastermixers - два магнитоальбома (1989,1990
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DBD1AB79BEA880E157D518356111B05C2833737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327959   (367684) от 28.09.2019
-
-The Prodigy - No Tourists (2018) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Drum & Bass, Big Beat>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367684.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Need Some1 (2:43)
-A2. Light Up The Sky (3:20)
-A3. We Live Forever (3:43)
-B1. No Tourists (4:18)(   Читать дальше...   )Жанр: Drum & Bass, Big BeatПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0828362A46276D448EBE5A112DF8077F3ED08F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328054   (367505) от 28.09.2019
-
-Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sekai Wa Futari No Tameni
-02. Kitaguni No Aoi Sora
-03. Koi
-04. Nagisa No Senorina(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 252811   (366279) от 03.11.2010
-
-Robert Miles - Organik (2001) [DTSCD][UP]<Trance, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_366279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tsbol
-02. Separation
-03. Paths
-04. Wrong
-05. It's All Coming Back
-06. Pour Te Parler
-07. Trance Shapes
-08. Connections
-09. Release Me
-10. Improvisations Part 1(   Читать дальше...   )Жанр: Trance, InstrumentalПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836126   (366127) от 30.10.2014
-
-Giorgio & Martin Koppehele - Lichtmond 3: Days Of Eternity (2014) [DTS-ES Discrete 6.1 44.1/16 | .wav+.cue (Blu-ray)] <NewAge|Ambient>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366127.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nightflight to Chronos (Part 1)
-2. Nightflight to Chronos (Part 2)
-3. Feel the Spirit
-4. Wheel of Time(   Читать дальше...   )Жанр: NewAge, AmbientПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCA963D79C779DE628ADCE4895E1F312BB0E161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255147   (365728) от 17.10.2018
-
-Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapid Fire (4:08)
-02. Metal Gods (4:00)
-03. Breaking The Law (2:36)
-04. Grinder (3:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03BE611D1BAD9E26B3E4A979616B4983A45386C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416428   (364973) от 17.10.2020
-
-Santana - Santana III (1971) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Psychedelic Rock, Latin>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364973.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Batuka
-A2 No One To Depend On
-A3 Taboo
-A4 Toussaint L'Overture(   Читать дальше...   )Жанр: Psychedelic Rock, LatinПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AE9BFE323CA7F40FB23B1DE856B28C914BD70E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576418   (364260) от 15.09.2022
-
-Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Blues, Rhythm & Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы Все Любим Музыку
-02. Разбитое Сердце
-03. Старая Река
-04. С Тех Пор, Как Встретил Тебя(   Читать дальше...   )Жанр: Blues, Rhythm & BluesПродолжительность: 00:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4CC52CC861C73F32509F20ABB73900DBBBF8C18
 ```
 
 https://mybot314.ru/tekegram_catalog/

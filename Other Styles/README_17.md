@@ -1,3 +1,61 @@
+###  Публикация: 1358382   (969632) от 07.02.2020
+
+VA - Birds of Prey / Хищные птицы (Потрясающая история Харли Квинн): The Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969632.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:14| 01. Doja Cat - Boss Bitch
+|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
+|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
+|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74DAA493A30EB4F046789261BD6BF3130376FEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358227   (969562) от 07.02.2020
+
+VA - Birds of Prey / Хищные птицы (Потрясающая история Харли Квинн): The Album (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969562.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:14| 01. Doja Cat - Boss Bitch
+|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
+|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
+|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311378A72E690E63E71DF6D75707451E779CD6A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 618300   (969541) от 14.02.2013
 
 Pucaramanta - Sound of the spirits (2010) [MP3|~190 кб/с (V2)]<Native American,New Age,Ethnic,Folk>
@@ -721,64 +779,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAB78E5DF6025CE9068DF8650E16D7228B365E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978160   (964709) от 22.01.2016
-
-Jim Brickman - Believe (2014) [MP3|320 кб/с] <New Age, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunshine in the Rain
-02. The Road Before Us
-03. Daybreak
-04. As the River Flows(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3540745F64BD706D78D64BE4359632F535D8B008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359411   (964191) от 12.02.2020
-
-VA - Instrumental Moods (2002) [FLAC|Lossless|tracks + .cue] <Instrumental, Latin, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bert Kaempfert - A Swingin' Safari (3:07)
-02. Al Hirt - Java (1:56)
-03. Perez Prez Prado - Patricia (2:06)
-04. Henry Mancini - Baby Elephant Walk (2:43)(   Читать дальше...   )Жанр: Instrumental, Latin, JazzПродолжительность: 01:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB96286756BBF00DFBEAD158D64D93EFD3EB50CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

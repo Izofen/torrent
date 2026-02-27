@@ -1,3 +1,72 @@
+###  Публикация: 432626   (989619) от 07.01.2012
+
+Deus Ex: Human Revolution (by Michael McCann) (2011) [FLAC|Lossless]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icarus - Main Theme (3:41)
+02. Opening Credits (2:15)
+03. Main Menu (1:50)
+04. First and Last (3:14)
+05. Detroit City Ambient (Part 1) (2:03)
+06. Detroit Marketplace (3:45)
+07. The Mole (2:24)
+08. Barrett Boss Fight (2:49)
+09. Home (2:17)
+10. Jewel Of The Orient (1:04)(   Читать дальше...   )2011 ||Жанр: Score ||Продолжительность: 01:07:22 ||
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611302   (989392) от 30.01.2013
+
+Quincy Jones / Ray Brown Orchestra - Music From The Adventurers /OST/ (1970) [MP3|320 кб/с]<Jazz, Funk, Soul >
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polo Pony (4:07)
+02. Go Down Dying (4:12)
+03. El Lobo's March (3:47)
+04. Wishful Thinking (2:53)
+05. Gentle Lover (3:12)
+06. Coming And Going (3:26)
+07. Fat Cat Strut (6:07)
+08. Children's Games (4:45)
+09. Love Theme From "The Adventurers" (2:45)Жанр: Jazz, Funk, SoulПродолжительность: 00:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90637152FADAE04E9ECEB52914D3513A06CE23CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 163002   (989361) от 04.01.2010
 
 VA - Tangos de Amor (2002) [FLAC|Lossless]<Tango>
@@ -779,67 +848,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02B317654A07768A71998F5FE588CA0354388B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434927   (985265) от 11.01.2012
-
-Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005) [FLAC|Lossless]<Indian Classical, Bansuri Flute, Meditation, Relax>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Indian Classical, Meditation, RelaxПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434033   (985257) от 11.01.2012
-
-Cat Power - The Greatest (2006) [FLAC|Lossless]<Country Rock, Indie Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Greatest :: 03:22
-02. Living Proof :: 03:11
-03. Lived In Bars :: 03:44
-04. Could We :: 02:21
-05. Empty Shell :: 03:04
-06. Willie :: 05:57
-07. Where Is My Love :: 02:53
-08. The Moon :: 03:45
-09. Islands :: 01:44
-10. After It All :: 03:31(   Читать дальше...   )2006      |Жанр: Country Rock, Indie Rock      |Продолжительность: 00:44:32
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

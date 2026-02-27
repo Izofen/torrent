@@ -1,3 +1,61 @@
+###  Публикация: 1624518   (200287) от 06.04.2023
+
+Король и Шут - Король и Шут (Официальный саундтрек), Часть 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200287.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Прыгну со скалы (Из сериала «Король и Шут»)
+2. Лесник (Из сериала «Король и Шут»)
+3. Внезапная голова (Из сериала «Король и Шут»)
+4. Камнем по голове (Из сериала «Король и Шут»)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B1E3493BFDE0843EAA36BB474D5448DDEC15D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 156512   (199888) от 24.10.2025
+
+Enigma - The Platinum Collection (2009) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_199888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sadeness (Part 1) (4:20)
+02. Mea Culpa (Orthodox Version) (4:01)
+03. Priciples Of Lust (3:27)
+04. Rivers Of Belief (4:24)(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 03:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B2B2433555787882EF95C3CD2DF6E80CD511F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627165   (199392) от 22.04.2023
 
 Ricardo - Klangschalen-Musik (2009) [FLAC|Lossless|tracks + .cue] <Meditative, Tibetan Bowls>
@@ -683,64 +741,6 @@ VA - Atomic Heart, Vol. 3 (Original Game Soundtrack) (2023) [FLAC 24/48|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:116DDB3353491E7E849328DCDBDF8E39DACCAAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588642   (191063) от 06.11.2022
-
-VA - Knockin' on Heaven's Door (1997) [FLAC|Lossless|image + .cue] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gedanken Ьber Das Meer (0:45)
-02. Knockin' on Heaven's Door (4:02)
-03. Love And Rockets (3:24)
-04. Silver Whale (Single Version) (3:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43F4DF302B64818B4141733306852335C9B1785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588749   (191061) от 06.11.2022
-
-VA - Ambient for Relaxation & Meditation Vol. 2 (2022) [MP3|320 Kbps] < Meditation, Relaxing, Spa Music, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skifi - Rainbow Catchers
-02. Yu Nothing - Gathering on the Island  (Day Dream Mix by Masa)
-03. Inerflaya - Osti Reisen
-04. Chris Hauer - Sweet Sun(   Читать дальше...   )Жанр: Meditation, Relaxing, Spa Music, New AgeПродолжительность: 03:45:26 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85235082E5D274F0ED26F89021D386E9EC64EACF
 ```
 
 https://mybot314.ru/tekegram_catalog/

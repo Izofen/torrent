@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1855427   (1058109) от 23.02.2026
+
+Mozzy - Not A Chance In Hell (2026) [MP3|320 Kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wouldn'T Hold You Up [00:01:34]
+02. Not Me [00:02:35]
+03. You Hear Me Tho [00:02:32]
+04. Turnt [00:02:59](   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2B5B8DD655936F2C4F62FE765C96C36BAA6F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854418   (1057451) от 17.02.2026
 
 Johnyboy - Холод 2 (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
@@ -717,35 +746,6 @@ Marty McKay - Plandemic (2023) [MP3|320 Kbps] <Rap Rock, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E78105E8BE1BB2E4C8C781AEC5456F10F6BEB48A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436650   (1043028) от 01.01.2021
-
-VA - Rap Workout (2021) Explicit [MP3|320 Kbps] <Rap, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Busta Rhymes - Gimme Some More (02:38)
-02. Jack Harlow - WHATS POPPIN (02:19)
-03. Ol Dirty Bastard - Shimmy Shimmy Ya (02:41)
-04. Wiz Khalifa - Black and Yellow (03:37)(   Читать дальше...   )Жанр: Rap, PopПродолжительность: 02:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE7CD143708DFE0C1F0E2EF7C025E4E78A64AE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

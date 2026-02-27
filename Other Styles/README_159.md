@@ -1,3 +1,61 @@
+###  Публикация: 1192498   (263100) от 17.12.2017
+
+Gipsy Kings - Instrumental Best (1995) [FLAC|Lossless|image + .cue] <Flamenco, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inspiration (3:47)
+02. Ritmo De La Noche (3:33)
+03. Luna De Fuego (3:45)
+04. Pharaon (4:07)(   Читать дальше...   )Жанр: Flamenco, InstrumentalПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83575BD258EB493AA39A895053676A41618C9519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340462   (262918) от 26.11.2019
+
+Seymour Light Orchestra - That Ole Devil Called Love (1987) [FLAC|Lossless|image + .cue] <Instrumental, Ballad, Contemporary>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_262918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Smile Without You - Barry Manilow (3:15)
+02. Crying - Joe Melson (3:06)
+03. First Time Ever I Saw Your Face - Joe Melson (3:23)
+04. Hard to Say I'm Sorry - Joe Melson (2:59)(   Читать дальше...   )Жанр: Instrumental, Ballad, ContemporaryПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA80903DFB42EBE2CD64FB46B930B584ACA79DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340474   (262906) от 26.11.2019
 
 Imaginary Sound Project - Synthesizer Dreams - World Hits On Synthesizer (1991) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -746,76 +804,6 @@ Amanecer Ecuador - The Wolf Spirit (2008) [MP3|320 кб/с]<New age, Native amer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C614B8EA6509652092E0D1F15106E9627E504758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502404   (259320) от 29.05.2012
-
-VA - Drumming Planet (2003) [MP3|320 кб/с]<Ethnic, Folk, Worldbeat>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Drumming Circle (Professor Trance)
-02. Invocation (Gabriella Roth & The Mirrors)
-03. Keonukpo (Adesa)
-04. The Prodigal Son (Keiya)
-05. The Shisha Room (Solace)
-06. Utsheva (Baul Bishwa)
-07. Sister's Gonna Dance Now(Native Ground)
-08. The Owl Dance (Gomer Edwin Evans)
-09. Talking Drums (Ariel Kalma)
-10. Samhan (Phil Thornton)Жанр: Ethnic, Folk, WorldbeatПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1890E0AFC78126C2BA07606E018C193B3DAEC077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501810   (259315) от 29.05.2012
-
-Nicole feat: Brulé - Passion Spirit (2001) [MP3|192 кб/с]<Native American, New Age, Flute>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259315.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beyond The Trail Of Tears 3:37
-2. World Dance 4:14
-3. Rez Road 2:55
-4. Dawn Of Awakening 2:58
-5. Ghost Drive 3:50
-6. Ancestor's Cry 7:03
-7. Black Mountain 5:18
-8. Chidhood's Mystery 3:26
-9. A New Enlightening 2:52
-10. Dakota Rain 2:45(   Читать дальше...   )2001Жанр: Native American, New Age, FluteПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1378A7B602606DB1ED3FEA9D8F9FBD079302D1DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

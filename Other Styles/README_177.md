@@ -1,3 +1,61 @@
+###  Публикация: 1085828   (154753) от 23.12.2016
+
+Anousheh & Tom - Silence (Secrets of Persian Ney) 2016 [MP3|320 Kbps] <Newage, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Secret One  (19:57) 
+02|  Secret Two  (12:31) 
+03|  Secret Three  (22:48) 
+04|  Secret Four  (19:20) (   Читать дальше...   )Жанр: Newage, MeditativeПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC41DC1832C90DF015E2628758B0BCF7FD3FC41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518158   (154696) от 19.12.2021
+
+Maitreya Bland - Tranquility (1999) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tranquility
+02. The Divine
+03. Back to Eternity
+04. Tenderness(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27F73B418F362E9DAAB22EC8EE7BE1D71BDD294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085913   (154584) от 23.12.2016
 
 Ветер всем - Колыбель (2010) [FLAC|Lossless|tracks] <Folk-Rock, World Music, Ethno>
@@ -717,70 +775,6 @@ Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Ori
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE0550B544E1D6FC68C7C583F08CDFF9BF55CCB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738841   (151018) от 26.12.2013
-
-VA - Abora Chillout - Best of 2013 [MP3|320 кб/с]<Chillout, World, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Afternova - Tranquility - Orchestral Mix (03:47)
- 02. Lea Gums - Sleepless Night - Original Mix (04:07)
- 03. Balearia - Djanet (Saharan Paradise) - Original Mix (04:56)
- 04. OppositePlans - In My Pocket - Original Mix (06:35)
- 05. Gurban Abbasli - Passion Moments - Original Mix (06:48)
- 06. Blue Horizon - Lithium - Acoustic Piano Mix (05:28)
- 07. OppositePlans - Sid3Walks - Original Mix (06:25)
- 08. Receptive - Hope at Dawn - Magdelayna's Chilled Remake (07:09)
- 09. Afternova - Finding Peace - Original Mix (02:46)
- 10. SoundLift - Arenas Blancas - Sunset Mix (04:46)(   Читать дальше...   )Жанр: Chillout, World, New AgeПродолжительность: 02:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747AB3021CA55532C7A04C7537374F8012CB9C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677557   (150463) от 18.11.2023
-
-Dolly Parton - Rockstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockstar (feat. Richie Sambora)
-02. World On Fire
-03. Every Breath You Take (feat. Sting)
-04. Open Arms (feat. Steve Perry)(   Читать дальше...   )Жанр: Country, RockПродолжительность: 02:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE13C0369448F58880DF95D3DF8AB0CC0324C452
 ```
 
 https://mybot314.ru/tekegram_catalog/

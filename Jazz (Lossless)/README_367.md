@@ -1,3 +1,341 @@
+###  Публикация: 451699   (93363) от 13.02.2012
+
+Ndidi Onukwulu - Move Together (2009) [FLAC|Lossless]<Vocal Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally Over You (3:22)
+02. No Eveybody (3:54)
+03. He Needs Me (3:55)
+04. Wicked Lady (4:52)
+05. Lost Chances (4:30)
+06. Her House Is Empty (4:59)
+07. Goodnight (4:13)
+08. Move Together (2:28)
+09. Forever (5:22)
+10. Cry All Day (2:55)(   Читать дальше...   )2009Жанр: Vocal Jazz, Jazz-PopПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 446923   (93046) от 11.02.2012
+
+Bob Wilber & Kenny Davern - Soprano Summit (1993) [FLAC|Lossless]<Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Stompy Jones (8:38)
+02. The Grapes Are Ready (8:50)
+03. Sequin Gown (1:05)
+04. Doin' The New Low Down (5:35)
+05. The Golden Rooster (4:47)
+06. Moxie (3:02)
+07. Brother, Can You Spare A Dime (2:54)
+08. All By Myself (4:04)
+09. Swing That Music (10:061993Жанр: Bop, SwingПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449431   (92992) от 11.02.2012
+
+Walter Beasley - Go With The Flow (2003) [APE|Lossless]<Smooth Jazz, Crossover Jazz, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Go With Flow :: 05:22
+02. West Hamilton Groove :: 04:41
+03. Precious Moments :: 04:11
+04. Suddenly :: 03:36
+05. All I Want :: 04:47
+06. My Pleasure :: 04:29
+07. Brother :: 04:51
+08. (Do I Ever) Cross Your Mind :: 04:50
+09. Let Me Watch You :: 05:18
+10. Don't Know Why :: 03:08(   Читать дальше...   )2003Жанр: Smooth Jazz, Crossover Jazz, R&BПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449210   (92887) от 09.02.2012
+
+Thelonious Monk and Max Roach - European Tour (2009) [FLAC|Lossless] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Monk (05:29)
+02. Light Blue (11:10)
+03. Evidence (11:48)
+04. To Lady (12:41)
+05. Stop Motion (14:30)2009 |Жанр: Jazz |Продолжительность: 00:55:39 |
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448385   (92800) от 09.02.2012
+
+Patricia Talem - Patricia Talem (2009) [APE|Lossless]<Vocal Jazz, Brazilian Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Ze Feliz (4:46)
+02. Ludo Real (2:56)
+03. Tarde Solar (5:15)
+04. Tua Cidade (3:32)
+05. Tardes Castanhas (4:39)
+06. Timidez (3:56)
+07. No Tom (6:41)
+08. Never Give Up (4:18)
+09. So de Voce (3:52)
+10. Stella by Starlight (5:23)(   Читать дальше...   )2009Жанр: Vocal Jazz, Brazilian Jazz, World FusionПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447466   (92793) от 09.02.2012
+
+Teddy Edwards - Midnight Creeper (1997) [FLAC|Lossless]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Creeper (Edwards) - 7:32
+02. Walking in the Rain (Edwards) - 5:43
+03. Sensitive (Edwards) - 6:09
+04. Lady Be Good (Gershwin-Gershwin) - 10:37
+05. Don't Blame Me (McHugh-Fields) - 6:52
+06. Sunday (Conn-Krueger-Miller-Styne) - 5:37
+07. Tenderly (Gross-Lawrence) - 9:47
+08. Almost Like Being in Love (Lerner-Loewe) - 5:291997Жанр: Hard BopПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447523   (92704) от 08.02.2012
+
+Jimsaku - Best Selection (1995) [FLAC|Lossless]<Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Gypsy Romance (04:52)
+02. Centro Habana (04:31)
+03. Muchacha Bonita (04:58)
+04. Hatsu-Zekku (04:20)
+05. Songo De Go Go (05:36)
+06. Wind Loves Us (04:28)
+07. I'm Gonna Catch You (04:36)
+08. Alisa (04:36)
+09. 261 Broadway (05:09)
+10. Awakening (04:47)(   Читать дальше...   )1995Жанр: FusionПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447537   (92666) от 07.02.2012
+
+Neil Cowley Trio - The Face of Mount Molehill (2012) [FLAC|Lossless]<Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Lament
+02. Rooster Was A Witness
+03. Fable
+04. Meyer
+05. Skies Are Rare
+06. Mini Ha Ha
+07. Slims
+08. Distance By Clockwork
+09. The Face Of Mount Molehill
+10. Hope Machine(   Читать дальше...   )2012Жанр: Fusion, Contemporary JazzПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447437   (92609) от 07.02.2012
+
+Don Friedman - Hot Knepper And Pepper (1990) [FLAC|Lossless]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Audobon (Take 4) (6:34)
+02. I'm Getting Sentimental Over You (Take 2) (7:16)
+03. Hellure (10:01)
+04. Groovin' High (6:44)
+05. Medley: Alfie, Laura, Prelude To A Kiss, I Got It Bad (8:55)
+06. I'm Getting Sentimental Over You (Alt. Take 1) (7:09)
+07. Beautiful Love (Alt. Take 1) (10:05)
+08. Audobon (Alt. Take 3) (7:49)1990Жанр: Post-BopПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 447497   (92605) от 07.02.2012
+
+John Clark - Il Suono (1992) [FLAC|Lossless]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Mustang Sally 8:56
+02. Buster's Move 8:58
+03. Groove From the Louvre 6:56
+04. Hot Fried Fish 3:11
+05. Dolphin Dance 6:18
+06. Miradita 6:46
+07. Il Suono Delle Ragazze Che Ridono 2:54
+08. Pretty Loose 2:54Жанр: Post-BopПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 447532   (92499) от 06.02.2012
 
 Joey DeFrancesco - Where Were You? (1990) [FLAC|Lossless]<Jazz, Post-Bop>
@@ -535,352 +873,6 @@ Peter Herbolzheimer Rhythm Combination & Brass - Bandfire (1998) [FLAC|Lossless]
 08. Got To Get You Into My Life (3:47)
 09. After The Love Is Gone (3:20)
 10. Can't Let Go (2:58)1998Жанр: Big Band, Progressive JazzПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445186   (91950) от 01.02.2012
-
-Regina Carter - 2 альбома (2003-2006) [FLAC|Lossless]<Post-Bop, Mainstream Jazz,Classical Crossover>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Anitra's Dance (2:55)
-02. Little Brown Jug (4:47)
-03. Bei Mir Bist Du Schon (4:43)
-04. Sentimental Journey (6:07)
-05. You Took Advantage Of Me (4:56)
-06. St. Louis Blues (7:10)
-07. A-Tisket, A-Tasket (8:01)
-08. Blue Rose (2:53)
-09. This Can't Be Love (5:16)
-10. How Ruth Felt (5:53)(   Читать дальше...   )2003-2006Жанр: Post-Bop, Mainstream Jazz,Classical CrossoverПродолжительность: 01:51:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444850   (91940) от 01.02.2012
-
-Milt Jackson - Night Mist (1980) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Blues In My Heart (5:37)
-02. Double B (5:45)
-03. Blues For Clyde (5:26)
-04. A Matter Of Adjustment (7:13)
-05. Night Mist Blues (9:17)
-06. Other Bag Blues (7:54)
-07. D.B. Blues (5:53)Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444146   (91835) от 30.01.2012
-
-Yukiko Matsuyama - Creme Brulee (2009) [WavPack|Lossless]<World Fusion, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. What Is Zat? (4:34)
-02. Kaze Matsuri (3:28)
-03. Talk With Dolphins (4:39)
-04. Falling In & Out (5:33)
-05. Nami (2:59)
-06. New Direction (5:05)
-07. If I Were There (4:49)
-08. From Ancient (2:49)
-09. Iketeru? (4:08)
-10. Crème Brulée (4:39)2009Жанр: World Fusion, Smooth JazzПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442206   (91508) от 26.01.2012
-
-Joey DeFrancesco - 40 (2011) [APE|Lossless]<Jazz,Hard Bop,Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Donny's Tune (5:07)
-02. Ashley Blue (7:01)
-03. Gloria (5:48)
-04. 100 Ways (9:10)
-05. I Got a Woman (7:16)
-06. V & G (6:22)
-07. Life is God (6:40)
-08. Bluz 'n' 3 (6:12)
-09. Caruso (5:44)Жанр: Jazz,Hard Bop,Post-BopПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488935   (91047) от 27.04.2012
-
-Jacques Loussier - The Best of Play Bach (1985) [FLAC|Lossless]<Chamber Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air on the G String (00:03:37)
-02. Siciliano in G minor (00:03:36)
-03. Toccata & fugue in D minor (00:09:25)
-04. Prelude No. 1 (00:05:27)
-05. Prelude No. 2 (00:04:40)
-06. Chorale - Jesu, Joy of Man's Desiring (00:04:36)
-07. Italian Concerto (Allegro) (00:04:59)
-08. Italian Concerto (Adagio) (00:04:56)
-09. Italian Concerto (Presto) (00:03:04)
-10. Chorale No. 1 (Sleepers wake) (00:04:21)(   Читать дальше...   )1985Жанр: Chamber JazzПродолжительность: 01:10:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488511   (90801) от 26.04.2012
-
-Eric Marienthal - It's Love (2012) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Here (4:30)
-02. In A Sentimental Mood (5:21)
-03. Can't Buy Me Love (5:49)
-04. It's Love (5:52)
-05. Two In One (6:21)
-06. Costa Del Soul (5:20)
-07. Babycakes (4:42)
-08. Cafe Royale (6:00)
-09. St. Moritz (5:25)
-10. When I Found You (4:21)2012Жанр: Smooth JazzПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488396   (90788) от 26.04.2012
-
-Teddy Wilson - Solo (2001) [FLAC|Lossless]<Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Get Out Of Town (00:3:59)
-02. Just One Of Those Things (00:3:15)
-03. I Get A Kick Out Of You (00:3:35)
-04. I Love You (00:3:47)
-05. It's All Right With Me (00:3:53)
-06. Love For Sale (00:4:27)
-07. Too Darn Blue (00:4:13)
-08. Blue Turning Grey Over You (00:4:16)
-09. Ain't Cha Glad (00:3:17)
-10. I've Got A Feeling I'm Falling (00:2:41)(   Читать дальше...   )Жанр: Stride, Piano JazzПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488034   (90713) от 25.04.2012
-
-VA - Best Audiophile Voices Vol 7 (2011) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Saskia Bruin/The Look Of Love    [0:03:57]
-02. Sarah Morrau/Vincent    [0:05:59]
-03. Jeni Fleming Acoustic Trio/Time After Time    [0:05:00]
-04. Emi Fujita/Your Song    [0:04:37]
-05. Halie Loren feat. Matt Treder/A Whiter Shade Of Pale    [0:04:44]
-06. Eva Cassidy/True Colors    [0:03:47]
-07. Woong San/What The World Needs Now    [0:04:39]
-08. Jeanne Newhall/Hungry Heart    [0:04:08]
-09. Dina Blade/My Romance    [0:03:54]
-10. Ela Lo/Have I Told You Lately    [0:04:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488033   (90582) от 25.04.2012
-
-Bebo Best & Super Lounge Orchestra - Saronno On The Rocks (2011) [FLAC|Lossless]<Bossa Nova, Nu Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.    Saronno On The Rocks (4:00)
-02.    Havana Jazz Dance (4:15)
-03.   Mambo And Cola (5:01)
-04.   Sing Sing Sing (3:42)
-05.    James Bond Theme (4:20)
-06.   Jazz Or Nu Jazz (4:20)
-07.    That's The Way I Like It (4:48)
-08.   Now And Ever (5:25)
-09.    Chill Radio Bossa (4:24)
-10.   The Sun Is Shinin' (4:13)(   Читать дальше...   )2011Жанр: Bossa Nova, Nu Jazz, LoungeПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485869   (89767) от 21.04.2012
-
-V.A. - The Mood Mosaic (1999) Vol.8 [FLAC|Lossless]<Easy Listening, Jazz-Funk,   Free Funk, Funk, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Connell dantzler - Bo gha :: 02:29
-02. Little ed - Petite soul :: 02:01
-03. Kenneth wells - Contagious :: 02:30
-04. Tony newman - Soulthing :: 02:26
-05. Elaine delmar - Sneaking up to you :: 02:13
-06. Mohawks - Studio 69 :: 01:47
-07. Ian langley - Chicano chaser :: 03:19
-08. Janko nilovic - Chorus for leslie :: 02:04
-09. The shifters - Ghost :: 02:02
-10. Dave grusin - Gasoline alley :: 02:58(   Читать дальше...   )1999Жанр: Easy Listening, Jazz-Funk, Free Funk, Funk, Latin JazzФормат: CD, CompilationПродолжительность: 00:59:28
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,61 @@
+###  Публикация: 1474406   (1012935) от 02.06.2021
+
+Ben Leinbach - The Spirit of Yoga (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khumjung
+02. Horizon of Gold
+03. Mother's Wingspan
+04. The HierophantЖанр: New Age, MeditativeПродолжительность: 00:62:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD609BC08945B113F46394837744389B0892641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 169972   (1012498) от 05.06.2021
+
+Roses Never Fade - Roses Never Fade (2009) [FLAC|Lossless|image + .cue] <Folk Rock, Neo-Folk, Psychedelic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sickness That Never Sleeps - 3:25
+02. Runaway - 2:10
+03. Cauterize November - 2:00
+04. Fourth Horseman - 2:42(   Читать дальше...   )Жанр: Folk Rock, Neo-Folk, PsychedelicПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1A6CF360DBA71150556CD85C8842DBF09C3AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476023   (1011928) от 09.06.2021
 
 ДиДюЛя - 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
@@ -686,61 +744,6 @@ Ani Tsering Wangmo - Immeasurable Joy (2006) [FLAC|Lossless|tracks + .cue] <Tibe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4777DA693CDE2B26AAA461300654A41483CFF19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349314   (1004225) от 02.01.2020
-
-Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etheric Worlds III (4:57)
-02. Warriors of Light (5:31)
-03. Mirages (feat. Angelux Ruddy) (5:28)
-04. Enigma from Man (feat. Angelux Ruddy) (8:13)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2DD8F2B531D81D51F8898845B5FF9C612D243A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647055   (1004040) от 03.08.2021
-
-Dragoslav Pavle Aksentijevic - Древнее Сербское Псалмопение XIII-XIV вв. (2007) [MP3|320 кб/с]<Православные песнопения>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Православные песнопенияПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CAD397C45BEAB5A3148894B584B13515F02A70
 ```
 
 https://mybot314.ru/tekegram_catalog/

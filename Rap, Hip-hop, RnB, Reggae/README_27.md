@@ -1,3 +1,32 @@
+###  Публикация: 1459752   (241419) от 04.04.2021
+
+ZippO - Фитиль 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Перекур [02:22]
+02. Чёрный джип [02:49]
+03. Ай братан [02:53]
+04. Ватаката [02:45](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F71399FF688B89C535A711299293771DE1CA50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459765   (241401) от 04.04.2021
 
 Гена Гром - ЭКС (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -723,35 +752,6 @@ Nicki Minaj - The Pinkprint (2014) [MP3|320 кб/с]<Hip-Hop, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EB3CC04C337910565F0A3C2AC01DF8361A271F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646669   (227694) от 30.07.2023
-
-АК-47 - Третий (2015) [FLAC|44.1/16,24|tracks|WEB-DL] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Большая дама [00:03:29] 16/44.1
-02. Дай 5 [00:04:48]
-03. No Pasaran!!! [00:04:14]
-04. Домашняя работа [00:04:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F905A2C80CD8F9DDD9E6C1187D97E57440502E
 ```
 
 https://mybot314.ru/tekegram_catalog/

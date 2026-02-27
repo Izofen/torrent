@@ -1,3 +1,61 @@
+###  Публикация: 1139395   (660006) от 02.06.2017
+
+Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rupert Gregson-Williams - Amazons of Themyscira (06:48)
+02. Rupert Gregson-Williams - History Lesson (05:16)
+03. Rupert Gregson-Williams - Angel on the Wing (03:45)
+04. Rupert Gregson-Williams - Ludendorff, Enough! (07:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E3208AAC262B98ED367CCBE8842B158B2A9AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139396   (659910) от 02.06.2017
+
+Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|tracks+ .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rupert Gregson-Williams - Amazons of Themyscira (06:48)
+02. Rupert Gregson-Williams - History Lesson (05:16)
+03. Rupert Gregson-Williams - Angel on the Wing (03:45)
+04. Rupert Gregson-Williams - Ludendorff, Enough! (07:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADDB831BFD28C4A9325062B5F02323159DE5DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902762   (659611) от 29.05.2015
 
 Hotline Miami 2 - OST (2015) LP & EP [MP3|320 кб/с]<OST>
@@ -743,64 +801,6 @@ Chris Snelling, Jonathan Sarlat - Peaceful Classical Music Playlist: 14 Relaxing
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A254F98660E00196ADAF1B85B4751FB0511B334E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226856   (653785) от 22.05.2018
-
-Joseph L Young - Every Moment (2018) [MP3|320 Kbps] <New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prism 05:37
-02. Falling Through Time 04:50
-03. Every Moment 05:07
-04. Twilight 04:20(   Читать дальше...   )Жанр: New ageПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4131B30A2C9FDDD19D10087560BF93E7289A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031614   (651997) от 04.07.2016
-
-Catherine Duc - Voyager (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Owen's Boat [00:03:21]
-02. Inishowen Dawn [00:03:16]
-03. Vardo [00:04:50]
-04. Mantra [00:03:26](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A91698AC1D8518029B58D861F98B82B25C04AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

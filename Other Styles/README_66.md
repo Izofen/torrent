@@ -1,3 +1,61 @@
+###  Публикация: 1211480   (777163) от 08.03.2018
+
+James Shanon, Chris Mercer, Ed Clarke, Richie Aikman - Acoustic Guitar Playlist (2018) [FLAC|Lossless|WEB-DL|tracks] <Guitar, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The One That Got Away - James Shanon
+02. Fly - Chris Mercer
+03. Love Yourself - Ed Clarke
+04. Passaggio - James Shanon(   Читать дальше...   )Жанр: Guitar, ClassicalПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B50628AE64E0447E375C8406BE48BD7E3CC342F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211452   (777148) от 08.03.2018
+
+ДиДюЛя - Фламенко (Ограниченное издание) (2002) |Lossless|image + .cue]<Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сатиновые берега
+02. Фламенко
+03. Айседора
+04. Водопад(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B064E0C8B6677400B4AF2DE7DD2D63EB400897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013850   (777102) от 05.05.2016
 
 Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) [FLAC|Lossless|image + .cue] <Ambient, New age, Electronic>
@@ -685,64 +743,6 @@ Peter Kater - Heart of the World - Colorado's National Parks (2016) [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C1D24220F9A14D0965EE90F20BE447F13DD35CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015473   (774982) от 10.05.2016
-
-Gandalf - All is One - One is All (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Prelude - The Secret Inside
-02.	From The Depth Of The Earth
-03.	Starshine Of Ever
-04.	Interlude - One Thought(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9C92ADE8B4EF4A6A2789414F9C6BA61F074A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212862   (774460) от 14.03.2018
-
-Magick Numbers - Dreaming of Oceans (2018) [MP3|320 Kbps] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:10)
-02. Zero-X (04:00)
-03. Fading From View (01:33)
-04. Respire (03:49)(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8AD5F41AA5170AE70B97351FEFABD1A11133A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

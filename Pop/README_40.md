@@ -1,3 +1,301 @@
+###  Публикация: 1362022   (951067) от 22.02.2020
+
+Funkaloo - Robot Dancer (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robot Dancer (4:05)
+02. Top Spot (2:52)
+03. Pulsar (3:44)
+04. Boogie City (3:10)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861B076BE0A070356EEB973D1422145FD8EDE76E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362061   (950937) от 22.02.2020
+
+Студия 54 - Музыка нас связала (2005)  [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Музыка нас связала ( feat. Светлана Разина ) 03:15
+02. Ты одна из миллиона 03:34
+03. Знаешь 03:03
+04. Уно моменто ( ремикс ) 02:44(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1610D81D7BB01D72F1A4FACF7B21F0CAFBF95FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362055   (950911) от 22.02.2020
+
+Татьяна Петрова - Вы деньки мои-голуби белые... (1995) [FLAC|Lossless|tracks + .cue]<Романсы, Русские Народные Песни>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вы деньки мои-голуби белые...
+02. Православная
+03. Вот мчится тройка
+04. Вечерний звон(   Читать дальше...   )Жанр: Романсы, Русские Народные ПесниПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4A5CB954CEA4C8E5FD69CBD4F08AB2EC8AC795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362071   (950820) от 22.02.2020
+
+VA - 100 Greatest Covers (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950820.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Muse - Feeling Good 3:19
+002. The Futureheads - Hounds Of Love 3:03
+003. Panic! At The Disco - Bohemian Rhapsody 6:03
+004. Birdy - Skinny Love (Bon Iver cover) 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B157C1B9AEE5CF7CC0D572065154AF9EE8380F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089731   (950696) от 04.01.2017
+
+JohnnyM5 - Megamix 2 (2013) [MP3|128 Kbps] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950696.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Megamix 2 (Fanmeeting 2008) 19:17
+Music: by John D´Arrow
+Lyrice: Renè FortranЖанр: Italo-Disco, Synth-popФормат: EP, Maxi-SingleПродолжительность: 00:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334D7DD34AAA65724BA610C3711ADF455EF75B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089792   (950636) от 04.01.2017
+
+JohnnyM5 - Fantasy Of Love (2008) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helpless (Original Euro Mix) (3:48)
+02. Loreen (5:49)
+03. I Need You (Album Mix) (3:53)
+04. Flames Of Love (Album Version) (3:57)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popФормат: CD, AlbumПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273CCBB9F481533E4A6B515496C70678C923159B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089474   (950536) от 04.01.2017
+
+The Salsoul Orchestra - 8 Albums (1975-1982) Reissue [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из крупнейших в истории мировой музыки американский диско-биг-бэнд SALSOUL ORCHESTRA был организован в 1974 году человеком-легендой в популярной музыке, дирижером, композитором, аранжировщиком и барабанщиком Винсентом Монтаной-младшим (Vincent Montana-Jr.), первоначально входившим в состав легендарной филадельфийской группы MFSB. В Оркестр входило до 50 человек (   Читать дальше...   )Список альбомов:
+1975 - The Salsoul Orchestra (2012)
+1976 - Christmas Jollies
+1976 - Nice 'N' Naasty (2013)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 07:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7144F4BEB9ED30687C2209307BAC1965F3EBA64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624690   (950519) от 01.03.2013
+
+Dido - Girl Who Got Away (Deluxe Edition) (2013) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dido - Girl Who Got Away (Deluxe Edition) (2013)
+Год: 2013
+Жанр: Pop
+Продолжительность: 01:09:44
+Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:  (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CC809EAED444FF6D3501D4E1874790A779BBBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280986   (950342) от 10.01.2011
+
+Ани Лорак - Танцы (2010) [MP3|128-320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Танцы (3:24)
+02. Нежность рассвета (3:48 )
+03. Верни мою любовь (дуэт с Валерием Меладзе) (4:14)
+04. С первого взгляда (Neomaster DJ's) (3:11)
+05. Every time you touch me (дуэт с Сергеем Лазаревым) (3:59)
+06. Солнце (DJ Alex Prime Remix) (4:38 )
+07. Розкажи (4:02)
+08. Три звичних слова (3:54)
+09. Увлечение (дуэт с Тимуром Родригесом) (3:36)
+10. А дальше (3:26)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309ABCA3F11BD7F644F594FC142E8C3C7BA3E636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280954   (950340) от 10.01.2011
+
+Video Kids - The Invasion Of The Spacepeckers (1984) 2009, Break Records [APE|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do The Rap (3:34)
+02. Cartooney Tunes (Incl.Happy Birthday) (4:24)
+03. La Bamba (4:14)
+04. I'm A Rock And Rollpecker (2:28)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981907   (949988) от 02.02.2016
 
 Andrea Lindsay, Luc De Larochelliere - C'est d'l'amour ou c'est comme (2012) 2015 GSI Musique [FLAC|Lossless|WEB-DL|tracks] <French Pop>
@@ -455,297 +753,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B1ACB62159D73783B08FD5A412FAE4503EFF2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362703   (948086) от 24.02.2020
-
-Wolfram - Amadeus (2019) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Euro-House, Disco>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfram - Scirocco (3:57)
-02. Wolfram feat. Peaches - Automatic (7:36)
-03. Wolfram - Graffiti In Teheran (5:37)
-04. Wolfram feat. Haddaway - My Love Is For Real (Dance Mix) (4:43)(   Читать дальше...   )Жанр: Electropop, Euro-House, DiscoПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32AAE2BF177EBB0E57F96EDCA86CDF484D0E4E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 750862   (947751) от 29.01.2014
-
-VA - Pure... Drive (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какая музыка должна сопровождать водителя в поездке? Чтоб не раздражала, не надоедала, не кончалась дольше, не... У каждого ещё целый набор своих не.
-Продолжая серию (ссылка на серию внизу) Pure... от Sony, представляю Вашему вниманию сборничек для водителя. Мне кажется, что каждый найдет для себя, что взять из него с собой в машину.CD1:
-01. Journey - Don't Stop Believin'(4:11)
-02. Kenny Loggins  - Danger Zone(3:32)
-03. Bonnie Tyler -  Holding Out For A Hero(4:23)(   Читать дальше...   )Жанр: Pop, Dance, Rock, OtherПродолжительность: 04:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EA0F0A39D73CB6B405B03C9F2F52999F5773F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090339   (947442) от 06.01.2017
-
-JohnnyM5 - Fantasy Of Love (Extended & Remixed) (2009) [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night (For You & Me) (Extended Version) (6:40)
-02. Take The Heat (Extended Mix) (6:08)
-03. Fantasy Of Love (Maxi Version) (5:08)
-04. Give Me Your Love (Obsession Remix) (3:52)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Hi-NRGФормат: CD, AlbumПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F506D3B62DD719E9F1EC1FC23DAF18C51DC7D502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090286   (947232) от 06.01.2017
-
-VA - Танцевальная зима 2017 (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regi - Should Have Been There (Dj Antonio Extented Remix)
-02. Lost Frequencies - Send Her My Love
-03. Starley - Call On Me (Ryan Riback Remix)
-04. DJ Fresh - Bang Bang (feat. R. City, Selah Sue & Craig David)(   Читать дальше...   )Жанр: PopПродолжительность: 01:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD87DC108CBB955BB0C748EB6573C04219AB77DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361327   (946580) от 25.02.2020
-
-Акула - Звезда (2014) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звезда (feat. OnAir & Alex Piletski) (3:43)
-02. Музыка детства (3:33)
-03. Ушла в рассвет (4:30)
-04. По подоконнику дождь (3:20)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EF18AF8F795F716E9989FC3A37D793A61E8AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362747   (946575) от 25.02.2020
-
-VA - Dj Бинокль - Deep & Sexy Vol.01 (2004) [MP3|320 Kbps] <Italo-Disco, Italodance, Vocal>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (7:06)
-02. Untitled (6:01)
-03. Untitled (5:40)
-04. Untitled (6:42)(   Читать дальше...   )Жанр: Italo-Disco, Italodance, VocalПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1055404EEC21F7F010BCA729C94CBF668D0ACC2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362790   (946574) от 25.02.2020
-
-VA - Love to Love Compilation (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gianrico Leoni, Daniele Soriani & Dario Dee - My Body and My Soul (Chill Mix) (04:36)
-02. D-Chill - Around You (feat. Brooke Mitchell) (04:21)
-03. Nasini & Gariani - Rhythm of Love (Acoustic Piano Version) (feat. Dilu Miller) (03:37)
-04. Hearts Of Glass - Touch Me (Acoustic Live Version) (03:01)(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA4118BBF84EE218E3CCE29EEE882D1A7FEB8F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361324   (946568) от 25.02.2020
-
-Акула - Без любви (2002) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полюби (3:38)
-02. Девочка (3:32)
-03. Я так хочу (3:54)
-04. Рада (3:33)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7506ACF63F2AC74F6B0235D045BE8054B26A8BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361326   (946565) от 25.02.2020
-
-Акула - Акула (2010) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Утро без тебя (3:23)
-02. Непонятно, почему (3:16)
-03. Она (3:13)
-04. Слова (3:21)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540DAFFBCE5D43549C01256393F4B990656B3C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362866   (946539) от 25.02.2020
-
-VA - Women Of 80s Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Hand On Your Heart 3:38
-02. Bette Midler - Wind Beneath My Wings 4:54
-03. Pretenders - 2000 Miles 3:39
-04. Tina Turner - I Don't Wanna Lose You 4:13(   Читать дальше...   )Жанр: PopПродолжительность: 01:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8583585809BCE72134A4CCAE087E961A5DD57F13
 ```
 
 https://mybot314.ru/tekegram_catalog/

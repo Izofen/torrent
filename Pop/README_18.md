@@ -1,3 +1,293 @@
+###  Публикация: 1456650   (1024916) от 23.03.2021
+
+VA - Vintage Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Taylor - Walking Man
+02. The Doobie Brothers - The Captain and Me
+03. Seals and Crofts - Get Closer
+04. Carly Simon - One More Time(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730C259F06C18193DC4875E691BEC947E75ED11E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456633   (1024878) от 23.03.2021
+
+Chris Rea - Platinum (1997) Compilation Unofficial Release Russia [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road To Hell - Part 1 &Part 2
+02. Josephine
+03. Let's Dance
+04. Auberge(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77A572F71D5F0F67BD9B1B02BAA1BCBD9A36EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456870   (1024770) от 24.03.2021
+
+ТУ-134 - Только ты (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хештеги (3:46)
+02. Исчезает ночь (3:51)
+03. Только ты (3:55)
+04. Для тебя (3:45)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78251925F8D36AB37C47BE424315B8436EE7456C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457027   (1024763) от 24.03.2021
+
+Gary Low - The Best Of - [Compilation] (1993) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Colegiala (12 Inch Mix) (8:37)
+02. You Are A Danger (8:40)
+03. I Want You (8:29)
+04. Where I Am (4:25)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3956DACB5F7CCC49ACA050BF15B33883A1160C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083304   (1024725) от 24.03.2021
+
+Sweetback - Sweetback (1996) Japanese Edition [FLAC|Lossless|image + .cue] <Electronic, Jazz, Trip-Hop, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaze (5:27)
+ 02. Softly Softly (4:29)
+ 03. Sensations (4:30)
+ 04. Au Natural (4:15)(   Читать дальше...   )Жанр: Electronic, Jazz, Trip-Hop, DowntempoПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29D5CB264E3B19DC6680CF648697378622E2574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457229   (1024628) от 25.03.2021
+
+ТУ-134 - Только ты (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хештеги (3:46)
+02. Исчезает ночь (3:51)
+03. Только ты (3:55)
+04. Для тебя (3:45)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:589948329491B55AE2D3C8486297D2EE143583E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457234   (1024588) от 25.03.2021
+
+Наташа Морозова - Russian Enigma (2013) [MP3|320 Kbps] <Pop, New Age, Classical>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Улетай на крыльях ветра (4:30)
+02. Ах ты, степь широкая (4:17)
+03. Seachange (8:09)
+04. You haunt me (4:27)(   Читать дальше...   )Жанр: Pop, New Age, ClassicalПродолжительность: 00:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B40130D840F2AD9218A66B2A039FEE794AC2E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457192   (1024523) от 25.03.2021
+
+Taylor Swift - Evermore (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willow
+02. Champagne Problems
+03. Gold Rush
+04. ‘Tis The Damn Deason(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6176C4CC790C6708155817622524EED983DA8906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457466   (1024379) от 26.03.2021
+
+Vanessa Mai - Mai Tai (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sommerwind (2:35)
+02. Leichter (2:53)
+03. Morgenlicht (2:56)
+04. Vanessa Mai, Fourty - Mitternacht (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BA633E833F7581D5D40637C3640B56D0BDD8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457280   (1024377) от 26.03.2021
+
+Thomas Anders - Cosmic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Rider
+02. Undercover Lover
+03. Ready For Romance
+04. Je Ne Sais Pas(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED3C1A28ED189B8686EE91ACADB679E9727975E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458012   (1024176) от 27.03.2021
 
 Inga & Anete Humpe - Swimming With Sharks (серия "Другие восьмидесятые") (1987) [MP3|320 Kbps] <German Pop, Synthpop, New Wave>
@@ -454,296 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46B9F70AD7AEFA889DC20A204D8A76149C20B94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459475   (1023104) от 02.04.2021
-
-Charme - Let It In (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It In (5:48)
-02. Never (Gonna Let You Go) (4:00)
-03. Do It For Love (3:43)
-04. Penny For Your Thoughts (3:49)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB5814ADBECE46E985327BCB24F8C485C7FCBCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459569   (1023096) от 02.04.2021
-
-Игорь Крутой - Всё о любви... (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023096.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Радость моя
-2. Папа, Мама
-3. Ветка каштана
-4. Понарошку(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7EDD2AC4E2118B60D9FF79983A0D9F838DD5891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459677   (1022994) от 03.04.2021
-
-Mark Ashley - The Beginning (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Like the Sea (Club Mix) (4:50)
-02. Lover Why (Club Mix) (6:13)
-03. If You Love Me (Horse Mix) (3:27)
-04. Little Lady Love Me (Radio Version) (3:42)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF1DB04875D9F59EAC2DD024CB47EE5EFE5B5AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459889   (1022956) от 03.04.2021
-
-Scotch - The Best Of (2021) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Band (6:18)
-02. Loving Is Easy (4:47)
-03. Pictures (Tess Power Remix) (5:58)
-04. Take Me Up (3:31)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A7C96346DF246CF532D69FFC799D365EA50775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459802   (1022772) от 04.04.2021
-
-Various Artists - Ностальгия Vol. 1 - Vol. 2 (1994) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. М. Катаева - Зима
-02. А. Бушманов - Хорошая песня
-03. Л. Сегеда - Магический вальс
-04. гр. Доменика Хантера - Час разлуки(   Читать дальше...   )Жанр: PoрПродолжительность: 01:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4DB9CA342307ED43608A5FD95DA33B3D3608AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460546   (1022596) от 05.04.2021
-
-Peaches & Herb - 2 Hot! (2015) [FLAC|Lossless|tracks + .cue] <Disco, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We've Got Love
-02. Shake Your Groove Thing
-03. Reunited
-04. All Your Love (Give It Here)(   Читать дальше...   )Жанр: Disco, SoulПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F6F4C39199BF2B37D151BC8D170C3F71D2E735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460779   (1022451) от 06.04.2021
-
-Bob McGilpin - 3 Albums (1978-1980) LP [MP3|320 Kbps] <Electronic, Disco, Pop, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-01. 1978 - Superstar
-02. 1979 - Get Up
-03. 1980 - Bob McGilpin(   Читать дальше...   )Жанр: Electronic, Disco, Pop, Funk SoulПродолжительность: 01:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB76971EFEF3E512194B01126D2A146E1AE54F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460968   (1022276) от 07.04.2021
-
-The Wonderland Band - Wonder Woman (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thrill Me (With Your Super Love) (7:57)
-02. Superman Theme (6:19)
-03. Wonderland Love Theme (7:04)
-04. Paradise Island (7:13)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D09C71982797E07274E6BA4B2E42E3FF9BE9FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461242   (1022075) от 08.04.2021
-
-VA - Beats Of The Night - Studio 54 Vol. 2 (1980) 2LP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mitsou - Rock 'N' Roll Is Back Again (4:16)
-02. Heather Parisi - Disco Bambina (5:14)
-03. La Flavour - Mandolay (5:29)
-04. Rinder & Lewis - Willie And The Hand Jive (4:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB20323CDC632B3B4E04C72199346CA0BD6F832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461176   (1022000) от 08.04.2021
-
-Dick St. Nicklaus - Magic (1979) LP [MP3|320 Kbps] <Disco, Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic (3:39)
-02. Help Yourself (3:19)
-03. What's The Reason (4:51)
-04. Can't Give Up (2:54)(   Читать дальше...   )Жанр: Disco, Pop, Soft RockПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1196500EA58BF0EC47E970BCB387E7351BCE5315
 ```
 
 https://mybot314.ru/tekegram_catalog/

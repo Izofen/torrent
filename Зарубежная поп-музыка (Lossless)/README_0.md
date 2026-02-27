@@ -1,3 +1,32 @@
+###  Публикация: 1848796   (1053084) от 18.01.2026
+
+VA - Disco Hits of The '70s, '80s & '90s (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballad, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thea Austin SNAP! - Rhythm Is Dancer (3:44)
+02. Company B - Fascinated (Re-Recorded) (4:43)
+03. Jagged Edge - Where the Party At? (Re-Recorded) (4:24)
+04. Leif Garret - Play That Funky Music (4:28)(   Читать дальше...   )Жанр: Pop, Ballad, DiscoПродолжительность: 05:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94219E3AF657AD833AAE0533352B0D78DA357BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847813   (1052293) от 14.01.2026
 
 Cher - Heart Of Stone (1989) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
@@ -716,35 +745,6 @@ Steps - Platinum Collection (2022) 2xCD [FLAC|Lossless|image + .cue] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D3B864AE328165524CBCABA028FADBC5129C506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608133   (1043749) от 29.01.2023
-
-VA - soft pop 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benson Boone - Before You (3:07)
-02. Ed Sheeran - Celestial (3:29)
-03. Omar Apollo - Evergreen (You Didn't Deserve Me at All) (3:36)
-04. Zach Bryan - Something in the Orange (3:48)(   Читать дальше...   )Жанр: PopПродолжительность: 01:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256B365434D9DE4038B0E9A85D3AEB1E74376F2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

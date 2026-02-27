@@ -1,3 +1,61 @@
+###  Публикация: 922038   (756436) от 05.02.2019
+
+Юлия Славянская - шесть альбомов (2002-2016) [MP3|320 кб/с]<Православная духовная музыка> [Обновлено 04.02.2019]
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. За окном вагона (02:56)
+02. Стихи на снегу (03:19)
+03. За Россию! (03:58)
+04. Помолись за меня (03:35)(   Читать дальше...   )Жанр: Православная духовная музыкаПродолжительность: 04:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D495584F85B81270E1BE7042F8B543763A39FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215791   (756349) от 27.03.2018
+
+Gregorianika - Ora et Labora (2009) [FLAC|Lossless|tracks + .cue] <New Age, Gregorian Chant>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	In Spiritu Sancti	2:58
+02.	Ave Verum	2:43
+03.	Believe In You	4:31
+04.	Ave Maria	2:17(   Читать дальше...   )Жанр: New Age, Gregorian ChantПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D5B965958397DD27E51779AE0CD1F77CF9D6E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018055   (755820) от 20.05.2016
 
 VA - In Too Deep (Original Motion Picture Soundtrack) (1999) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Funk, Soul>
@@ -687,64 +745,6 @@ VA - Impressions from Da Vinchi (2006) 3CD [MP3|320 Kbps] <New Age, Enigmatic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72F540F085FD2DDACFA72775C4469DA33AF3B6A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020083   (746900) от 25.05.2016
-
-2002 - Land of forever (1998) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Summer of 300 years.
-02 - Sea of dreams.
-03 - Land of forever.
-04 - Realms of splendor.(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A84AECD921B38EDB6B75FAB841E5D11060D4996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020033   (746814) от 25.05.2016
-
-Morgan Frazier - The Best (2015) [MP3|~245 кб/с (V0)] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part Of My Show (4:01)
-02. Hallelujah Instead (3:16)
-03. Way That He Loves Me (3:07)
-04. One Of Those Nights (2:21)(   Читать дальше...   )Жанр: Modern CountryПродолжительность: 00:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A9755822D028E2B94888D36CAC1E7863F0FF54
 ```
 
 https://mybot314.ru/tekegram_catalog/

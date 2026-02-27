@@ -1,3 +1,212 @@
+###  Публикация: 1501310   (835028) от 10.10.2021
+
+Nirvana - Легенды Зарубежного Рока (2001) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835028.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 About A Girl
+A2 Aneurysm
+A3 Come As You Are
+A4 Frances Farmer Will Have Her Revenge On Seattle(   Читать дальше...   )Жанр: Rock, GrungeПродолжительность: 01:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433A63E1A14CD5E775E84F316C7F90EB5D3348DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380220   (834908) от 02.05.2020
+
+Frank Sinatra - Close To You (1957) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834908.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Close To You
+Hoffman - Livingston - Lampi
+A2. P.S. I Love You
+Gordon Jenkins - Johny Mercer(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F460D95A1A04D01DC062104C8D7FDD41FE675D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772304   (834257) от 03.04.2014
+
+Queen - News Of The World (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. We Will Rock You  2:03
+2. We Are The Champions  3:00
+3. Sheer Heart Attack 3:27
+4. All Dead, All Dead  3:10
+5. Spread Your Wings  4:35
+6. Fight From The Inside  3:05
+Сторона 2
+1. Get Down, Make Love  3:53
+2. Sleeping On The Sidewalk  3:08(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97472E7B1ABF53E64E1FC11981E5C04A9A743F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005102   (834167) от 08.04.2016
+
+Puhdys / Пудис (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834167.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Когда Умирают Мечты · Wenn Träume Sterben
+A2	Ловцы Жемчуга · Perlenfischer
+A3	Буревестник · Sturmvogel
+ A4	Время Жизни · Lebenszeit(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2D5BE717D6373C7BB06333885474E005AA24AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501854   (833536) от 11.10.2021
+
+Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Space Rock, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atomic (Remixed Extended Version) [00:05:09]
+02. Radiate (Remix) [00:04:22]
+03. Radio Station (Extended Version) [00:05:02]
+04. Ideomatic (Remix) [00:04:16](   Читать дальше...   )Жанр: Space Rock, ElectronicФормат: Vinyl-RipПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C2BEE7F702FC9B9A276E71CF3A260976E24919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380462   (832949) от 03.05.2020
+
+Frank Sinatra - My Way (1969/1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Big Band>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832949.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Watch What Happens (from ''The Umbrellds of Cherbourg'')
+Norman Gimbel, Michel Legrand, Jaques Demy
+A2. Didn't We
+Jimmy Webb(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB84BF68342DF1CC9584D665E295E0CC064ADF90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380624   (832820) от 03.05.2020
+
+The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss You (4:49)
+ 02. When the Whip Comes Down (4:21)
+ 03. Imagination (4:39)
+ 04. Some Girls (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 773795   (832753) от 04.04.2014
 
 Electric Light Orchestra - On The Third Day (1973) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
@@ -546,208 +755,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9B9DFEF0958E0E409EF36361E761A7DC95B7479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197258   (811616) от 09.01.2018
-
-Каролина (Люба Гусева) - Наш Летний Дискобар (2017) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811616.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:29] 01. Дискобар (Версия-1)
-[3:53] 02. Не надо слёз
-[4:10] 03. Звёздный Вечер
-[4:18] 04. Нарисую Я(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41964A9AC5540E1E1BDB807569FE45378B9B3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657445   (811111) от 17.05.2013
-
-Arabesque - 6 Альбомов (1977-1982) [FLAC 2.0 24/192|image/tracks (Vinyl-Rip)]<Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caballero 3:59
-02. Why Do You Ride The Hight Horse 3:38
-03. Tall Story Teller 3:10
-04. Touch And Go 3:35(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3328D90BB5DB388D197BF9E0CAEE213E88FB9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657905   (809507) от 18.05.2013
-
-Ingrid Kup - Feel Me (Music By Frank Duval) (1982) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA350E44A176997A30F410CEED351F55BCF949BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657752   (809319) от 18.05.2013
-
-Depeche Mode - Delta Machine (2013) [FLAC 2.0 24/192|Tracks (Vinyl-Rip)]<Electronic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To My World (4:57)
-02. Angel (3:58)
-03. Heaven (4:05)
-04. Secret To The End (5:12)
-05. My Little Universe (4:26)
-06. Slow (3:46)
-07. Broken (3:57)
-08. The Child Inside (4:17)
-09. Soft Touch / Raw Nerve (3:26)
-10. Should Be Higher (5:05)(   Читать дальше...   )Жанр: Electronic RockПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE2EAC082BE49756F33BDB982AB8EE9C97F82CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 317289   (809318) от 02.04.2011
-
-Suzi Quatro - Два альбома (1973, 1974) [LPCM 2.0 96/24 | Audio-DVD (Vinyl Rip)] <Pop Rock, Glam Rock>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот Audio-DVD (музыкальный DVD-Video) диск был сделан мною на основе материала, предоставленного уважаемым luckburz.
-Формат DVD-Video был выбран мною для авторинга из-за несомненных удобств, предоставляемых им: возможности использования несжатого высококачественного звука, навигации по трекам, и наибольшей совместимости с имеющимися у потенциальных слушателей проигрывателями. (   Читать дальше...   )Жанр: Pop Rock, Glam RockПродолжительность: 00:50:34, 00:42:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118708   (808803) от 27.03.2017
-
-Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|tracks+.cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808803.jpg" />
-</div>
-
-
-###  Подробнее
-
-side A
-01. One Vision (5:11)
-02. A Kind Of Magic (4:25)
-03. One Year Of Love (4:28)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63206D3840DB89213E8BF171A67C22BF840CA9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778284   (806626) от 18.04.2014
-
-Varios - Колокольные звоны Псково-Печорского монастыря (1981) [[FLAC 2.0 24/96|traks(Vinil-Rip)]]<Church bells/Russian Falc>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806626.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сторона 1  19:10
-2. Сторона 2  21:22Жанр: Church bells/Russian FalcПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63222FEAC29B7C19564568D5B9A987D0FCB65856
 ```
 
 https://mybot314.ru/tekegram_catalog/

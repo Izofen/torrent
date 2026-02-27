@@ -1,54 +1,25 @@
-###  Публикация: 1423056   (304403) от 11.11.2020
+###  Публикация: 1497263   (234940) от 13.10.2021
 
-VA - Sea & Sand Lounge: Chillout Your Mind (2020) [AAC|~316 Kbps] <Downtempo, Lounge, Chillout>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leo de la Rosa, Maneela - Sugar in Your Kiss (5:12)
-02. Chris le Blanc, Miss Luna - Debussy En Es Vedra (Salinas Mix) (4:23)
-03. Gary B - All I Long For (Original Mix) (4:00)
-04. Dellasollounge - And Shine (Original Mix) (5:31)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D353170709044EA9EF383D0A8C9BE4C5DDC902C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423122   (304287) от 11.11.2020
-
-VA - Greatest Hits Instrumental (2020) [AAC|~357 Kbps] <Instrumental, Soundtracks>
+Chillhop Guitar - Lazy Mood (2021) [AAC|~308 Kbps] <Chill Out, Smooth Jazz, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304287.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Starlite Orchestra - American Pie (4:26)
-02. Starlite Singers - Big Spender (2:47)
-03. Chateau Pop - O l'amour (3:03)
-04. The New Merseysiders - Ob-La-Di, Ob-La-Da (2:03)(   Читать дальше...   )Жанр: Instrumental, SoundtracksПродолжительность: 02:48:56
+01. Moonlight Blue (6:32)
+02. Virtual Smoke (5:11)
+03. Green Clay (3:50)
+04. Waffle (4:53)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:43:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C85BA57DAF9FA836FC2251524AF1022EFD6FFCCB
+magnet:?xt=urn:btih:C4BDEFE43E138D3E21C5F0142FF81E00FB44F905
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422984   (304162) от 11.11.2020
+###  Публикация: 1497252   (234936) от 13.10.2021
 
-Silent Circle - Lost In Space (2020) [AAC|~357 Kbps] <Pop, Disco>
+Chillhop Guitar - Soothing Routine (2021) [AAC|~324 Kbps] <Chill Out, Smooth Jazz, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304162.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lost In Space (3:30)
-02. How Could It Be Right (3:34)
-03. Kaido (3:24)
-04. Who Took My Girl (3:22)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:09:03
+01. Griot (6:15)
+02. Gift of Life (5:44)
+03. Tea & Book (6:46)
+04. Rising Sun (6:35)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 02:01:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8481F01C09B7DE53420F5052308747CCC68C51D6
+magnet:?xt=urn:btih:82642497337D9D1D94F1339A7C604FFC1695E54D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,211 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 846211   (303988) от 01.12.2014
+###  Публикация: 1539760   (234932) от 27.03.2022
 
-Пряности и страсти / The Hundred-Foot Journey (2014) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья индийских эмигрантов, которых судьба забросила в маленький городок в Провансе, решает открыть кафе с восточной кухней… прямо напротив знаменитого на всю округу ресторана «Плакучая ива», бастиона французских кулинарных традиций, хозяйка которого, Мадам Малори, больше всего на свете гордится тем, что её заведение удостоено звезды в каталоге «Мишлен».
-Поначалу Мадам Малори не скрывает своей брезгливости шумными соседями и их экзотическими привычками, но постепенно война за клиентов между двумя ресторанами (   Читать дальше...   )Жанр: Драма, комедияРежиссер: Лассе ХалльстрёмПродюсер: Джульетт Блейк, Стивен Спилберг, Опра УинфриАктеры: Хелен Миррен, Ом Пури, Маниш Дайал, Шарлотта Ле Бон, Амит Шах, Фарзана Дуа Элахе, Диллон Митра, Ариа Пандья, Мишель Блан, Клеман СибониПеревод: Профессиональный (дублированный) (Лицензия)Язык субтитров: Русский, АнглийскийПродолжительность: 02:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567A6ECF9BF6C6C28BDE4142AE34975844BB2B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730447   (303917) от 04.12.2013
-
-Сталинград /  (2013) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303917.jpg" />
-</div>
-
-
-###  Подробнее
-
-1942-й год. Сталинград. Советские войска планируют контрнаступление на немецкие части, занявшие правый берег Волги. Наступление сорвано. Лишь разведчикам под командованием капитана Громова удается перебраться на другой берег и закрепиться в одном из домов. Им дан приказ удержать его любой ценой. Кроме нескольких чудом уцелевших советских солдат они находят в доме его последнюю жительницу — 19-летнюю Катю.Жанр: военный, драма, боевикПродюсер: Сергей Мелькумов, Антон Златопольский, Дмитрий РудовскийВ ролях: Мария Смольникова, Янина Студилина, Пётр Фёдоров, Томас Кречман, Сергей Бондарчук, Дмитрий Лысенков, Андрей Смоляков, Алексей Барабаш, Олег Волку, Хайнер ЛаутербахПеревод: Не требуетсяПродолжительность: 02:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EA687FFDA27B419F312781B2324621C47341D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261594   (303123) от 11.11.2018
-
-Кристофер Робин / Christopher Robin (2018) BDRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303123.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни повзрослевшего Кристофера Робина царит повседневная рутина. Однажды он встречает друга детства — медвежонка Винни. Вместе им предстоит вернуться в Стоакровый лес, чтобы не только отыскать потерявшихся друзей, но и вновь обрести счастье.Производство: СШАЖанр: Мультфильм, фэнтези, драма, комедия, приключения, семейныйРежиссер: Марк ФорстерАктеры: Юэн МакГрегор, Хейли Этвелл, Бронте Кармайкл, Марк Гейтисс, Оливер Форд Дейвис, Ронки Адеколуэхо, Эдриан Скарборо, Роджер Эштон-Гриффитс, Кен Нвосу, Джон ДаглишПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBDBB8379962DAA0FDF7442106FF64EAED5B88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261586   (303100) от 11.11.2018
-
-Кристофер Робин / Christopher Robin (2018) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303100.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни повзрослевшего Кристофера Робина царит повседневная рутина. Однажды он встречает друга детства — медвежонка Винни. Вместе им предстоит вернуться в Стоакровый лес, чтобы не только отыскать потерявшихся друзей, но и вновь обрести счастье.Производство: СШАЖанр: Мультфильм, фэнтези, драма, комедия, приключения, семейныйРежиссер: Марк ФорстерАктеры: Юэн МакГрегор, Хейли Этвелл, Бронте Кармайкл, Марк Гейтисс, Оливер Форд Дейвис, Ронки Адеколуэхо, Эдриан Скарборо, Роджер Эштон-Гриффитс, Кен Нвосу, Джон ДаглишПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 01:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F583262DDBD1AD8B0CFA93640F0773A4317785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961014   (303091) от 30.11.2015
-
-Шнайдер против Бакса / Schneider vs. Bax (2015) WEB-DLRip [576p] iPad [Line]
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шнайдер — наемный убийца-профессионал. Даже в день своего рождения он обязан подчиниться заказчику, некоему Мертенсу, и ликвидировать Рамона Бакса, писателя, живущего в домишке на берегу озера, окруженного болотами. Киллеру приходится спешить — ведь дома его ждет праздничный обед в кругу семьи. Однако в этот день все идет наперекосяк. Непредвиденные обстоятельства (   Читать дальше...   )Производство: НидерландыЖанр: Триллер, комедияРежиссер: Алекс ван ВармердамАктеры: Том Де Виспеларе, Алекс ван Вармердам, Мария Краакман, Гене Бервутс, Аннет Мальэрб, Пьер Бокма, Анри Гарсен, Лоэс Хаверкорт, Ева ван де Вийдевен, Ali ZijlstraПеревод: Дублированный (LINE)Субтитры: НетПродолжительность: 01:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBC8052AE672D121FDBF669F0C3C198EAEDFB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184085   (303056) от 16.11.2017
-
-Крым  (2017) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Отечественное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303056.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о любви, вере и чести, о силе духа и настоящей дружбе на фоне реальных событий крымской весны 2014 года. Судьба свела их в Крыму близ древнего города Мангуп-Кале. Это была любовь с первого взгляда… В непростые дни исторических перемен они должны сохранить свою жизнь и любовь.Производство: РоссияЖанр: Драма, боевикРежиссер: Алексей ПимановАктеры: Роман Курцын, Евгения Лапова, Павел Крайнов, Павел Трубинер, Борис Щербаков, Елена Котельникова, Геннадий Яковлев, Алексей Комашко, Никита Зверев, Игорь БуяноверПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530651A0921B31A749901C210C4BA10681D1FA57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261461   (302734) от 11.11.2018
-
-Король вне закона / Outlaw King (2018) WEBRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302734.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Роберта Брюса, одного из величайших шотландских монархов, организатора обороны страны в начальный период войны за независимость против Англии.Производство: Великобритания, СШАЖанр: Боевик, драма, биография, историяРежиссер: Дэвид МаккензиАктеры: Крис Пайн, Стивен Диллэйн, Rebecca Robin, Билли Хоул, Пол Блэр, Сэм Спруэлл, Джонатан Филлипс, Ben Clifford, Джэми МакЛахлан, Данкан ЛакруаПеревод: Дублированный (Невафильм)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 02:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171A6EC13CC6AFF7B3D8F722B0A81833AC6CF2C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423157   (302622) от 12.11.2020
-
-Iron Angel - Emerald Eyes (2020) [AAC|~345 Kbps] <Speed Metal, Thrash>
+VA - Jazz Night: Urban Chillout Music (2022) [AAC|~311 Kbps] <Lounge, Chill Out, Smooth Jazz, Nu Jazz>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302622.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sacred Slaughter (4:22)
-02. Descend (4:05)
-03. Sands Of Time (3:24)
-04. Demons (4:08)(   Читать дальше...   )Жанр: Speed Metal, ThrashПродолжительность: 00:46:34
+01. Marga Sol - Belle Vie (Original Mix) (4:28)
+02. Lounge Groove Avenue - Soul Cream (Original Mix) (3:59)
+03. Living Room - Surfing on a Karma Wave (Worldtraveller's Karma Retreat) (3:41)
+04. Digby Jones, Funkdust - Cheeba (Original Mix) (2:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth Jazz, Nu JazzПродолжительность: 00:59:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECC06DE0472F0E86AFCAB48DA9A7CA6F30001F0D
+magnet:?xt=urn:btih:0D3BE26DA5724E6E566A4505A392FD307C3DD6E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -297,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423239   (302621) от 12.11.2020
+###  Публикация: 1497141   (234929) от 13.10.2021
 
-VA - Purple Sky Lounge: Chillout Your Mind (2020) [AAC|~334 Kbps] <Downtempo, Lounge, Chillout>
+VA - Magic Island of Chill Out, Vol. 3 (2021) [AAC|~326 Kbps] <Lo-Fi, Lounge, Chillout>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302621.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Michael e - Asavari (Original Mix) (5:21)
-02. Vincent Boot - Code (Original Mix) (6:00)
-03. Ingo Herrmann - Animal Life (Original Mix) (2:33)
-04. Marga Sol - Beautiful Morning (Seven24 & S.A.T Remix) (5:04)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:01:29
+01. Miper - Crawling (2:55)
+02. Vechigen - What We Don't Know (7:08)
+03. Luke Kay, Aurelia Mengin - Ekeï Memona (3:39)
+04. Morpheus, Nale - Deep Blue Sea (6:47)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:47:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EB87AF39A3BF4C073D8D08CB5D56D6D1B75BF63
+magnet:?xt=urn:btih:D453F0373859D0273F299AFB9FE7F44D9D8004B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423320   (302620) от 12.11.2020
+###  Публикация: 1501650   (234913) от 13.10.2021
 
-VA - My Garden Lounge: Chillout Your Mind (2020) [AAC|~336 Kbps] <Downtempo, Lounge, Chillout>
+VA - Prophet Collection, Vol. 8 by Manuel Defil (2021) [AAC|~323 Kbps] <Organic House, Chill Out, Ethnic>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302620.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234913.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pearson - The Dream That Was Summer (Original Mix) (6:03)
-02. Michael e - Andiamo (Original Mix) (4:42)
-03. The Soul Crusaders - Escape from Reality (5:03)
-04. Velvet Dreamer, Tim Gelo - White Wine of the Moon (Original Mix) (5:29)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:03:58
+01. Martin Hiska, Manuel Defil, Cafe De Anatolia - Madhi (4:57)
+02. Project Blue Sun, Cafe De Anatolia - Secret Paradise (4:43)
+03. Wav-E, Manuel Defil, H.E.R., Cafe De Anatolia - Tender & Rough (5:12)
+04. Billy Esteban, Manuel Defil, Cafe De Anatolia - Sunset in Ibiza (5:47)(   Читать дальше...   )Жанр: Organic House, Chill Out, EthnicПродолжительность: 01:27:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:789D129D294F26C2465E01E2D401A9B731A98A53
+magnet:?xt=urn:btih:10A2918EC52F6310A0CC320C8CD01B5D48E40D14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -355,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423241   (302616) от 12.11.2020
+###  Публикация: 1499271   (234900) от 13.10.2021
 
-VA - On the Beach Lounge: Chillout Your Mind (2020) [AAC|~332 Kbps] <Downtempo, Lounge, Chillout>
+VA - Chillout Delis (2021) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302616.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gary B - Get This Right (Original Mix) (2:47)
-02. Michael e - Infinite Beauty (Original Mix) (4:54)
-03. Clive Button - A Wish Come True (Original Mix) (4:42)
-04. Weber & Weber - Close to Nature (5:08)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:23:33
+01. Fascinating Case - Soul Lotion (6:20)
+02. Asservat - By Chance (6:15)
+03. Jano de Rhodos - Miramar (5:54)
+04. Kaxamalka - Pearls (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A7D8E2995560338AD0B5DC9A6F7D66EA999BE80
+magnet:?xt=urn:btih:FCF0FC968A7403BD1C05CEBF2B8DE49C8BE49906
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -384,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423319   (302615) от 12.11.2020
+###  Публикация: 1497040   (234891) от 13.10.2021
 
-VA - Trip to Paris Lounge: Chillout Your Mind (2020) [AAC|~320 Kbps] <Downtempo, Lounge, Chillout>
+Jean Mare - Another Atmospheric Chill Lounge (2021) [AAC|~297 Kbps] <Chillhouse, Downbeat, Lounge>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302615.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. James Butler - Romantic Paris (Original Mix) (2:28)
-02. Iffar - Des Pois (Original Mix) (4:48)
-03. Massimo Faraò Trio, Philip Harper - Round Midnight (Piano Jazz Trio, Trumpet) (5:20)
-04. Andrea Beneventano - Soul Eyes (4:37)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:24:16
+01. Anywhere (Atmospheric Chill Lounge) (4:35)
+02. Drops of Time (4:29)
+03. Sunset Chill Dreams (4:33)
+04. Blue Cascades (4:26)(   Читать дальше...   )Жанр: Chillhouse, Downbeat, LoungeПродолжительность: 01:17:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BBF6B108048DAF9C6A45F0CCBEA83945B4293C3
+magnet:?xt=urn:btih:B931C7FB315D2E7868B5D11552A38204DB50CA9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423323   (302614) от 12.11.2020
+###  Публикация: 1539768   (234887) от 27.03.2022
 
-VA - Sweet & Tender Lounge: Chillout Your Mind (2020) [AAC|~309 Kbps] <Downtempo, Lounge, Chillout>
+VA - Think Deep, Vol. 2 (Deluxe Atmospheric Deep House Music) (2022) [AAC|~305 Kbps] <Chill House, Deep House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302614.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234887.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pearson - A Rose for You (Original Mix) (5:39)
-02. Michael e - Tropic of Capricorn (Original Mix) (8:02)
-03. Simon Le Grec - Romantique Part Un (Sensitive Mix) (4:40)
-04. Mo'jardo, Tim Gelo - Midnight in Paris (4:43)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:16:19
+01. Darles Flow, Soulfreqtion - Orion Moonlight (Original Mix) (5:37)
+02. Darles Flow, D'Joe - Momentum (Original Mix) (7:22)
+03. Deepofomin - Apollo (Original Mix) (7:36)
+04. Deepofomin - Saturday Rain (Original Mix) (7:50)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 02:45:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9663D51DF5177306B7866C90211EBB2B92F38DD8
+magnet:?xt=urn:btih:4E2469881934B27B735BECF00DCDF93FAB0F7CAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423237   (302613) от 12.11.2020
+###  Публикация: 1497840   (234886) от 13.10.2021
 
-VA - Happy Moments Lounge: Chillout Your Mind (2020) [AAC|~316 Kbps] <Downtempo, Lounge, Chillout>
+Röyksopp - Röyksopp’s Night Out Live EP (2006) [AAC|~360 Kbps] <Electronic, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302613.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roberto Sol, Chris le Blanc, Lisa De Andrade - Coracao (4:24)
-02. Alexandra Hampton, Merge Of Equals - Beautiful (4:26)
-03. Dellasollounge - Show Me the Stars (Original Mix) (4:47)
-04. The Soul Crusaders - Into the Setting Sun (4:39)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:05:31
+01. What Else Is There? (3:20)
+02. Only This Moment (4:05)
+03. Remind Me (3:48)
+04. Sparks (5:10)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:39:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AB6E3EC7993ABB39F8C8B105473F81684E6B1FC
+magnet:?xt=urn:btih:11D80A530AE8D12EC1C7A6CEE1816BC73252EDC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423233   (302414) от 12.11.2020
+###  Публикация: 1498159   (234878) от 13.10.2021
 
-VA - Black Coffee Lounge: Chillout Your Mind (2020) [AAC|~326 Kbps] <Downtempo, Lounge, Chillout>
+VA - Chilling On Purple Clouds, Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302414.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Loretta Heywood - Butterfly (Original Mix) (4:44)
-02. Michael e - For Laurant (Original Mix) (4:37)
-03. Roberto Sol, Mic Donet - Can Not Forget You (Revisited Mix) (4:29)
-04. Anthony Island - Promets (Original Mix) (3:25)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:21:41
+01. Steen Thottrup - Being You (4:23)
+02. Cool Beach - The City of Dreams (2:46)
+03. Peter Pearson, Yvonne Jay - Heaven's Gift To Me (3:19)
+04. Newton - Just One Touch (4:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:52:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAFE292EBD29107CA2F0E769DFA6BF792137C2BC
+magnet:?xt=urn:btih:D94F1753F28EF6EEEF1FA3CC0ED8646E5F2F7C41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,54 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423293   (302200) от 12.11.2020
+###  Публикация: 1497265   (234870) от 13.10.2021
 
-Неистовый / Unhinged (2020) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мать-одиночка Рейчел находится в процессе развода, и этот день у неё не задался. Она проспала и, отвозя сына в школу, попала в большую пробку, а единственная оставшаяся после закрытия салона красоты клиентка уволила её за опоздание. Пытаясь сократить путь, Рейчел повздорила на дороге со случайным автомобилистом и после отказалась извиняться. Этот мужчина накануне (   Читать дальше...   )Производство: США, Burek Films, Ingenious, Solstice StudiosЖанр: Боевик, триллерРежиссер: Деррик БортеАктеры: Карен Писториус, Рассел Кроу, Гэбриел Бейтман, Джимми Симпсон, Остин П. МакКензи, Жюльен Джойнер, Стивен Луис Граш, Энн Мари Лейтон, Девин А. Тайлер, Сильвия Грэйс КримПеревод: Дублированный, АвторскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD2F55DE48E73ADA22B53C696CE7687B5BC590B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423238   (302194) от 12.11.2020
-
-VA - Midnight Flight Lounge: Chillout Your Mind (2020) [AAC|~322 Kbps] <Downtempo, Lounge, Chillout>
+Chillhop Guitar - Guitar Resort (2021) [AAC|~319 Kbps] <Chill Out, Smooth Jazz, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302194.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marga Sol - Midnight Flight (Original Mix) (5:14)
-02. Marco Moli - Only Minutes Away (Original Mix) (6:05)
-03. Marc Hartman - Emission of Love (Song for Wensi) (Original Mix) (5:16)
-04. Chillson, Marc Hartman - It's Allright (Original Mix) (4:42)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:12:20
+01. Santorini (6:06)
+02. Peacefool (5:57)
+03. My Avatar (5:46)
+04. Sweet Joke (5:55)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:46:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F53CA1202A1AABC4BEBB9D53352D61CD5A48CB1
+magnet:?xt=urn:btih:EE908E0293787838B5AC1A54D7242622CB73C363
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -555,25 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423269   (302081) от 12.11.2020
+###  Публикация: 1495807   (234861) от 13.10.2021
 
-Неистовый / Unhinged (2020) BDRip [1080p] ATV3
+VA - Vanilla Kiss (Beautiful Lounge Collection), Vol. 1 (2021) [AAC|~324 Kbps] <Lounge, Downtempo, Chillout>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302081.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мать-одиночка Рейчел находится в процессе развода, и этот день у неё не задался. Она проспала и, отвозя сына в школу, попала в большую пробку, а единственная оставшаяся после закрытия салона красоты клиентка уволила её за опоздание. Пытаясь сократить путь, Рейчел повздорила на дороге со случайным автомобилистом и после отказалась извиняться. Этот мужчина накануне (   Читать дальше...   )Производство: США, Burek Films, Ingenious, Solstice StudiosЖанр: Боевик, триллерРежиссер: Деррик БортеАктеры: Карен Писториус, Рассел Кроу, Гэбриел Бейтман, Джимми Симпсон, Остин П. МакКензи, Жюльен Джойнер, Стивен Луис Граш, Энн Мари Лейтон, Девин А. Тайлер, Сильвия Грэйс КримПеревод: Дублированный, АвторскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:30:07
+01. VAN - Scent Of Summer (5:49)
+02. Paul Eerhart - Under A Full Moon (3:46)
+03. Desert Team - No Jokes (4:37)
+04. Marc Hartman - Ibiza Magna (5:25)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:25:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9097C3BD3CB4641ACC64D2EFB90A63E1EE37AE71
+magnet:?xt=urn:btih:EDF48468B7C23EA6E99DD777FEA05255238B2C54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -581,25 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423313   (301897) от 12.11.2020
+###  Публикация: 1496967   (234855) от 13.10.2021
 
-Неистовый / Unhinged (2020) BDRip [480p] iPod
+VA - Fashionable Music Barcelona (Sophisticated Lounge Tunes from the Fashion Shows) (2021) [AAC|~327 Kbps] <Chill Out, Lounge, Downtempo>
 
 >>Аудио и Видео
->>Зарубежное видео для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301897.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мать-одиночка Рейчел находится в процессе развода, и этот день у неё не задался. Она проспала и, отвозя сына в школу, попала в большую пробку, а единственная оставшаяся после закрытия салона красоты клиентка уволила её за опоздание. Пытаясь сократить путь, Рейчел повздорила на дороге со случайным автомобилистом и после отказалась извиняться. Этот мужчина накануне (   Читать дальше...   )Производство: США, Burek Films, Ingenious, Solstice StudiosЖанр: Боевик, триллерРежиссер: Деррик БортеАктеры: Карен Писториус, Рассел Кроу, Гэбриел Бейтман, Джимми Симпсон, Остин П. МакКензи, Жюльен Джойнер, Стивен Луис Граш, Энн Мари Лейтон, Девин А. Тайлер, Сильвия Грэйс КримПеревод: Дублированный, АвторскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:30:07
+01. Luis Hermandez - Told You So (Original Mix) (3:41)
+02. Outwave Project - La Nuit (Original Mix) (4:18)
+03. Xemplify - See the Light (Original Mix) (5:26)
+04. Five Seasons - Let Me Drive (Original Mix) (4:45)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:13:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:846DC0EFD53E2AD45EA2AE0FF85156B99BAE4806
+magnet:?xt=urn:btih:42C83FCF304962F40F79E5F8EAAEDB910DF68192
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,25 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423302   (301884) от 12.11.2020
+###  Публикация: 1499319   (234846) от 13.10.2021
 
-Неистовый / Unhinged (2020) BDRip [576p] iPad
+VA - Sketches of Lounge (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Зарубежное видео для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301884.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234846.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мать-одиночка Рейчел находится в процессе развода, и этот день у неё не задался. Она проспала и, отвозя сына в школу, попала в большую пробку, а единственная оставшаяся после закрытия салона красоты клиентка уволила её за опоздание. Пытаясь сократить путь, Рейчел повздорила на дороге со случайным автомобилистом и после отказалась извиняться. Этот мужчина накануне (   Читать дальше...   )Производство: США, Burek Films, Ingenious, Solstice StudiosЖанр: Боевик, триллерРежиссер: Деррик БортеАктеры: Карен Писториус, Рассел Кроу, Гэбриел Бейтман, Джимми Симпсон, Остин П. МакКензи, Жюльен Джойнер, Стивен Луис Граш, Энн Мари Лейтон, Девин А. Тайлер, Сильвия Грэйс КримПеревод: Дублированный, АвторскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:30:07
+01. Blumenseele - Pleasure and Action (5:52)
+02. Thetis Signal - Eerie Mood (6:00)
+03. Silbermaus - Chilled Night (5:41)
+04. Innate Joy - River Bends (6:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:623CFF064819E63D646E486C3E2537306C4F99C4
+magnet:?xt=urn:btih:7EAE0B88E228317EFEAF7C599998B66BCF838A5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,25 +404,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184264   (301092) от 17.11.2017
+###  Публикация: 1498273   (234837) от 13.10.2021
 
-О теле и душе / Testrol es Lelekrol / Testről és Lélekről (2017) WEB-DL [1080p] ATV
+VA - Ibiza Chill Vibes, Vol. 1 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301092.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234837.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторонящаяся людей Мария и общительный, но одинокий Эндре — коллеги. Оба ведут замкнутый образ жизни и стараются избегать общения друг с другом. Неожиданно для себя они узнают, что каждую ночь им снятся одинаковые сны. Видя в этом некий знак, герои решаются на сближение. Открывшись друг другу, Эндре и Мария окажутся в водовороте комических и даже шокирующих событий…Производство: ВенгрияЖанр: Драма, мелодрамаРежиссер: Ильдико ЭньедиАктеры: Геза Морчани, Александра Борбей, Золтан Шнайдер, Эрвин Надь, Тамаш Йордан, Жужа Яро, Река Тенки, Юлия Ньяко, Итала Бекеш, Эва БатаПеревод: Многоголосый закадровый (iTunes)Субтитры: НетПродолжительность: 01:55:34
+01. 351 Lake Shore Drive, Genius Jane - Sunrise (5:37)
+02. G-Sax - This World (4:54)
+03. Lazy Hammock, Ivan M-sax - Intoxicated (6:04)
+04. Smooth Deluxe, Nizam Kharda - Manipuri (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:07:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80E46CB35A5A54991B349A666192FD90101E38B0
+magnet:?xt=urn:btih:4C0B8E5A31B7CCB1ACFD7CD95BA8C6CC91C211DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,25 +433,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184488   (301088) от 17.11.2017
+###  Публикация: 1499268   (234820) от 13.10.2021
 
-Аритмия  (2017) WEB-DL [720p] ATV
+VA - Lounge Hotel, Vol. 1 (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Отечественное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301088.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Олег — талантливый врач, работает на «скорой», которая мчится от пациента к пациенту. Олег знает: его приезд может изменить всё. Каждый его успех делает мир лучше. Самое важное — там, где он пытается совершить невозможное. А остальное может подождать: семья, карьера, своя жизнь… Что с ней случилось? Пока Олег спасал других, жена отчаялась и решила подать на развод, (   Читать дальше...   )Производство: РоссияЖанр: Мелодрама, драмаРежиссер: Борис ХлебниковАктеры: Александр Яценко, Ирина Горбачева, Николай Шрайбер, Максим Лагашкин, Альбина Тиханова, Александр Самойленко, Елена Дробышева, Евгений Муравич, Анна Котова, Надежда МаркинаПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:55:52
+01. Sombra Modos - Inflorescencia (6:14)
+02. Jagel - Skyway (6:05)
+03. Sigrun II - First Visit (5:41)
+04. Premasara Council - Pranayama (6:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:861CE19AEF35374006688A26C3A1BADB13949498
+magnet:?xt=urn:btih:FBAD90649FC9B969BB263133402F1F98BB5EA0A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,25 +462,289 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 961265   (301033) от 01.12.2015
+###  Публикация: 1499964   (234813) от 13.10.2021
 
-Новые русские  (2015) WEB-DL [1080p] ATV
+VA - The Seeds of Lounge, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
->>Отечественное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301033.jpg" />
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллекция короткометражных фильмов. Все шесть работ сделаны молодыми российскими режиссерами, все отличает та свобода, которую редко встретишь в большом отечественном кино. Молодежь не зависит от финансового диктата, ей плевать на цензурные запреты, она смела в обращении с жанрами и не стесняется нарушать любые правила.Производство: РоссияЖанр: Комедия, триллер, фантастика, драмаРежиссер: Камила Сафина, Григорий Добрыгин, Оксана Михеева, ...Актеры: Виктор Сухоруков, Фандус Гаптуллин, Владимир Любовский, Максим Бартош, Елена Сердюкова, Сергей Маковецкий, Джордже Пистерьяну, Бернардо Арриас Поррас, Александр Яценко, Екатерина ЩегловаПеревод: Субтитры: НетПродолжительность: 01:29:10
+01. Giorgio Moroder - On the Radio (LoYoTo 94 Rewind Vocal Remix) (6:22)
+02. Mo'jardo - Say Hello (5:29)
+03. 351 Lake Shore Drive, Genius Jane - Time (5:09)
+04. Paul Eerhart - You Told Me So (2:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DBD6F75DE9C57D8E7611E9642DE0449A4D3154D
+magnet:?xt=urn:btih:71E31EE312BE226429DC25301321E779BEDFD3E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497388   (234806) от 13.10.2021
+
+VA - Buddhatronic - the Compilation, Vol. 1 (2015) [AAC|~318 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Lanibia Dreams (7 Stars Mix) (4:39)
+02. Bernon - I Dream of You (Chillout Mix) (4:37)
+03. Buddhatronic - Trance Icon (Modern Deep Choir Mix) (4:28)
+04. Guardians of Secret - Gregorian Temple (Nu Artenovum Mix) (4:51)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A93F93A67DE877E774F0DD664D446800086C107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498157   (234800) от 13.10.2021
+
+VA - Chilling On Purple Clouds, Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup - Shores (4:43)
+02. Living Room, Worldtraveller - Nano Love (No Hate Edit) (3:08)
+03. Snake Black - Turn Table Over (5:03)
+04. Cool Beach - Sincerity (2:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78442ED5BD869E79662D8DBF9229EED89837E533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497199   (234792) от 13.10.2021
+
+Chillhop Guitar - Mellow Afternoon (2020) [AAC|~293 Kbps] <Chill Out, Smooth Jazz, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lofi afternoon (4:00)
+02. The watcher (2:50)
+03. cozy moment (4:33)
+04. a day in bilbao (3:34)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1C6CB7DD5FAA34E50104CC507EBC985F71FE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499967   (234784) от 13.10.2021
+
+VA - The Seeds of Lounge, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Frozen Heart (6:51)
+02. Aiemo, Radmila - Kissing You (Vocal Mix) (4:22)
+03. Lazy Hammock, Ivan M-sax - Intoxicated (6:04)
+04. Sannan, Coppe - Violet Lullaby (Hadron Orchestra Remix) (4:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496EF94D5B102328E051DB8EF465706DADA2AD32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498275   (234778) от 13.10.2021
+
+VA - Ibiza Let' Chill, Vol. 1 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane - Frozen Heart (6:51)
+02. Lounge Deluxe - My Favourite Moment (5:05)
+03. Arman Behdad - Face of an Angel (Moonlight Chill Mix - Remastered) (3:42)
+04. Alfida - Surrender (4:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE4D820C8DF06C0C267B90E5BB1F9D292931A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497203   (234770) от 13.10.2021
+
+Chillhop Guitar - Lo-fi Beat & Smooth Guitar (2020) [AAC|~307 Kbps] <Chill Out, Smooth Jazz, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kama Sutra (4:25)
+02. Blue Azur (5:11)
+03. Relaxing Morning (4:43)
+04. Sexy Feet (3:06)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C69D8F28175EABE42F93FC80544AAC89892C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496952   (234763) от 13.10.2021
+
+VA - Spiritual Spa, Vol. 1 (2021) [AAC|~314 Kbps] <Downtempo, Balearic, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sebastian Bach - Transcending (Original Version) (3:48)
+02. Lemongrass - Levitation (Original Mix) (5:12)
+03. Jasmon - Blue Water (Original Mix) (4:31)
+04. CaPa - Seven Sins (Original Mix) (4:58)(   Читать дальше...   )Жанр: Downtempo, Balearic, Chill OutПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6C1645F6C5D0C046DA5C3D51DCCA354B0C89BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541221   (234762) от 03.04.2022
+
+VA - Electro Swing New Generation 01 by Bart&Baker: The Best New Electro Swing Music (2017) [AAC|~317 Kbps] <Jazz, Electro, Swing>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Vaude Villainz - Voodoo (3:03)
+02. Caro Emerald - Whatchugot (3:17)
+03. Lamuzgueule - Gangsta's Paradise (3:50)
+04. Incontrol - Us, Ourselves and We (1:55)(   Читать дальше...   )Жанр: Jazz, Electro, SwingПродолжительность: 02:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6827BF22540BD7F4968422C33191FB104F1EE902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500357   (234756) от 13.10.2021
+
+VA - Los Angeles Beach Lounge, Vol. 2 (2018) [AAC|~335 Kbps] <Chill Out, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Hammock - Deep Sunday Bliss (4:42)
+02. Marc Hartman - Like The Sunset (5:17)
+03. Maurid - Amazonia Sunrise (5:37)
+04. Matthew Daniel, Linda Muriel - Soul Personified (4:34)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 01:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E4D7A1BBAB450ADFEFCA1564B11657A09603E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

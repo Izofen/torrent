@@ -1,25 +1,25 @@
-###  Публикация: 958031   (324998) от 20.11.2015
+###  Публикация: 957310   (326781) от 18.11.2015
 
-VA - White Sunset - 20 Smooth Sexy and Relaxing Chillout Tunes - Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+T. Texas Tyler - His Great Hits (1967) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Country>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324998.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deja-Move - Sweetdub - Original Mix
-02. Mr. V - Sunset Landscapes - Original Mix
-03. Shakra - Earth Song - Original Mix
-04. Jen - Asleep - Album Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:45
+A1	Courtin' In The Rain
+A2	I Ain't Got A Lick Of Sense
+A3	Remember Me
+A4	Filipino Baby(   Читать дальше...   )Жанр: CountryПродолжительность: 00:28:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D45E5E89F4A8D5F503E243467EDE81BACE3F3FC9
+magnet:?xt=urn:btih:9CB5562BA23D00DF7D03ACA279E7E0725272ECF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,299 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958149   (324997) от 20.11.2015
+###  Публикация: 957730   (326780) от 18.11.2015
 
-VA - Enhanced Chill Volume Three (2015) [MP3|320 кб/с]<Chillout>
+Открытая студия. «Угроза номер один»  (18.11.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326780.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мы будем искать их везде, где бы они ни прятались. Мы их найдём в любой точке планеты и покараем», – заявил российский Президент, говоря о виновниках гибели нашего самолета над Синаем. Российские спецслужбы сегодня делают всё возможное, чтобы поставить заслон террористам и не дать им возможности проводить свои жестокие акции в России. Но проблема террора и исламского (   Читать дальше...   )Телекомпания: 5 канал, РоссияЖанр: общественно-политическое ток-шоуПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB2C7B3D186E66EB836B7817E64CC1C3FC03DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957313   (326779) от 18.11.2015
+
+Создан гидрогель-суперклей, состоящий на 90 процентов из воды
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_326779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые из Массачусетского технологического института (Massachusetts Institute of Technology, MIT) создали новый синтетический клеящий материал, представляющий собой прозрачный и чрезвычайно вязкий гидрогель. В состав этого материала, формула которого была почерпнута из живой природы, входят кремний-стеклянные соединения, алюминий, титан и некоторые другие элементы, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957529   (326778) от 18.11.2015
+
+Робомобиль Google был остановлен полицейским за слишком медленную езду
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_326778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автомобили с компьютерной системой управления от Google накатали на дорогах уже почти 2 миллиона километров, ни разу не получив предупреждения или штрафа от дорожной полиции. Правда, до 2 миллионов авто все же не дотянули, поскольку на одной из дорог Лос-Альтос (США) полицейский все же тормознул робомобиль, предъявив претензию по слишком медленной езде.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957619   (326777) от 18.11.2015
+
+Veselin Tasev - Believe You (2015) Single [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Believe You (Extended Vox Mix) (06:39)
+02. Believe You (Extended Dub Mix) (06:39)Жанр: TranceПродолжительность: 00:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653865F676A998DE660898B08CB3500E1DF8BC59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957792   (326776) от 18.11.2015
+
+Kelly Richey - Sweet Spirit (2013) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feelin' Under (03:03)
+02. I Went Down Easy (03:22)
+03. Leavin' It All Behind (02:22)
+04. Something's Going On (03:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11C629CC8930DD897A2E908373016666504C38A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957544   (326775) от 18.11.2015
+
+Футбол. Товарищеский матч. Россия – Хорватия (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Товарищеский матч Россия – Хорватия.Телекомпания: Первый 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:50:06 + 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADE36DA5DE71325FC2EB6F7964B2149E14BB0DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957590   (326774) от 18.11.2015
+
+Andrew Franey - The Stars Shine For You (2015) [MP3|320 кб/с]<80's Retro Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Like You Anyway
+02. Lost
+03. Morgan Le Fay
+04. In the Night(   Читать дальше...   )Жанр: 80's Retro Pop, SynthpopПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8169F43D46E88E775A32334EB7DEE155F7598686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957759   (326773) от 18.11.2015
+
+Право голоса. "Россия - Запад: шаги к сближению?" (18.11.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326773.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: Министр обороны США заявляет, что Россия бросила вызов международному порядку. В списке претензий то, что мы нарушили границу в Грузии, границу на Украине, что мы периодически размахиваем ядерным оружием и дестабилизируем ситуацию в Сирии. Кому и чем действительно опасна Россия?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8758EBCC6ABB863F8E0750A4FEB869FCCFDCCFFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957625   (326772) от 18.11.2015
+
+O.B.M Notion vs Arczi & Nikolauss - Tropical Island (2015) Single [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tropical Island (Original Mix) (07:21)Жанр: TranceПродолжительность: 00:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2994592F28F4495D109042AC28050F3B629D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957650   (326771) от 18.11.2015
+
+KIROV - Волны И Вибрации (2015) [MP3|320 кб/с]<Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Легенда (feat. Игорь Шемякин)
+ 02. Омни (feat. Роман Хомутский)
+ 03. Вдохновение (feat. Евгений Федоров)
+ 04. Сезон ветров(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9124046C3D19E4305240A0BFC280C2AF6FABAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957159   (326770) от 18.11.2015
+
+VA - White Chill Out Vol 2 (2015) [MP3|320 кб/с]<Lounge, Chill Out, New Age>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324997.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Estiva & Skouners feat. Delaney Jane - Playing With Fire (C-Systems Acoustic Rework) (04:08)
-02. Suncatcher - Delude (Original Mix) (05:20)
-03. Matt Fax - Shift (Asleep Version) (05:26)
-04. Diversion - Perfect Pleasure (Chill Out Mix) (08:28)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:56:50
+01. Jason Cabrera - Red Apple (03:10)
+02. Formentera Bros - Sleep (The Beach Mix) (05:20)
+03. Danny Hay - Tendency (Cosmic Light Mix) (05:53)
+04. Nuvolaris - Disconnect Your Mind (Ars Domina Mix) (05:27)(   Читать дальше...   )Производство: Feel The VibeЖанр: Lounge, Chill Out, New AgeПродолжительность: 02:05:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6D53A4A85645686D2EDDDB6F5942A733969A7E1
+magnet:?xt=urn:btih:25AF5014AD5C91132A21FD4D4EA4F201551981F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +327,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958167   (324996) от 20.11.2015
+###  Публикация: 957621   (326769) от 18.11.2015
 
-Jordan Suckley & Sam Jones - Hijacker (2015) Single [MP3|320 кб/с]<Trance>
+VA - Bursting Out Volume 4 (2015) EP [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324996.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hijacker (Original Mix) (08:27)Жанр: TranceПродолжительность: 00:08:27
+01. Space Raven - Cosmologia (Original Mix) (06:04)
+02. Sylvermay - Redlight (Original Mix) (06:02)
+03. JTR - Ziggurat (Original Mix) (08:15)
+04. Brian Kuhn - Deal With It (Original Mix) (05:50)Жанр: TranceПродолжительность: 00:26:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D656EA6B7FC020ED656E7BC74BEDBA3DB7C03E8
+magnet:?xt=urn:btih:1B383DA106B4E6C0F576C9E9177FA77278B7CBAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +356,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958080   (324995) от 20.11.2015
+###  Публикация: 957608   (326768) от 18.11.2015
 
-Томас Гарди | Мэр Кестербриджа (1960) [PDF, DJVU]
+Madwave - Yukatan (2015) Single [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324995.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие романа развертывается в 20-40-х годах XIX века, в одном из юго-западных городов Англии, выдуманном городе Кестербридже (прототипом которого стал город Дорчестер в Дорсете). Герой романа Майкл Хенчард — сельскохозяйственный рабочий, батрак, которого нужда гонит в город на заработки. Благодаря исключительным качествам своего самобытного характера, этот выходец (   Читать дальше...   )Жанр: Роман, Классическая прозаПеревод: А. В. Кривцова, М. И. Клягина-КондратьеваФормат: PDF, DJVU
+01. Yukatan (Original Mix) (06:38)
+ 02. Yukatan (Madwave's Uplifter Mix) (06:01)Жанр: TranceПродолжительность: 00:12:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80ACC942E98049598EC927F40935721CBA88D01B
+magnet:?xt=urn:btih:9FCFC836CE59BAD3F775378C016152EC47F56356
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,54 +383,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958119   (324994) от 20.11.2015
+###  Публикация: 957688   (326767) от 18.11.2015
 
-Frank Blackfire - Back On Fire (2015) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Gunn
-02. Victims Of Society
-03. Insane Human Race
-04. Sound Thrashing(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C24DF5C92BAD5D1CB61BE04458205E1C5BAD5917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958089   (324993) от 20.11.2015
-
-А.И. Сидоров, O.E. Нестерова и др. | Раннехристианская и византийская экзегетика (2008) [PDF, DJVU]
+Ф. М. Путинцев | Политическая роль и тактика сект (1935) [DJVU]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324993.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник статей посвящен такой важной, но в современной отечественной филологической науке мало изучаемой проблеме, как толкование Библии в раннехристианский и византийский период. Наряду с тем, что в нем дан подробный исторический обзор истории развития методов толкования Священного Писания со II по VIII вв., его авторов интересовали важные теоретические проблемы, (   Читать дальше...   )Жанр: Сборник статей, экзегезаФормат: PDF, DJVU
+В книге т. Путинцева дан анализ политической роли и тактики сект начиная с 1900-х гг. и кончая нашими днями.
+
+Рассматривая тактику сект при советской власти на разных этапах, автор вскрывает реакционную сущность сект, показывая наряду с этим процесс высвобождения верующих из под влияния сектантства в результате успехов социалистического строительства.
+(   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D893D04C57672CAA97517C46A9CF3C5C2386278
+magnet:?xt=urn:btih:01F8EE701893E0732A62D666D70B4F8D3CD2AE9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,28 +412,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958297   (324992) от 20.11.2015
+###  Публикация: 957584   (326766) от 18.11.2015
 
-Яков Длуголенский | Две недели с телевизором (1974) [FB2]
+Black Ferns - Black Ferns (2015) [OGG|448-488 кб/с]<Alternative Rock, Psychedelic Rock>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324992.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У нас ещё не было телевизионной программки, но у нас уже был телевизор.
-Мы купили его на прошлой неделе и, едва внесли в дом, сели вокруг и стали смотреть.
-Скажу сразу: нам повезло. Какой-то майор милиции обращался к гражданам с просьбой разыскать преступника, которого он и его коллеги разыскать не могли.
-Далее шли приметы преступника.(   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+01. Lovers of Today
+02. Everything Always
+03. Death Drag
+04. Factory Worker(   Читать дальше...   )Жанр: Alternative Rock, Psychedelic RockПродолжительность: 00:33:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54F3D593C65726D1F9A65C1B13BA95A1065C503B
+magnet:?xt=urn:btih:E86FE00BB8DD7A034D247D86A6FB4E56B0E47132
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,52 +441,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958150   (324991) от 20.11.2015
+###  Публикация: 957627   (326765) от 18.11.2015
 
-Люциан Котлубай | Железнодорожный мир (1890) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324991.jpg" />
-</div>
-
-
-###  Подробнее
-
-И въ обществѣ, и въ печати постоянно раздавались и раздаются голоса о желѣзнодорожныхъ неурядицахъ и безобразіяхъ. Но все-таки надлежащаго, такъ-сказать, цѣльнаго освѣщенія этого явленія въ печати еще не появлялось, а внутренняя, интимная жизнь желѣзнодорожнаго міра и по-сейчасъ скрывается подъ какою-то таинственною заслоною. Между тѣмъ, (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB933A1666E54332A55CE3E1EEBB8333D421F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957260   (324990) от 20.11.2015
-
-L 33, Chris.Su, Kryptomedic - Mirror Universe (2015) Album Sampler [MP3|320 кб/с]<Drum & Bass>
+Andrea Ribeca feat. Lokka Vox - Cyberfly (2015) Single [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324990.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. L 33 - Scream VIP (Original Mix)
-02. Chris.SU - Underground Culture VIP (feat. Kryptomedic)Жанр: Drum & BassПродолжительность: 00:09:51
+01. Cyberfly (Original Mix) (07:22)
+02. Cyberfly (Pedro Del Mar & Beatsole Remix) (07:30)
+03. Cyberfly (Madwave & Dave Joy Remix) (07:05)Жанр: TranceПродолжительность: 00:21:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D03999EC76279B9C043E9FA2CC9A60E69A455B95
+magnet:?xt=urn:btih:B7C17670DD4C30B3D6796C92445DB6153F411A3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,25 +469,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 957988   (324989) от 20.11.2015
+###  Публикация: 414907   (326728) от 25.11.2011
 
-Газета | Дачница №22 (542) (ноябрь 2015) [PDF]
+Город призраков / Ghost Town (2008) [H.264] BDRip
 
->>Журналы
->>Домоводство (журналы)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324989.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Всё про сад и огород: фруктовые и декоративные растения, огородные культуры, в том числе и экзотические новинки, а также всевозможные дачные приспособления. Читательская аудитория - владельцы приусадебных и дачных участков, фермеры, многие из которых являются и авторами публикуемых в «Дачнице» статей. Концептуальная направленность издания - экологическое земледелие. (   Читать дальше...   )Жанр: Домоводство, садоводство, огородничествоФормат: PDF
+На Земле живут много разных людей. У них разные увлечения, интересы, внешность. У них разная жизнь и смерть. Многие из них даже не догадываются о существовании друг друга. Но у всех их есть общее: после смерти, если у них осталось незаконченное дело при жизни, они остаются на Земле в виде духов (или призраков). Они бродят незримо по Земле пытаясь найти покой. У всех (   Читать дальше...   )Жанр: Фэнтези, Комедия, МелодрамаРежиссер: Дэвид КоупАктеры: Рики Жерве, Теа Леони, Кристен Уиг, Грег Киннир, Алан Рак, Аасиф Мандви, Данаи Джекезай Гурира, Деннис Албанес, Дилан Кларк Маршал, Билл КэмпбеллПеревод: 1 - Профессиональный (многоголосый, закадровый)Язык субтитров: РусскийПродолжительность: 01:42:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A1B6C482EB4D7383EE732411EA561C349BC7AD1
+magnet:?xt=urn:btih:DBED3529A8B8368CCEF66574FB5A433F5B1CD554
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -271,25 +495,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 415729   (324988) от 27.11.2011
+###  Публикация: 415150   (326727) от 25.11.2011
 
-Журнал | Esquire [Россия] №71 (ноябрь 2011) [PDF]
+Михаил Булгаков | Собачье сердце (2005) [MP3, Владимир Самойлов]
 
->>Журналы
->>Мужские журналы
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324988.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ЖурналФормат: PDF
+Серия/Цикл: Литературные чтения, Русская классика.
+Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик отечественной литературы ХХ столетия.
+Три сатирические повести, представленные в аудиокниге, обращены к одной и той же реальности – Москве 1920-х годов. Рассказывая о полярных силах того времени, автор как бы развертывает человеческую антропологию, (   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: Студия «АРДИС»Продолжительность: 11:17:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:826DDF4E0B1F06A12F4A6F5EC7736B0129947F2F
+magnet:?xt=urn:btih:209B2E5AADBF5104333A1075D60A78CA572A7014
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -297,55 +523,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958169   (324968) от 20.11.2015
+###  Публикация: 957550   (326724) от 18.11.2015
 
-WeAreAliens - A Day (2015) Single [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Day (6:43)
-02. A Day (Souhail Semlali Remix) (6:45)Жанр: TranceПродолжительность: 00:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3528802753242F8A7109DFF926E9F2B0323B2D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958115   (324967) от 20.11.2015
-
-Signum Regis - Chapter IV: The Reckoning (2015) [MP3|320 кб/с]<Progressive, Power Metal>
+Megadeth - Fatal Illusion (2015) Single [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324967.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lost And Found
-02. The Secret Of The Sea
-03. The Voice In The Wilderness
-04. Prophet Of Doom(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 00:49:56
+01. Fatal Illusion
+02. Symphony Of Destruction (Live)
+03. Peace Sells (Live)Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:12:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86C0ADD95E750E818E1A0057B6804185F1AA50F2
+magnet:?xt=urn:btih:73FE7FD15F1E20E6174FC986636B7294143CEB46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -353,25 +551,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958088   (324966) от 20.11.2015
+###  Публикация: 957601   (326723) от 18.11.2015
 
-Вера Петрук | Рассказы (2015) [FB2]
+Прасковья Дидык | В тылу врага (1960) [PDF, DJVU]
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324966.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326723.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сборник вошли лучшие рассказы в жанре фантастики и фэнтези от автора «Саги о халруджи» – Веры Петрук. Сказочные земли драконов, далекие колонии человечества, суровые городские трущобы, непроходимые леса и другие фантастические миры удивят и заставят пережить небывалые приключения с харизматичными персонажами. Героические подвиги, космические приключения, игры с (   Читать дальше...   )Жанр: Научная фантастика, Русское фэнтезиФормат: FB2
+Предлагаемая читателю документальная повесть разведчицы-парашютистки Прасковьи Дидык восполняет в какой-то мере этот пробел. Правда, книга написана не в чисто мемуарном жанре — повествование ведется от третьего лица. Воины, партизаны откровенно, не стесняясь, говорят о самих себе, о своих боевых товарищах, боевых коллективах, в рядах которых они сражались. Здесь (   Читать дальше...   )Жанр: Военные приключения, Документальная повестьФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD05C9DE08FC8AEE6E338876C858ACC17D135563
+magnet:?xt=urn:btih:82389211F0778305D0A1461108FF61D29A36C4A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -379,25 +577,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958170   (324965) от 20.11.2015
+###  Публикация: 957626   (326722) от 18.11.2015
 
-Will Atkinson & Rowetta - Mesmerise (2015) Single [MP3|320 кб/с]<Trance>
+Hoyaa - Losing Precious Moments (2015) Single [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324965.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mesmerise (Original Mix) (07:57)Жанр: TranceПродолжительность: 00:07:57
+01. Losing Precious Moments (Original Mix) (07:32)Жанр: TranceПродолжительность: 00:07:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:941B414F2939EBDF92E6A450DEF1B534BF2DB36C
+magnet:?xt=urn:btih:3F78A75A8E620757CADE563754E0DD912521B2A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -405,83 +603,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 957729   (324964) от 20.11.2015
+###  Публикация: 957195   (326721) от 18.11.2015
 
-VA - Trancemission Amsterdam (2015) [MP3|320 кб/с]<Trance,Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel - The Razor (feat Johnny Norberg - U Cast remix) (07:05)
-02. Roman Messer & Denis Sender - New Life (Purple Stories remix) (05:17)
-03. Adagio Sensus & Ellie Lawson - Easy For You (No Mosk remix) (05:44)
-04. Igor Dyachkov & U-Jeen - Crash (original mix) (05:46)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFE3F149CBA121CE66B994ECCD3BB1E214E9415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958171   (324963) от 20.11.2015
-
-Simon Templar - Meltwater (Part III) Single (2015) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meltwater (Part III) (10:32)Жанр: TranceПродолжительность: 00:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68261B432E7D46CDFA1FB15E6674F950BF6D9261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958042   (324962) от 20.11.2015
-
-Laurent Petitgand - The Salt of the Earth (Original Soundtrack) (2014) [OGG|~450 kbps]<Score / Modern Classical, Ambient>
+Crimeanization - Without Someone - (2011) [MP3|320 кб/с]<New Age, Ambient>
 
 >>Other Styles
->>OST
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324962.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Salt of the Earth (02:41)
-02. Papu's Song (03:36)
-03. Serra Pelada (02:50)
-04. Wrangel Island (03:56)(   Читать дальше...   )Жанр: Score / Modern Classical, AmbientПродолжительность: 00:46:53
+01. Crimeanization Part 1
+02. In A Lifetime
+03. Temporary Visions
+04. I'm Searching For A Place Where I Can Hide(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:00:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EDC668234A9C972CE5ABD6BA5A576B0FB9FD118
+magnet:?xt=urn:btih:ED0E01B19C303D586C07F50124E01980C747063A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,161 +632,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 957974   (324961) от 20.11.2015
+###  Публикация: 957722   (326720) от 18.11.2015
 
-Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №21 (117) (Ноябрь 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70388987D7CA55A9F39D189647142E6DFF91D176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958282   (324960) от 20.11.2015
-
-Вечерний Ургант. Сезон №8. Выпуск №52 (2015.11.20) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуПродолжительность: ~ 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED86CDA2C6C81EA058C328E33274BD346960AA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957898   (324959) от 20.11.2015
-
-The Wallflowers - Breach (2000) [FLAC|tracks+.cue]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324959.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Letters From The Wasteland
- 2. Hand Me Down
- 3. Sleepwalker
- 4. I've Been Delivered(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0FEA293278E8EB05CFC9CB9ECB7AB5401E41FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958085   (324958) от 20.11.2015
-
-Романо Гвардини | Гёльдерлин. Картина мира и боговдохновленность (2015) [PDF, DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга немецкого философа, католического богослова итальянского происхождения Романо Гвардини посвящена выдающемуся немецкому поэту, жившему в последней четверти 18 - первой половине 19 века, однокурснику Гегеля (в его студенческие годы), с которым он в дальнейшем продолжал переписку. Воззрения Гёльдерлина на прекрасное получают позднее развитие в философских школах (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E733EB1AB53AAF505DDFEFC762A18B7A08B6BFEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958315   (324957) от 20.11.2015
-
-Не спать! Выпуск №64 (2015.11.20) SATRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324957.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 апреля в 00.30 на телеканале ТНТ состоится премьера нового шоу «Не спать!» Это будут настоящие, жесткие юмористические бои без правил с возрастным рейтингом «18+». В роли ведущего выступит резидент Comedy Club Сергей Гореликов. А судить и определять победителей будут три рефери. Среди судей можно будет увидеть Павла Волю, Вадима Галыгина, Тимура Батрутдинова, (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Вадим Галыгин, Тимур БатрутдиновПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D43F481CE12FCDB372EF8E34995DB2CF0EDBF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957248   (324956) от 20.11.2015
-
-VA – Cubic EP (2015) [MP3|320 кб/с]<Drum & Bass>
+VA - The Dark Side of Trance - Day Of The Dead Vol. 2 (2015) [FLAC|Lossless|WEB-DL]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324956.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kronology - Vertigo (Original Mix)
-02. MaxNRG - 50,000 (Original Mix)
-03. North Base - Extrimus (Original Mix)
-04. Erb n Dub - Payback (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:27:15
+01. Oberon – Different World (7:04)
+02. Origin – Shapeshifter (7:05)
+03. Diego Morrill – Manticore's Soul (7:30)
+04. Omega Drive – Find Me If U Can (7:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E029B0C6DEA35D8A5199E82BB45111A2303BF692
+magnet:?xt=urn:btih:B9E4A1E6F124140479AB14F42460DB778266D483
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,25 +661,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958294   (324955) от 20.11.2015
+###  Публикация: 956455   (326719) от 18.11.2015
 
-Mozilla Firefox 43.0 beta 5 (x86/x64) [Ru]
+DJ JIM - Halloween (2014-2015) (Обновляемая) [MP3|320 kbps]<Electro House, Big Room House>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324955.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
+01. SBCR - SPIDER
+02. ORFAZ - Deep Threat
+03. Kenneth G & Jeff Doubleu - Big Dipper
+04. Holmes & Watson - Lumberjack (Festival Mix)(   Читать дальше...   )Жанр: Electro House, Big Room HouseПродолжительность: 01:59:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74D440C31D2B4F44E59E90D7F632C668E29C0F6A
+magnet:?xt=urn:btih:03AFF3D3D4ECCEBA1C9DFCDA613CFB30A8EC9699
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,28 +690,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 958205   (324954) от 20.11.2015
+###  Публикация: 957714   (326718) от 18.11.2015
 
-LogoS - L'enigma della vita (2014) [FLAC|image+.cue]<Progressive Rock>
+Ferry Tayle - The Wizard (Extended & Remixed) (2015) [FLAC|Lossless|WEB-DL]<Trance>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324954.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326718.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Antifona
-02. Venivo Da Un Lungo Sonno
-03. In Fuga
-04. Alla Fine Dell'ultimo Capitolo(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:16:02
+01. Ferry Tayle - Let The Magic Happen (album intro mix) (4:34)
+02. Ferry Tayle - The Way Back Home (feat Poppy - extended mix) (7:21)
+03. Ferry Tayle - Geometrix (feat Driftmoon - extended mix) (6:46)
+04. Ferry Tayle - Metamorphosis (extended mix) (5:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:41:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C91EEFDF7A16F805E68A33736C2495BCD20CBDD
+magnet:?xt=urn:btih:D62A0B4D3E8BB5BACCAB89B39848E2D0F5253858
 ```
 
 https://mybot314.ru/tekegram_catalog/

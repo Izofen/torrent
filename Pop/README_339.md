@@ -1,3 +1,338 @@
+###  Публикация: 324775   (82711) от 17.03.2012
+
+Lionel Richie - 2 альбома (2003, 2012) [FLAC|Lossless]<Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+2003 - The Definitive Collection
+2012 - TuskegeeЖанр: Pop, Soul, R&BПродолжительность: 02:46:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469152   (82692) от 17.03.2012
+
+Сергей Пенкин - 18 альбомов (1992-2011) [MP3|320 kbps]<Pop,Folk,Jazz>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как жаль (С. Пенкин и Лолита)
+02. Я больше не хочу тебя терять (С. Пенкин и И. Аллегрова)
+03. Любовь настала (С. Пенкин и Роза Рымбаева)
+04. Половинка (С. Пенкин и Ани Лорак)
+05. Ты снишься мне (С. Пенкин и Таисия Повалий)
+06. Мечты (С. Пенкин и Татьяна Буланова)
+07. Yes Sir I Can Boogie (С. Пенкин и группа "Мираж")
+08. Прости за любовь (С. Пенкин и Анне Веске)
+09. Любовь одна виновата (С. Пенкин и Ева Польна)
+10. Good bye, my love, good bye Прощай, любовь (С. Пенкин & Demis Roussos)(   Читать дальше...   )1992-2011Жанр: Pop,Folk,JazzПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AFBAB9DC328506298B2FD28A2214B82831EDCB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468318   (82564) от 16.03.2012
+
+ABBA - Gold: Greatest Hits (1993) [MP3|320 кб/с]<Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82564.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+Продолжительность: 01:19:08
+01. Dancing Queen (3:53)
+02. Knowing Me, Knowing You (4:04)
+03. Take A Chance On Me (4:09)
+04. Mamma Mia (3:33)
+05. Lay All Your Love On Me (4:35)
+06. Super Trouper (4:14)
+07. I Have A Dream (4:46)
+08. The Winner Takes It All (4:57)(   Читать дальше...   )1993Жанр: Pop, DiscoПродолжительность: 02:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1DEE5B22DB310F3136F5964D51BF55773E34D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468192   (82318) от 15.03.2012
+
+Bad Boys Blue - All The Best (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss You All Over, Baby
+02. A Love Like This (Radio Edit)
+03. You're A Woman
+04. Gimme Back My Love
+05. How I Need You
+06. Love Really Hurts Without You
+07. Mon Amie
+08. I Wanna Hear You Heartbeat
+09. Don't Break The Heart
+10. Lovers In The Sand(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:57:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467257   (82049) от 14.03.2012
+
+Adam Lambert - Glam Nation Live (2011) [MP3|320 kbps]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voodoo (4:39)
+02. Down The Rabbit Hole (2:41)
+03. Ring Of Fire (2:06)
+04. Fever (3:32)
+05. Tribal Segment (1:24)
+06. Sleepwalker (5:00)
+07. Whataya Want From Me (4:26)
+08. Soaked (4:37)
+09. Aftermath (5:01)
+10. Jamming With Lazers (4:59)(   Читать дальше...   )2011Жанр: Pop-RockПродолжительность: 01:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E420CD46C53959C325C4CE299CB3A779412E18EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467724   (82022) от 14.03.2012
+
+VA - Московские окна: Песни на все времена (1995) [MP3|320 кб/с]<Pop< Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Леонид Утёсов - Московские Окна (4:55)
+02.Эмиль Горовец - Голубые Города (3:03)
+03.Эдуард Хиль - Человек Из Дома Вышел (2:33)
+04.Эдита Пьеха - Только Ты (2:04)
+05.Аккорд - Назло (3:10)
+06.Галина Великанова - Ландыши (2:33)
+07.Владимир Трошин - Нелётная Погода (3:22)
+08.Аккорд - Возвращайся (3:48)
+09.Эмиль Горовец - Седьмой Этаж (3:03)
+10.Герг Отс - День Рождения (2:49)(   Читать дальше...   )1995Жанр: Pop< RetroПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE60BD9AE16EAE5EFEF75B85598B06F6CF7A8E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467113   (81805) от 13.03.2012
+
+Pink - Can't Take Me Home (2000) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Split Personality
+02. Hell Wit Ya
+03. Most Girls
+04. There You Go
+05. You Make Me Sick
+06. Let Me Let You Know
+07. Love Is Such a Crazy Thing
+08. Private Show
+09. Can't Take Me Home
+10. Stop Falling(   Читать дальше...   )2000Жанр: PopПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5683742A3C2BD657085CDC86879DF60441420E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466436   (81727) от 12.03.2012
+
+Dr. Alban - Greatest Hits (2008) [MP3|320 кб/с]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81727.jpg" />
+</div>
+
+
+###  Подробнее
+
+СD-1
+Продолжительность: 01:17:43
+01. It's My LifeЖанр: EurodanceПродолжительность: 02:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB87D3E421356009F486E96B65EC4FF8EF7A89BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465919   (81478) от 11.03.2012
+
+Pino D'Angio - The Best Of (2CD) 2011 (ZYX Records ZYX 5469) [FLAC|Lossless]<Italo-pop - Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81478.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD2
+01. Ma quale idea (vers.2) [0:04:13.09]
+02. Ti regalo un reggae and roll [0:03:27.53]
+03. Una notte da impazire [0:04:32.63]
+04. Non ti ricordi di me [0:05:22.52]
+05. E libero scusi [0:04:44.27]
+06. Che strano amore questo amore [0:04:29.22]
+07. Ex bambini [0:05:14.49]
+08. Favole [0:04:20.63]
+09. Okay okay [0:04:20.25](   Читать дальше...   )Жанр: Italo-pop - DiscoПродолжительность: 01:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED241F15313D061A55C65614DE6B1D8438C63FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466103   (81450) от 11.03.2012
+
+Thomas Anders & DJ Eurodisco - The Fine Soldier - PART 1-2 (2012) [MP3|320 кб/с]<Eurodance, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sorry, Baby (Long Version)
+02. No Ordinary Love (Eurodisco Promo Mix)
+03. Soldier (Extra Dance Beat Version)
+04. Stay With Me (Eurodisco Long Version)
+05. One Thing (Extra Dance Beat Version)
+06. Can`t Give You Anything (Slow Down Eurodisco Mix)
+07. Gigolo (Moscow Fm Mix)
+08. The Sweet Hello The Sad Goodbye (Extra Dance Beat Version)
+09. Stay With Me (Air Piano Instrumental)2012Жанр: EurodanceПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59925C492978EA2F8C1A45424D3BA7FADE789F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466110   (81425) от 11.03.2012
 
 2 Unlimited - The Very Best Of 2 Unlimited (1995) [MP3|320 кб/с]<Eurodance>
@@ -518,333 +853,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459028   (78809) от 27.02.2012
-
-VA - Золотые хиты ВИА. Песни Вячеслава Добрынина (2011) [FLAC|Lossless]<Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.ВИА «Ариэль» - Не забывайте друзей (В. Добрынин - Н. Пляцковская) (4:10)
-01. Не забывайте друзей (В. Добрынин - Н. Пляцковская) (4:10)
-02.ВИА «Красные маки» - Если у тебя своя дорога (В. Добрынин - Л. Дербенёв) (3:48)
-02. Если у тебя своя дорога (В. Добрынин - Л. Дербенёв) (3:48)
-03.ВИА «Красные маки» - Бессоница (В. Добрынин - М. Рябинин) (3:03)
-03. Бессоница (В. Добрынин - М. Рябинин) (3:03)
-04.ВИА «Надежда» - Раз и навсегда (В. Добрынин - М. Пляцковский) (2:25)
-04. Раз и навсегда (В. Добрынин - М. Пляцковский) (2:25)
-05.ВИА «Весёлые ребята» - Бологое (В. Добрынин - М. Рябинин) (3:45)
-05. Бологое (В. Добрынин - М. Рябинин) (3:45)(   Читать дальше...   )2011Жанр: Pop, RetroПродолжительность: 04:47:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349654   (78778) от 27.02.2012
-
-Matia Bazar - 2 альбома (2006-2011) [FLAC|Lossless]<Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Prima Stella Della Sera (4:33)
-02. Stringimi (5:20)
-03. Il Treno Blu (3:30)
-04. Casa Mia (3:43)
-05. Elettrochoc (Remix) (6:23)
-06. Rayo De Luna (Version espagnole de ''Raggio Di Luna) (3:42)
-07. Por Una Hora A Tu Lado (Version espagnole de ''Per Un'Ora D'Amore'') (3:35)
-08. Te Siento (Version espagnole de ''Ti Sento'') (4:06)
-09. Nuestra Sinfonia (Version espagnole de ''Italian Sinfonia'') (4:17)
-10. Solo Tu (Version espagnole de ''Solo Tu'') (3:29)(   Читать дальше...   )2006 - 2011Жанр: PopПродолжительность: 03:19:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458420   (78744) от 27.02.2012
-
-Тамара Гвердцители и Дмитрий Дюжев - Я тебя никогда не забуду (2011) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457234   (78217) от 24.02.2012
-
-Lady GaGa - The Singles (2011) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alejandro [04:00]
-02. Bad Romance [04:21]
-03. Born This Way [04:21]
-04. Eh, Eh (Nothing Else I Can Say) [02:56]
-05. Judas [04:10]
-06. Just Dance [04:03]
-07. Lovegame [03:37]
-08. Paparazzi [03:29]
-09. Poker Face [03:58]
-10. Telephone [03:41](   Читать дальше...   )Жанр: PopПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457274   (78177) от 24.02.2012
-
-VA - Золотой фонд. Мое последнее танго  - Кумиры прошлых лет (2000) [FLAC|Lossless]<Ретро, Танго>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лещенко - Татьяна (3:17)
-02. Виноградов - Тайный остров (3:03)
-03. Сокольский - Снилось мне (3:00)
-04. Утесов - Тайна (2:58)
-05. Лещенко Петр - Мое последнее танго (3:17)
-06. Юрьева - Ты помнишь наши встречи (3:09)
-07. Лещенко Петр - Вернулась снова ты (3:24)
-08. Виноградов - Недотрога (2:29)
-09. Сокольский - Голубые глаза (3:03)
-10. Утесова - Расстались мы (3:06)(   Читать дальше...   )2000Жанр: Ретро, ТангоПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457440   (78124) от 24.02.2012
-
-Mylene Farmer - Du Temps Remixes (CDM) (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Du Temps (Single) (03:38)
-02. Du Temps (Tomer G Reloaded Club Mix) (06:34)
-03. Du Temps (Mico C Club Remix) (05:14)
-04. Du Temps (Mico C Radio Edit) (03:36)
-05. Du Temps (Instrumental) (03:35)2012Жанр: Pop, DanceПродолжительность: 00:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA41F798A24F881D22853FE8FC69015AAFEAF1C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456186   (77584) от 21.02.2012
-
-The Steve Miller Band - Abracadabra (1982) [FLAC|Lossless]<Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 		Keeps Me Wondering Why	3:43
-02. 		Abracadabra	5:10
-03. 		Something Special	3:35
-04. 		Give It Up	3:35
-05. 		Never Say No	3:37
-06. 		Things I Told You	3:15
-07. 		Young Girl's Heart	3:33
-08. 		Goodbye Love	2:53
-09. 		Cool Magic	4:23
-10. 		While I'm Waiting	3:26Жанр: Pop RockПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455374   (77549) от 21.02.2012
-
-Тимур Родригез - Сборник (unofficial) (2012) [MP3|320 kbps]<pop-dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77549.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Notorious - feat. дуэт Emotion
-2. Болен тобой
-3. Рэп друзей - feat. Потап и Каменских Настя & Анна Снаткина & Сева Полищук
-4. Увлечене - feat. Ани Лорак
-5. О тебе
-6. Out in Space
-7. Скажи мне
-8. Лучше не будет
-9. Слушай свое тело
-10. Welcome to the Night2012Жанр: pop-danceПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F8631AD323272EC5868EA307E9B2DC14EA7BD13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454852   (77438) от 20.02.2012
-
-Валерий Меладзе - Лучшее (2009) 2CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Без суеты (4:06)
-02. Спрячем слезы от постороних  (3:48)
-03. Иностранец  (4:06)
-04. Верни мою любовь (4:25)
-05. Рассветная (3:40)
-06. Шоу-бизнес  (3:31)
-07. Осколки лета (3:41)
-08. Ей никогда не быть моей  (4:15)
-09. Ночь накануне Рождества (4:59)
-10. Переменится ветер (3:44)(   Читать дальше...   )2009Жанр: PopПродолжительность: 02:38:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455054   (77131) от 19.02.2012
-
-Андрей Миронов - Платиновая Коллекция (2005) [MP3|320 kbps]<Ретро>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РетроПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00375A827F0491E681B207C6599AAB5513D70D30
 ```
 
 https://mybot314.ru/tekegram_catalog/

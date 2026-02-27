@@ -1,102 +1,24 @@
-###  Публикация: 1015501   (773942) от 11.05.2016
+###  Публикация: 1399222   (733729) от 30.07.2020
 
-Экшены - GraphicRiver - SandStorm Photoshop Action - 10012562 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773942.jpg" />
-</div>
-
-
-###  Подробнее
-
-SandStorm Photoshop Action - Разбудите шторм и взорвите свое изображение с этими песочными экшенами !!Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C2AC8827995B3F45778AFC98FA6CBB904B3C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015407   (773917) от 11.05.2016
-
-Пресеты - VideoHive - Royal FX Presets [FFX, AEP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Royal FX Presets - представляет собой набор из 80 предустаных эффектов, который работает с After Effects CS6 и выше. После установки, просто перетащите нужный эффект от "Royal FX Preset" в вашу предварительно подготовленную панель композиции на таймлайне. Предварительные настройки включают в себя специальную панель управления, которая помогает настроить (   Читать дальше...   )Формат: FFX, AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8111911E95213194A658609684AD4AC660B92D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124277   (773316) от 13.04.2017
-
-Рамки - Светлой Пасхи 2017 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многослойные PSD Шаблоны-рамки. Светлой Пасхи, для вашего творчества.Формат: PSDРазрешение файлов: 2480х3500-3500х2480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E953C548DE054FB58E56B374D642998ABB921D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213064   (772945) от 15.03.2018
-
-Векторный клипарт - Fotolia - Daisy flower petal spring flyer banner frame background [EPS]
+Векторный клипарт - Brand name company logos business corporate design 30 [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772945.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733729.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Векторные цветы
-25 EPS + previewФормат: EPS
+Логотипы для бизнеса
+10 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CA8D8F0166430B68552BC42EDFC11AB6FD943E5
+magnet:?xt=urn:btih:8B3189566A72F418BD5859EDB423F4BE42CE8C14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,27 +26,264 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213058   (772944) от 15.03.2018
+###  Публикация: 1021349   (732543) от 29.05.2016
 
-Векторный клипарт - Fotolia - Spring discount flyer banner sale invitation card [EPS]
+Экшены - GraphicRiver - Armature Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armature Photoshop - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74649EF5F7DDA5DDBF963B5B23CA79EE22060B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021504   (732537) от 29.05.2016
+
+Экшены - GraphicRiver - Fog Flow Photoshop Action CS3+ [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fog Flow - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD1CFE04320FD5DB1391B8C9FCCD00F48524B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021345   (732462) от 29.05.2016
+
+Экшены - GraphicRiver - Retouching Photoshop Action 2 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один щелчок, чтобы применить удивительные эффекты на своем фото.
+Полностью настраиваемый и прост в использовании.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04173099818682B84A1899C903AA424A609996B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021289   (732428) от 29.05.2016
+
+Пресеты - PresetPro - HOLLYWOOD [lrtemplate]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голливудская коллекция включает в себя 66 пресетов для Lightroom.
+Коллекция была вдохновлена старыми плакатами голливудских фильмов и классики кинематографа.
+В данной коллекции представлены уникальные пресеты, которые добавят насыщенный цвет “киношной тематики”, монохроматический выглядит на ваши фото.  Добавит новые виньетки, текстуры, четкость и сплит тонирование. (   Читать дальше...   )Формат: lrtemplate
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501C3AFC9F6D13657FE92440093C688FDB55F16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021344   (732425) от 29.05.2016
+
+Экшены - GraphicRiver - Archi Sketch Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archi Sketch - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7A472BA91A924DE5024BE503F6C8AE989CB4AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283855   (732059) от 18.02.2019
+
+Векторный клипарт - Happy valentines day vector design #3 [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772944.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очаровательные открытки, приглашения, рамки к 14 февраля.Формат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D31558BA6C67ACDC9DC79E12CDC6164CB26FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283857   (732057) от 18.02.2019
+
+Векторный клипарт - Happy valentines day vector design #1 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскошные иллюстрации к 14 февраля с сердцами и цветами в векторе.Формат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497F7713DC720411844BD3C626144F5E4E93AB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283859   (732055) от 18.02.2019
+
+Векторный клипарт - Happy valentines day vector design #5 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нежно-розовые фоны с объемными сердцами для поздравления с днем влюбленных - 14 февраля.Формат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF13B5C5BCB6EEDC139FF3903ACE31E311F7F95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283854   (732053) от 18.02.2019
+
+Векторный клипарт - Happy valentines day vector design #7 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые иллюстрации с объемными красными сердцами, открытка с надписью love, нежные фоны с цветами в векторе.Формат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3231FA8C21F80F13716DE6842ABE302387FD65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283869   (731939) от 18.02.2019
+
+Векторный клипарт - Motorcycles - Vector Graphics [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731939.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Пригласительные билеты
-25 EPS + previewФормат: EPS
+Мотоциклы
+26 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9BCA21BA0D3B0443E19711761EE1D065D02FDD7
+magnet:?xt=urn:btih:53BA3EDA54668EB710D0CB8147C45BFAC5FF168E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,27 +291,313 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213051   (772943) от 15.03.2018
+###  Публикация: 1021764   (731762) от 30.05.2016
 
-Векторный клипарт - Fotolia - Tulip snowdrop flower basket Spring warmth flyer banner card cover [EPS, AI]
+Экшены - GraphicRiver - Sketch Effect [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch Effect- экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9C96BB4D3CB7C22B3C155547F612FF9205CD0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021849   (731757) от 30.05.2016
+
+Экшены - GraphicRiver - ProFire Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731757.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProFire Action - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF37EFB1C7F50BC2F6512B3B2A4FC117B631C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021754   (731651) от 30.05.2016
+
+Экшены - GraphicRiver - Mixed Digital Art [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mixed Digital Art - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5131FE2D99DDC63748E42EF87590B0CFE135E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021870   (731650) от 30.05.2016
+
+Экшены - GraphicRiver - Pop Art [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pop Art - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2570E7A42EA24B35A134B985B257F3BF0599D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021701   (731647) от 30.05.2016
+
+Экшены - Oil Painting Photo Effect [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oil Painting Photo Effect - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F0BD39FE37408B4D5C57E2B7073C7FD6F8CBEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021768   (731646) от 30.05.2016
+
+Экшены - GraphicRiver - Money Guilloche Photoshop Action - Guilloche Effect Creator CS3+ [ATN, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Money Guilloche - экшен для Вашего творчества.Формат: ATN, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD7A495CF73FED72D1361F8E34B0949DAC4C8C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021858   (731645) от 30.05.2016
+
+Экшены - GraphicRiver - QANTA3 | light glowing Effect Photoshop Actions [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731645.jpg" />
+</div>
+
+
+###  Подробнее
+
+QANTA3 - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3566BC0808FB741EC79DB9D085E7812BD2B31E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021735   (731644) от 30.05.2016
+
+Экшены - GraphicRiver - Sharp Painter Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sharp Painter - экшен для Вашего творчества.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68B1DD8C13BBA7514F39990833EED8A831DA102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021783   (731533) от 30.05.2016
+
+Экшены - GraphicRiver - Vintage Comics with Sketch Effect Photoshop Creator [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vintage Comics - экшен для Вашего творчества.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC14C41DCA25BD863CAC6467DEC2D0202EA94664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021705   (731517) от 30.05.2016
+
+Экшены - GraphicRiver - Real Painting Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Real Painting Photoshop Action - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355130B8DDB6EDD734002EA2BFFB751E8F4D98F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021606   (731312) от 30.05.2016
+
+Текстуры - Big Pack Textures Background Bundle [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой пакет текстур для вашего творчества.Формат: JPGРазрешение файлов: 4256x2832 / 3872x2592 / 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74EB68644C824D2DADAD07951D4A9AC893C505C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283861   (730997) от 19.02.2019
+
+Векторный клипарт - Happy valentines day vector design #6 [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772943.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730997.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Тюльпаны и другие цветы
-25 EPS, AI + previewФормат: EPS, AI
+Фоны ко дню Валентина.
+8 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37763221ADBF9B0FEC0565A53AD022BC14730902
+magnet:?xt=urn:btih:3E48580C3DEF3B4712D6B4660C0A08AAA8201186
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,25 +605,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391550   (772792) от 21.06.2020
+###  Публикация: 1283862   (730989) от 19.02.2019
 
-Растровый клипарт - Money in fan shape dollar [PSD]
+Векторный клипарт - Happy valentines day vector design #8 [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772792.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт доллары для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 3169x2355-5000x3493
+Объемные элегантные фоны, открытки с цветами и влюбленной парой.Формат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AB0254F9B5B3E22D806B1A797F1C06143BD36ED
+magnet:?xt=urn:btih:230491ACD887F5A07D226B03510A5A0262B0782B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,25 +631,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391565   (772788) от 21.06.2020
+###  Публикация: 1283864   (730966) от 19.02.2019
 
-Шаблоны - Creative Market - Italian Restaurant Scene Generator - 1613701 [JPG, PSD]
+Векторный клипарт - Happy valentines day vector design #9 [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772788.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот генератор сцен, который позволяет вам создавать собственные оригинальные презентации фирменного стиля, посвященные пицце, специям и еде, просто перетаскивая элементы в Photoshop.Формат: JPG, PSDРазрешение файлов: 1920x1280-4500x7396
+Нежные, романтические фоны к 14 февраля с объемными цветами и сердцами.Формат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5A59F6FDFF314ED8620C3A31941DE39D6484142
+magnet:?xt=urn:btih:D1D1B72D642F625E1EC607F31F14626AF93DB899
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,468 +657,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015851   (772668) от 12.05.2016
+###  Публикация: 1283867   (730858) от 19.02.2019
 
-Экшены - GraphicRiver - Destrukt Photoshop Action - 11427937 [ATN]
+Векторный клипарт - Happy valentines day vector design #4 [EPS]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772668.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+Прекрасные шаблоны для открытки, приглашения, флаера ко дню Валентина - 14 февраля.Формат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54C75507B15D97DCD30AA4825103F61AFC79848A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015907   (772665) от 12.05.2016
-
-Экшены - GraphicRiver - Fearless Photoshop Action - 10063348 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54430FABA3A2D7F67B512D16D0FBA3C1BD9C9CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015767   (772663) от 12.05.2016
-
-Экшены - GraphicRiver - Architekt Photoshop Action - 9368099 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968356EDDC24B28E4ACA23897AE2872FC0AEC86B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015923   (772661) от 12.05.2016
-
-Экшены - GraphicRiver - Flux Photoshop Action - 8557339 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC16D270582A7D942599C61D5A68F5C42550263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015925   (772660) от 12.05.2016
-
-Экшены - GraphicRiver - Forge Photoshop Action - 10132054 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD2873800816511B8F6DDF56FD93F5578E63405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015826   (772657) от 12.05.2016
-
-Экшены - GraphicRiver - ArtEffex Photoshop Action - 7708443 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772657.jpg" />
-</div>
-
-
-###  Подробнее
-
-ArtEffex - Новый взгляд на Ваши фотоснимки.
-С данным экшеном обработка Ваших фото значительно ускорится.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:971DA4CFC966861CCAF4B6E291986FAC55A65237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391555   (772623) от 21.06.2020
-
-Стили - Psd Editable Text Effect Style Template 17 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772623.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 стилей для текста.Формат: PSDРазрешение файлов: 3000x2000-4000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476143D2572725F369D3ACA3B4D493FD2A938D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015858   (772571) от 12.05.2016
-
-Экшены - GraphicRiver - Dispersion Photoshop Action - 7905698 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2904A8FD5B7B5EEF7DA8E64BEEDF0FD27DEA5492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015833   (772569) от 12.05.2016
-
-Экшены - GraphicRiver - Canvas Photoshop Action - 8990173 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632DB3E87F41406F1682BBEFAEFE2AC2F83A03FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015774   (772563) от 12.05.2016
-
-Экшены - GraphicRiver - Architekt 2 Photoshop Action - 10484858 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3514D9313389EDB850B680F134C69EE02F9AAC7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015844   (772562) от 12.05.2016
-
-Экшены - GraphicRiver - Cosmic Photoshop Action - 10434544 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0136D0EB1B521FD19433B8AE7F6A71D2ED1E23C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015838   (772560) от 12.05.2016
-
-Экшены - GraphicRiver - Cell Shader 2 Photoshop Action - 10624176 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3502663CA21CBA23A2793265A7776F4FDF608DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015909   (772558) от 12.05.2016
-
-Экшены - GraphicRiver - Fearless 2 Photoshop Action - 13070350 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED224EBBA01C7262CE30BA63402A52DCEA0D13F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015819   (772557) от 12.05.2016
-
-Экшены - GraphicRiver - Double Exposure - 15908352 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Double Exposure - станьте профессионалом в двойной экспозиции. Создайте свой экшн!Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91ABDBCE37BF57D8753A799C93D05B077F4B5E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391544   (772493) от 21.06.2020
-
-3D модели - Unreal Engine - Post-Apocalyptic Industrial Scene [UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последний бастион, последнее место, где человечество может найти пристанище после того, как мир рухнул после вирусной вспышки.Формат: UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAAD04C68E5E83754A7A35CB4AF2E126F0AC0ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015912   (772486) от 12.05.2016
-
-Экшены - GraphicRiver - Fire Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3B9A8CC79B2E186758A6B607E2778D75391D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015948   (772485) от 12.05.2016
-
-Экшены - GraphicRiver - Fury Photoshop Action - 9696278 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF3D9545E3D76E08D99B9910844F3D4B7CF89EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015841   (772480) от 12.05.2016
-
-Экшены - GraphicRiver - Circles Photoshop Action - 11823191 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B1143123F460C00890411E8A17492DD6B2FCB9
+magnet:?xt=urn:btih:6FC0D80F29297B35F75E3F4A44D8CE8C39F79344
 ```
 
 https://mybot314.ru/tekegram_catalog/

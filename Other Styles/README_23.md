@@ -1,3 +1,64 @@
+###  Публикация: 282668   (943085) от 15.01.2011
+
+Deuter, Kamal & Anugama - Reiki Wellness (Энергия Рейки) (2002) [FLAC|Lossless]<Meditative, New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Deuter - Flowing
+2. Kamal - Whale Dreaming
+3. Anugama - Magic Flow
+4. Deuter - Healing Circle
+5. Kamal - Travellers of the Seas
+6. Kamal - Dreamcatcher
+7. Deuter - Blessing2002Жанр: Meditative, New Age, RelaxПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091512   (943012) от 09.01.2017
+
+Ruaidhri - Celtic Goddess (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nanna
+02. Rosmerta
+03. Sulis
+04. Habonia(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6E4BA6C567E6294F54DBBBBEA3DB58A2012313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091091   (942992) от 09.01.2017
 
 Erik Scott - In the Company of Clouds (2016) [FLAC|Lossless|tracks] <New Age>
@@ -747,76 +808,6 @@ Dagda - 6 альбомов (1999-2010) [MP3|320 кб/с]<New age, Meditative, Ce
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC198B0733CC4CDC4C727AC1E4C7A9B4122C0760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752351   (941108) от 02.02.2014
-
-VA - The World of Akkordeon (2 CD) (1997) /ZYX Music/ [FLAC|Lossless]<Instrumental, Easy Listening, Accordeon>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Frieda und Carmen Wilhelm - Vogelgezwitscher 	(02:01)
-02. Nando Monika - Carnevale di Venezia 		(02:57)
-03. Frieda und Carmen Wilhelm - Lustig und fidel 	(02:15)
-04. Georg Schwenk - Rosamunde 				(03:35)
-05. Harry Mooten - Deine Träume 			(01:48)
-06. Georg Schwenk - Hummelflug 				(01:31)
-07. Harry Mooten - Coup de Foudre 			(02:31)
-08. Georg Schwenk - Guantanamera 			(02:42)
-09. Drei Generationen Raymond - Maria Linda 		(02:28)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, AccordeonПродолжительность: 01:37:52 (00:47:55 + 00:49:52)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C532230F900C80117055F61129F09168AB26DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858201   (941088) от 16.01.2015
-
-Cliff Martinez - Far Cry 4 (Original Game Soundtrack) (2014) 2CD Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Cooling Night (02:53)
-02. Like a Tiger's Shadow (03:52)
-03. Retreat Is a Victory (02:11)
-04. Every Life, a New Warrior (03:07)
-05. No One Left Behind (01:31)
-06. No End to Them (01:52)
-07. Amita's Suite (04:25)
-08. Onto the Mountain that Walks (04:01)
-09. The Great One (04:23)
-10. To Face a Demon (01:23)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598894B205E5EA8421853E99C5BC0048E52F43A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

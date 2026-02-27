@@ -1,3 +1,290 @@
+###  Публикация: 1031893   (649533) от 05.07.2016
+
+ВИА Гра - Бриллианты (Лучшие песни) (2005) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Бриллианты  "
+02. "Ой говорыла чиста вода   "
+03. "Биология  "
+04. "Стоп! Стоп! Стоп!"(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F06EEAFFB4234AC9AD11EDB774A0B8E8B95CA170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031862   (649429) от 05.07.2016
+
+Мираж - Танцевальный марафон (2002) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звёзды вас ждут (4:59)
+02. Эта ночь (версия 2000) (3:45)
+03. Где я (версия 2001) (3:53)
+04. Снова вместе (2:45)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C26BF789F41FB94D2D527B042B6C12D353330EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031955   (649421) от 05.07.2016
+
+Белый День - Балалайка In Rock (1996) [MP3|320 Kbps] <Rock, Folk, Country>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen & Deep Purple
+02. Иисус Христос — Суперзвезда
+03. Машина Времени
+04. Boney-M(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A7678508A301E7B7E196A289E41C0F35FA9DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031879   (649348) от 05.07.2016
+
+Моя Мишель - Ты мне нравишься (2013) [FLAC|Lossless|image + .cue] <Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Радиоволны
+02. Ди Джеи
+03. Все оттенки красного
+04. Гудини(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00: 45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B01A1A81BC8E475914458EA520B2F5729A0B9EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031844   (649339) от 05.07.2016
+
+Игорь Николаев - Лучшие песни. Новая коллекция (2006) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. НезнакомкаЖанр: PopПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EF6467CC90379B4531C82DB2A315223397C9C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031946   (649333) от 05.07.2016
+
+Odyssey - Love Train (1994) [FLAC|Lossless|tracks] <Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Theme from Odyssey Part 1    03:24
+02.  Riding On A Train    04:06
+03.  Into The Light    04:20
+04.  Let Yourself Go!    03:22(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34B6BA15307CE6A8486B25A67DC070755E4D365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032015   (649325) от 05.07.2016
+
+Натали - О, Боже, какой мужчина! (2016) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Володя
+02. Замуж за лето
+03. Платье на бретелях
+04. Шахерезада(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B13376EF8FDF2EC7950C1E3FBA78FC30D7E86C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032012   (649121) от 05.07.2016
+
+Натали - О, Боже, какой мужчина! (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Володя
+02. Замуж за лето
+03. Платье на бретелях
+04. Шахерезада(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8809C5510774C8059F513D65F3C124314FE22F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292155   (648848) от 28.03.2019
+
+VA - Dancefloor Annual (2019) Explicit [MP3|320 Kbps] <Electropop, Dance, Futurepop, Tropical>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648848.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01- Alesso - Remedy
+02- Sean Paul And David Guetta Feat. Becky G - Mad Love
+03- Zedd And Elley Duhe - Happy Now(   Читать дальше...   )Жанр: Electropop, Dance, Futurepop, TropicalПродолжительность: 02:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:431EF4A89CD1C110068AF3E8CBFAA74F3A59AE4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291913   (648843) от 28.03.2019
+
+B. Fleischmann - Stop Making Fans (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes The A Train
+02. You're The Spring
+03. We've Heard The Talking Heads Talking
+04. There Is A Head(   Читать дальше...   )Жанр: Electronic, Pop, Indie PopПродолжительность: 01:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A99464265331D8BFBED0B99E0BD1B9AF7BC6C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292255   (648755) от 28.03.2019
 
 VA - Les Inrockuptibles: La bande-son du printemps 2019 (2019) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -458,310 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20ABAAC29B871086A34B4EAC04A59D2FD7B9B268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032021   (647636) от 06.07.2016
-
-Наталья Ветлицкая - Мой любимый (2004) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Половинки
-02. Три дня до сентября
-03. Мальчики
-04. Белым снегом(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78068A7AB0D8891C2AC1525CE79B24B3146630ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032097   (647624) от 06.07.2016
-
-Whigfield - Whigfield (1995) [APE|Lossless|image + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturday Night (Radio Mix)
-02. Think Of You (Extended Mix)
-03. Another Day (Nite Mix)
-04. Don't Walk Away(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7738FC0280F87574DD4990D0756062979F459F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517062   (647619) от 01.07.2012
-
-Barbra Streisand - The Essential (2CD) (2002) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:17:03
- 01. Woman In Love
- 02. Guilty (Duet with Barry Gibb)
- 03. Comin' In And Out Of Your Life
- 04. Memory
- 05. Papa, Can You Hear Me?
- 06. A Piece Of Sky
- 07. Putting It Together
- 08. Not While I'm Around
- 09. Send In The Clowns(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFD190E990C0C201262DF369A737CE8DA43E388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516847   (647529) от 01.07.2012
-
-Joe Dassin - Septemberwind - Seine größten Erfolge (1991) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647529.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Keiner Singt Gern Allein (I Shall Sing)
-2. Dieser Sänger Braucht Nur Ein Chanson
-3. Sie War Ooh!
-4. Ich Hab' Mich Verliebt
-5. In Versailles In Dem Grossen Garten
-6. Meines Vaters Sohn (Un Cadeau De Papa)
-7. Schöne Grüsse An Mama
-8. Septemberwind (L'ete Indien) (Africa)
-9. Immer Weiter
-10. Es Gibt Mädchen So Zum Träumen(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CED3DCE950D259CDDF98F0A8923232894D1706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032171   (647526) от 06.07.2016
-
-Guru Groove Foundation - Over You (2016) EP [MP3|320 Kbps] <Dancepop, Funk, Neo Soul>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bomb
-02. Over You
-03. As Much As You Say
-04. When HeЖанр: Dancepop, Funk, Neo SoulПродолжительность: 00:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423727F6458B7D8B3CEA82BF18836B14461E94CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032111   (647524) от 06.07.2016
-
-Фристайл - И новое и лучшее (1994) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Измученное сердце 4:20
-02. Соседка 4:01
-03. Обидно мне до слёз 3:49
-04. Последняя ночь 4:15(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74724DA49B66E5DF42C8BDFC4D08A142B9CA207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516957   (647397) от 01.07.2012
-
-Donna Summer - Memorial Mix Bootleg (2012) [MP3|320 кб/с]<Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647397.jpg" />
-</div>
-
-
-###  Подробнее
-
-N/AЖанр: DiscoПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500B33858116CBFC52B41373FBDDE98327014D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032142   (647374) от 06.07.2016
-
-VA - Disco Хиты 80 - 90. Выпуск 3 (2008) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Технология / Полчаса [3:22]
-02 - Комбинация / American Boy [4:43]
-03 - Рома Жуков / Млечный путь [4:28]
-04 - Мираж / Скорость [4:20](   Читать дальше...   )Жанр: PopПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D888A8B3E8C008AB9D3CC60BF1D240F8B18BF07E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517524   (647147) от 01.07.2012
-
-Flo Rida - Wild Ones (2012) [MP3|320 кб/с]<Pop, Dance, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whistle
-02. Wild Ones (feat. Sia)
-03. Let It Roll
-04. Good Feeling
-05. In My Mind, Pt. 2 (feat. Georgi Kay)
-06. Sweet Spot (feat. Jennifer Lopez)
-07. Thinking Of You
-08. I Cry
-09. Run (feat. RedFoo of LMFAO)Жанр: Pop, Dance, R&BПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13306F1CB388651C3B0C310D5FCE42A9FA244C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516946   (647145) от 01.07.2012
-
-Ранетки - Верните Ранеток!!! (2012) [MP3|320 kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ревность (03:28)
-02. Кукла (04:25)
-03. Верните наш рок-н-ролл (02:30)
-04. Я тебя найду (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C5B40F1910CA54FF23BBDCD0E6B3518B605235
 ```
 
 https://mybot314.ru/tekegram_catalog/

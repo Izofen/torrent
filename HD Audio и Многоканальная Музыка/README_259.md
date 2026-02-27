@@ -1,3 +1,206 @@
+###  Публикация: 1816517   (4277) от 05.09.2025
+
+La Dispute - No One Was Driving The Car (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - I Shaved My Head (3:29)
+02. - Man with Hands and Ankles Bound (3:19)
+03. - Autofiction Detail (4:54)
+04. - Environmental Catastrophe Film (8:42)(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CE669BDA9B8ACF0DDDA561E897BDEA68569F17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816463   (4272) от 05.09.2025
+
+The Rods - Wild Dogs Unchained (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Eyes of a Dreamer(5:04)
+02.Rock and Roll Fever(5:14)
+03.Mirror Mirror(5:11)
+04.Tears for the Innocent(6:23)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C95457AA19C03D2B17B8F14F7EDFA9F48CE943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816636   (4271) от 05.09.2025
+
+Spinal Tap - Break Like The Wind (2025 Remaster) (1992) Remastered, 2025, Geffen [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bitch School (02:50)
+ 02 - The Majesty Of Rock (03:55)
+ 03 - Diva Fever (03:07)
+ 04 - Just Begin Again (04:56)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B680A7571999AF9A99D69FD8C9FE5464D13179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816743   (4156) от 06.09.2025
+
+Jean-Michel Jarre - Live In Bratislava (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4156.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Opening Bratislava (live)
+02. Epica Oxygene (live)
+03. Oxygene 2 (live)(   Читать дальше...   )Жанр: Electronic |Продолжительность: 01:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201B6DCE529C0D63F3C0F53051C932DB9DF9813B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816805   (4079) от 06.09.2025
+
+Faithless - Champion Sound: Side 1 Forever Free (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Downtempo, Trip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faithless - Forever Free (1:35)
+02. Faithless, LSK - In Your Own Groove (feat. LSK) (4:53)
+03. Faithless - Fugitive (7:24)
+04. Faithless, Suli Breaks - Peace And Noise (feat. Suli Breaks) (3:01)Жанр: Progressive House, Downtempo, Trip-HopПродолжительность: 00:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964C51BA16A98972BD2588E8887110E98F72BD20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816737   (4053) от 06.09.2025
+
+Rob Thomas - All Night Days (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hand In My Hand
+02. All Night Days
+03. Hard To Be Happy
+04. I Believe It(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40310DB736CAD5FE70A6B5F90D85289F00CC78F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816825   (3879) от 07.09.2025
+
+David Byrne - Who Is The Sky? (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock, Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Everybody Laughs (3:48)
+02. - When We Are Singing (3:24)
+03. - My Apartment Is My Friend (3:03)
+04. - A Door Called No (2:35)(   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Art RockПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91E501BE1F03CCD52275E836C8F947025E8C99F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816898   (3861) от 07.09.2025
 
 Ryan Adams - Heartbreaker (2000) 25th Anniversary Edition, 2025, PAX-AM [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alt Country, Singer-Songwriter>
@@ -541,207 +744,6 @@ Ashen - Chimera (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt Metal, Modern 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85A8037EF0BC4BB9231E37A8F349793334185EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817601   (3300) от 11.09.2025
-
-Hypocrisy - Virus (Remaster 2025) (2005) Remastered, 2025, Nuclear Blast [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. XVI (Remaster 2025) (00:15)
- 02. Warpath (Remaster 2025) (04:24)
- 03. Scrutinized (Remaster 2025) (04:25)
- 04. Fearless (Remaster 2025) (04:22)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE96FE0C93290B22C39F8B0F61539D9BB134B3AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817539   (3291) от 11.09.2025
-
-Pharoah Sanders - Karma (1969) SHM-SACD, Japanese Edition, Reissue, Remastered, 2025, Impulse!  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Soul-Jazz, Modal>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Creator Has A Master Plan - 32:41
-02. Colors - 5:36Жанр: Soul-Jazz, ModalПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3689D61FD3B408DD354A3596498D0C82CB95FA3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670652   (3201) от 12.09.2025
-
-Antimatter - Studio Albums (11 releases) (2001-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Antimatter — группа, образованная в 1998 году бывшим басистом Anathema Дунканом Паттерсоном и его старым другом Миком Моссом.2001 - Saviour
-2003 - Lights Out
-2005 - Planetary Confinement
-2007 - Leaving EdenЖанр: Progressive RockПродолжительность: 12:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753D371EC243A53626F0D8851ACDA89BAC6BB9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817602   (3183) от 12.09.2025
-
-ILWT - Наполовину полон. Сорокалетним посвящается (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Hip-Hop, Punk, Ska, Drum & Bass>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кривые руки (Интро) [00:02:21]
-02. Гастрольная [00:03:07]
-03. Золотые пески [00:03:23]
-04. Поясница [00:04:40](   Читать дальше...   )Жанр: Alternative, Hip-Hop, Punk, Ska, Drum & BassПродолжительность: 00:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69FF24D340825EAA8C4726D72992957E0651C737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817683   (3172) от 12.09.2025
-
-Foreigner - 4 (1981) 2025 4CD Deluxe Edition [FLAC 24/96, 16/44.1|Lossless|WEB-DL|tracks] <Rock, Melodic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3172.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Night Life (2025 Remix)
-02. Juke Box Hero (2025 Remix)
-03. Break It Up (2025 Remix)(   Читать дальше...   )Жанр: Rock, Melodic Rock |Продолжительность: 04:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3074536C0DACC317465800C21985D7778876E496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817690   (3163) от 12.09.2025
-
-The Rasmus - Weirdo (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Creatures of Chaos(3:20)
-02.Break These Chains (feat. Niko Vilhelm of Blind Channel)(3:44)
-03.Rest in Pieces(2:56)
-04.Dead Ringer(3:20)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B18EDDA532EFE012844FC2D6B0744679A5052AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817657   (3156) от 12.09.2025
-
-Sophie Ellis-Bextor - Perimenopop (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3156.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Relentless Love (4:03)
-• 02. Vertigo (3:31)
-• 03. Taste (2:50)
-• 04. Stay On Me (3:08)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD4B253319906DE4522191427CE7612A6146629
 ```
 
 https://mybot314.ru/tekegram_catalog/

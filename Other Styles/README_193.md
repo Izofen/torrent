@@ -1,3 +1,61 @@
+###  Публикация: 1806241   (65408) от 11.07.2025
+
+John Denver - Windsong (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Soft Rock, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Windsong    [0:04:01.65]
+02. Cowboy's Delight    [0:03:06.35]
+03. Spirit    [0:03:37.33]
+04. Looking For Space    [0:04:01.00](   Читать дальше...   )Жанр: Soft Rock, Folk, World, & CountryПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6763F1F6FA5B1017C0D882C902B80148135D6E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806289   (65373) от 13.07.2025
+
+Jo Dee Messina - A Joyful Noise (2002) CD, Album [FLAC|Lossless|tracks + .cue] <Folk, World, & Country, Holiday>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Wonderland    [0:03:01.05]
+02. I'll Be Home for Christmas    [0:04:04.22]
+03. Let It Snow! Let It Snow! Let It Snow!    [0:02:15.28]
+04. The Christmas Song    [0:04:23.12](   Читать дальше...   )Жанр: Folk, World, & Country, HolidayПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7479C94F1604B374F945F9B8FFCA2BA2BC8CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 441024   (64272) от 25.01.2012
 
 Hans Zimmer - Sherlock Holmes: A Game of Shadows (2011) [MP3|320 kbps]<Soundtrack>
@@ -688,64 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:157FECF20A117788224D95F9CA2310EBAC578796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732394   (52202) от 24.06.2024
-
-Lindsey Stirling - Duality (2024) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening, Electronic>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скрипачка Lindsey Stirling описывает свой последний альбом с метким названием Duality (Двойственность) как два альбома в одном. Идея этого названия заключается в том, что двенадцать треков Duality исходят, по словам американской артистки, из двух совершенно разных сторон ее самой. В результате получился самый разносторонний альбом Stirling за последние годы, в котором, (   Читать дальше...   )01. LEvil Twin (3:47)
-02. Eye of the Untold Her (3:40)
-03. Surrender (3:21)
-04. Serenity Found (4:23)(   Читать дальше...   )Жанр: Instrumental, Easy listening, ElectronicПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DFF88EDED7E711B9BD73699CDB28317234582DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821202   (52092) от 02.10.2025
-
-Gallows Bound - Gallows Bound (2014) [MP3|320 Kbps] <Americana, Bluegrass, Country, Folk punk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Widow Woman
-02. The Damaged
-03. Sink in the Soil
-04. Dominion Flowers(   Читать дальше...   )Жанр: Americana, Bluegrass, Country, Folk punkПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A04D94860BEAD4A2ED2D7D69586C96C7CD220B3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

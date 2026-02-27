@@ -1,3 +1,29 @@
+###  Публикация: 1037411   (613432) от 24.07.2016
+
+Шаблоны - GraphicRiver - Horror Photo Effect Template v02 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Horror Photo Effect - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 2500×3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B67B156C279CD45C4B5AF9C957BA6860CDD7416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037422   (613427) от 24.07.2016
 
 Шаблоны - GraphicRiver - Glitch Effect Photo Template [PSD]
@@ -647,33 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A06EE75C270F8AC319F20B8E3A66F2F11243613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041427   (583258) от 08.08.2016
-
-Рамки - Романтическая рамка с нежными фиалками - Для самых милых и прекрасных [PSD, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтическая рамка для Вашего творчества.
-Автор: KoaressФормат: PSD, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A36E17AA881008ECC0BD1BA3B484C11CC300167
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,293 @@
+###  Публикация: 1237708   (550617) от 25.07.2018
+
+Constellation Orchestra - Perfect Love Affair (1978) Reissue CD, Italy & C, 2013 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funk Encounter (6:36)
+02. Dancing Angel (6:21)
+03. Perfect Love Affair (7:18)
+04. Cosmic Melody (7:06)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6487746AB39D3C8BEC69F70EDF0FC41131DB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309597   (550532) от 20.06.2019
+
+¿Who's the Cuban? - Circo Circo (2019) [FLAC|Lossless|tracks + .cue] <Pop, Salsa, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buscando una forma de liquidarte (4:01)
+02. Todo lo hice (3:54)
+03. Tukara (3:56)
+04. Cómo (3:26)(   Читать дальше...   )Жанр: Pop, Salsa, LatinПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9275273D1B6A247B88841762A1293D2BF1BD6670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309543   (550448) от 20.06.2019
+
+VA - 55 Hits Été 2019 (2019) 3CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550448.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Pedro Capo feat. Farruko - Calma
+02. Angele - Balance Ton Quoi
+03. M. Pokora - Les Planetes(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A51F413E44445EAAA2272A32D2C3BC489ADEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309520   (550440) от 20.06.2019
+
+VA - The Summer Album 2019 (2019) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550440.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01.  Wham!  -  Club Tropicana
+02.  John Travolta & Olivia Newton-John  -  The Grease Mega-Mix
+03.  ABBA  -  Summer Night City(   Читать дальше...   )Жанр: PopПродолжительность: 03:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1646439C817415C483E27BC970378C1AF11E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309528   (550354) от 20.06.2019
+
+VA - Easy Guitar (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Castro - Learning To Fly (Acoustic Version) 4:35
+02. Alanis Morissette - Hand In My Pocket (Acoustic Version) 4:31
+03. Stone Sour - Wicked Game (Live Acoustic) 4:27
+04. Tyler Hilton - Missing You (Acoustic Version) 3:20(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 01:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB705E66E42831CF6E31444C8E2D37C881E972DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309521   (550349) от 20.06.2019
+
+VA - The Hottest Latino Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Latino Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Reggaeton Latino - Travesuras (3:18)
+02.Reggaeton Latino - Mi Gente (3:05)
+03.Reggaeton Latino - Ni Tu No Yo (3:36)
+04.Reggaeton Latino - Bobo (3:31)(   Читать дальше...   )Жанр: Latino PopПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423B38B7106586E768679B631623D39B830FBD2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309643   (550238) от 20.06.2019
+
+Zucchero - Oro Incenso & Birra 30th Anniversary Edition (2019) [MP3|320 Kbps] <Pop, Rock, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overdose (D'Amore) (Remastered 2019)
+02. Nice (Nietzsche) Che Dice (Remastered 2019)
+03. Il Mare Impetuoso Al Tramonto Salì Sulla Luna E Dietro Una Tendina Di Stelle... (Remastered 2019)
+04. Madre Dolcissima (Remastered 2019)(   Читать дальше...   )Жанр: Pop, Rock, LatinПродолжительность: 01:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA495E70674C3A001C3423298694CD135E6A40A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047368   (549932) от 29.08.2016
+
+Modern Talking - Remixes (2005) [FLAC|Lossless|tracks + .cue] <Euro Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Mix '98 (4:30)
+02. Jet Airliner (Fasten-Seat-Belt Mix) (5:50)
+03. Ready For The Victory (Club Version) (5:11)
+04. You're My Heart, You're My Soul (Instrumental) (3:58)(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048499C99518E44F5D7AA804CFF19DE8EF5DF3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309889   (549455) от 21.06.2019
+
+кокетливое лицо для фото на документы - у тебя всегда есть выбор: гречка или кукурузная каша (2019) EP [MP3|320 Kbps] <Indie, Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549455.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Поцелуи со вкусом сосисок
+2. Дима и Вова (никакой политики)
+3. Багет с майонезом
+4. Песня про Лену(   Читать дальше...   )Жанр: Indie, PopПродолжительность: 00:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84BC67C8ADF94E094D89BB0AAD956EFC9AB9EBBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047764   (549246) от 30.08.2016
+
+VA - Global (2016) [MP3|192 Kbps] <Indie Pop, Dream Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonny Stemp - Holy Days
+02. Tien Tien - My Everything
+03. La Secuela -  Agua de Vos
+04. Hospital - Lovergirl(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, New WaveПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BA18FE9BA80CC40D970CBE92456BAD3E3BA73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047708   (549173) от 30.08.2016
 
 Hospital - Uncommon Sense (2015) [MP3|320 Kbps] <Indie Pop, Brit Pop, Dream Pop>
@@ -459,302 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3266D4894E6CDFFD2781AA4978F72D77A9B02191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310057   (546885) от 24.06.2019
-
-VA - POLAND - Romantic Collection (Unknown) [FLAC|Lossless|image + .cue] <Pop, Ballad, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Z. Kurtycz - Caluje twa dlon madame (3:23)
-02. Czerwone Gitary - Historia jednej znajomosci (3:02)
-03. M. Rodowicz - Jada wozy kolorowe (3:45)
-04. Skaldowie - Przesliczna wiolonczelistka (3:03)(   Читать дальше...   )Жанр: Pop, Ballad, RetroПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5393F31D2F91D19AC163723B90EAC629C52F623D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310036   (546841) от 24.06.2019
-
-VA - Paris' Nights - Romantic Collection (Unknown) [FLAC|Lossless|image + .cue] <Pop, Ballad, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D. Roussos - Danse A La Vie (4:25)
-02. T.Cutugno - Et Si Tu N'Existais Pas (4:22)
-03. F.Franconis - Fanny Fanny (3:27)
-04. R.De Godewaerswelde - Quand La Mer Monte (2:26)(   Читать дальше...   )Жанр: Pop, Ballad, RetroПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40A563BE14DBCFA215814D956717ECDAAEB7FA8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048422   (546426) от 02.09.2016
-
-Sophie Ellis Bextor - Familia (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Forever
-02. Death of Love
-03. Crystallise
-04. Hush Little Voices(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F422019B00F0B2FC00A57B318142E74CB7C923F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048831   (545736) от 03.09.2016
-
-Brian Bennett - Voyage (A Journey Into Discoid Funk) (1978) LP [MP3|320 Kbps] <Electronic, Disco, Abstract>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage (6:24)
-02. Solstice (6:41)
-03. Chain Reaction (6:15)
-04. Pendulum Force (6:23)(   Читать дальше...   )Жанр: Electronic, Disco, AbstractПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C38E735ABFFB14CBC2EBECE2B0AE251F4DD45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694059   (545657) от 30.08.2013
-
-Various Artists - Hits 2013 Vol-2 (2013) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Hush / Harlem Shake
- 02. Bang La Decks / Kuedon (Obsession)
- 03. Faydee ft. Lazy J / Laugh Till You Cry
- 04. Xonia / Remember
- 05. A.J. Kriss ft. Sonny Boy W / I’m Trying To Make London My New Home
- 06. Jutty Ranx / I See you
- 07. Dj Sava / Cocktail
- 08. Dsaparecidos Vs. Walter Master J / Danser
- 09. Stereolizza / Go Back To Your Mama
- 10. VOX HALO ft. LaDolla / Criminal(   Читать дальше...   )Жанр: PopПродолжительность: 02:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134416F7879F8EC7F85E85855F3C026679D57438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048942   (545635) от 03.09.2016
-
-Plazma - Black & White (2006) [FLAC|Lossless|image + .cue] <Pop, Euro House>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save
-02. Round The Corner
-03. Black Would Be White
-04. Darkness Steals The Light(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89EB4949DA3EE36BAFDE0C898B6DDAE06428F0D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048657   (545630) от 03.09.2016
-
-Sophie Ellis-Bextor - Familia (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Forever (4:21)
-02. Death Of Love (4:20)
-03. Crystallise (3:31)
-04. Hush Little Voices (4:14)(   Читать дальше...   )Жанр: Pop, Europop, Singer/SongwriterПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5EE8E2B8489031EE74B633649A936D12F935FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048927   (545606) от 03.09.2016
-
-Plazma - Six | Zero | Seven (New Version) (2004) [FLAC|Lossless|image + .cue] <Pop, Euro House>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'll Never Meet An Angel
-02. 607
-03. Listen To The Rain
-04. You Know (My Recent Disease)(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B2B2AAAF1F1150E50AC7859C705185087A3957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048580   (545512) от 03.09.2016
-
-#2Маши - Теперь нас двое (2016) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Теперь нас двое
-02. Мысли
-03. Птицы
-04. Свободные линии(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF1786914029A65721B3DFDC5063FE602DFD15F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238596   (545493) от 31.07.2018
-
-VA - Synth Planet (2010) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.C.D - Cwejmansong (4:34)
-02. Keen K - When The Moon Falls Down (5:15)
-03. Aldo Bergamachine - Ice Sun (4:25)
-04. Anosphere - Epsilon Hunter Part2 Remix (5:28)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-pop, DiscoПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60469AB39681003894234EF04152949C1E48D791
 ```
 
 https://mybot314.ru/tekegram_catalog/

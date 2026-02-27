@@ -1,3 +1,61 @@
+###  Публикация: 1201949   (790970) от 27.01.2018
+
+Ernesto Cortazar - Memories Of The Fall (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories Of The Fall (3:37)
+ 02. Lady (4:11)
+ 03. Living A Dream (3:43)
+ 04. Falling Leaves (3:15)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD54449724C3E90FEC289DCEB8D7EAE430F5CAFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202049   (790969) от 27.01.2018
+
+Neil Davidge - BRITANNIA (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Amends (04:01)
+02. The Sun Will Not Rise Tomorrow (03:10)
+03. You Spoke (02:25)
+04. The Scariest Thing (02:26)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD49EE35723E09C929A2B3973375E350C99249F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201908   (790939) от 27.01.2018
 
 Noorvik - Noorvik (2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
@@ -686,64 +744,6 @@ Llewellyn - Return to the Temple (Re-Recorded) (2018) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44FB78FF01243C28EA0196197DF902108144F3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203275   (788122) от 02.02.2018
-
-Cousin Harley - Blue Smoke - the Music of Merle Travis (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Divorce Me C.O.D.
-2. Deep South
-3. Blue Smoke
-4. So Round, So Firm, So Fully Packe(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D976318DDDFA61E510B8C29CEB16D7753CD21534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511915   (787835) от 23.11.2021
-
-Variations & Gary Ryan - Romantic Guitar (2006) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albatross (2:58)
-02. Bilitis (3:22)
-03. Lara's Theme (2:22)
-04. Everything I Do (I Do It For You) (4:09)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A6A83BEDC0FED3E192BC0CD18269900F0547EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

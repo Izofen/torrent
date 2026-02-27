@@ -1,3 +1,32 @@
+###  Публикация: 1468973   (1016576) от 11.05.2021
+
+TOP 40 PromoDJ Май 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Юлия Морозова & DJ G-Neo G - Фотообои
+02.Юлия Морозова - Зажигай (Eugene Star Remix)
+03.Юлия Морозова - Всегда с тобой рядом (Eugene Star Remix)
+04.Проект НаЗаре, DJ DimixeR - На Заре 2020 (Extended Mix)(   Читать дальше...   )Жанр: EDM, Dance, Electro, Pop, Trance, House, Tech HouseПродолжительность: 02:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10BCDD6257044624852C26651AEE0C0999C8427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469622   (1016307) от 13.05.2021
 
 VA - Beatport Techno Electronic: Sound Pack #281 (2021) [MP3|320 Kbps] <Techno, Electronic>
@@ -716,35 +745,6 @@ VA - World Sound Funky: Jackin House Mixtape (2021) [MP3|320 Kbps] <Funky House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68E2CEEFB320C56BAAF2D7F0F1FD98439089CE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473988   (1013393) от 31.05.2021
-
-VA - The Favorite Fitness Music (2021) [MP3|320 Kbps] <EDM, Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013393.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scar And Eazyvibe - Life Without You
-002. Jonathan Touch - Brotherhood
-003. Dsigual - Natjwa
-004. Adam Cooper - Eyes Shut(   Читать дальше...   )Жанр: EDM, Club, Dance, HouseПродолжительность: 09:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2538BAFC4CA0C8349BF588F5D184245E76CB56F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,70 +1,3 @@
-###  Публикация: 430569   (993739) от 02.01.2012
-
-Septem Voices - Колдовство (2011) [FLAC|Lossless]<Gothic Metal/Symphonic Metal/Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Касание
-Septem Voices
-Душа
-Колдовство
-Сквозь Стекло
-Тишина
-XXI
-Стаи Птиц (Акустика)Жанр: Gothic Metal/Symphonic Metal/Female VocalПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608405   (993677) от 25.01.2013
-
-A Loathing Requiem - Psalms of Misanthropy (2010) [WavPack|Lossless]<Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annihilation Induced By The Luminous Firestorm [04:46]
-02. Rapturous Euphoria [03:32]
-03. False Gods Render Death [03:21]
-04. Enhanced Sinister Corruption (F/Matt Brown) [03:16]
-05. Ecliptic Realm [03:07]
-06. And Darkness Was Cast [02:24]
-07. Architect Or Arsonist (F/ Christian Mьenzner) [03:17]
-08. The Carnage Of Infinite Black [03:44]
-09. Purged And Forgotten [03:59]Жанр: Technical Death MetalПродолжительность: 00:31:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608404   (993595) от 25.01.2013
 
 Forgotten Tales - All The Sinners (Japan Edition) (2004) [WavPack|Lossless]<Power Metal>
@@ -263,78 +196,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 431381   (992580) от 04.01.2012
-
-Firebird - Double Diamond (2011) [FLAC|Lossless]<Hard Rock, Heavy Blues, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Saviour (4:24)
-02. Ruined (3:26)
-03. Bright Lights (3:57)
-04. For Crying Out Loud (2:33)
-05. Farewell (3:54)
-06. A Wing & A Prayer (2:57)
-07. Pound Of Flesh (2:45)
-08. Arabesque (3:15)
-09. Lose Your Delusions (3:22)
-10. Pantomime (5:12)2011Жанр: Hard Rock, Heavy Blues, Stoner RockПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 431026   (992246) от 04.01.2012
-
-Arch Enemy - 12 Альбомов (1996 - 2009) [FLAC|Lossless]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Группа Arch Enemy (Арч энеми) Была основана в 1995 году в городе Хальмстаде. Все участники данной группы ранее принимали участие в не менее знаменитых метальных командах (самый яркий пример Carcass). Попытка объединить в себе техничность, агрессию и мелодику привела к удачному эксперименту в стиле Melodic Death Metal (MDM).
-
-Первый альбом, названный Black Earth (Черная Земля), был выпущен в 1996 году. В данный момент студии, на которой происходила сама запись, более не существует. Первый же сингл привлек немалый интерес к творчеству новый группы. Как пример этому – в Японии она стала пользоваться бешенной популярность, что дало возможность попасть в ротацию знаменитого на весь мир музыкального телеканала MTV. Этот же альбом принес немалый успех на своей изначальной родине – Швеции. На первоначальном этапе своего развития Arch Enemy больше напоминала сольный проект, чем группу. Это было связано с тем, что все песни  были сочинены и записаны Майклом Эмоттом....«The Root of All Evil» (intro) - 1:06
-«Beast of Man» - 3:45
-«The Immortal» - 3:47
-«Diva Satanica» - 3:48
-«Demonic Science» - 5:24
-«Bury Me an Angel» - 4:25
-«Dead Inside» - 4:24
-«Dark Insanity» - 3:25
-«Pilgrim» - 4:50
-«Demoniality» - 1:40(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353570   (991988) от 18.01.2020
 
 Angellore - La Litanie Des Cendres (2015) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal, Gothic Metal>
@@ -386,41 +247,6 @@ Grin - Translucent Blades (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Shoe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E6ECEEA9C368BBE0F206ECDF427B06B8E38FFB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609347   (991972) от 27.01.2013
-
-Helloween - Straight Out Of Hell (Japanese Edition) (2013) [FLAC|Lossless]<Heavy/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Nabataea (07:03)
-2. World of War (04:58)
-3. Live Now! (03:12)
-4. Far from the Stars (04:44)
-5. Burning Sun (05:35)
-6. Waiting for the Thunder (03:55)
-7. Hold Me in Your Arms (05:12)
-8. Wanna Be God (Dedicated to Freddie Mercury) (02:02)
-9. Straight Out of Hell (04:36)
-10. Asshole (04:11)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 01.09.36
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,41 +529,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 432557   (989989) от 07.01.2012
-
-Suidakra - Book Of Dowth (Japanese Limited Edition) (2011) [FLAC|Lossless]<Epic Metal,Melodic Death,Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Over Nine Waves 1:58
-02. Dowth 2059 4:38
-03. Battle-Cairns 3:36
-04. Biróg's Oath 4:19
-05. Mag Mell 3:20
-06. The Dark Mound 5:14
-07. Balor 4:43
-08. Stone of the Seven Suns 5:02
-09. Fury Fomoraigh 5:43
-10. Otherworlds Collide 1:42(   Читать дальше...   )2011Жанр: Epic Metal,Melodic Death,Viking MetalПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610600   (989967) от 29.01.2013
 
 Otep - 7 Альбомов (2002-2013) Дискография [FLAC|Lossless]<Alt. Metal | Nu Metal | Female Vocal>
@@ -824,6 +615,198 @@ CD-1
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611025   (989607) от 30.01.2013
+
+Arise - 3CD (2003 - 2009) [WavPack|Lossless]<Melodic Death Metal / Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrenaline Rush [01:53]
+02. No Memory Of Light [03:41]
+03. Blindead [04:59]
+04. They Are Coming For You [04:24]
+05. Pitch Black [02:45]
+06. The Reckoning [03:29]
+07. Reclaiming The Soul [04:37]
+08. The Fury [02:49]
+09. Dead Silence [04:11]
+10. End Of Days [08:31]Жанр: Melodic Death Metal / Thrash MetalПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610795   (989548) от 30.01.2013
+
+Arkhon Infaustus - Hell Injection (2001) [WavPack|Lossless]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arising [05:05]
+02. Day Of The Doom [04:29]
+03. Dead World [04:03]
+04. Queen Of The Night [04:36]
+05. Struggle With Death [03:56]
+06. Lost Fool [04:05]
+07. Ruins Of Life [03:31]
+08. Prayer [04:01]
+09. Hungarian Dance [01:04]Жанр: Black MetalПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591242   (989346) от 30.01.2013
+
+1349 -  7 CD (2001-2011) Дискография [FLAC|Lossless]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989346.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 - Rapture (Morbid Angel cover)
+25 - Strike Of The Beast (Exodus cover)
+26 - Nerves (Bauhaus cover)
+27 - The Heretic (Possessed cover)
+28 - Pandemonium War Bells (live)
+29 - When I Was Flesh (live)
+30 - Atomic Chapel (live)Жанр: Black MetalПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354327   (989110) от 21.01.2020
+
+Elixir - Mindcreeper (2006) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989110.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Don't Trust The Preacher
+2 Mindcreeper
+3 Hot Metal
+4 Rescue My Soul(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB1F3B0C4EB30B7E17881F7895975337F4C3B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611312   (988307) от 31.01.2013
+
+As Likely As Not - Stand Up and Nerve (2011) [WavPack|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Designed Love [03:43]
+02. Realization [04:22]
+03. My Last Confession [05:08]
+04. Red Fleer [04:48]
+05. Only Echoes Of Dreams [01:09]
+06. Inhale Exhale [04:17]
+07. Nerving Empathy [05:01]
+08. Omega [06:24]Жанр: Melodic Death MetalПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 245615   (987616) от 22.01.2020
+
+Metallica - 11 альбомов (1983-2008) Japan Mini-LP SHM-CD /2010, Universal Music/[FLAC|image+cue]<Thrash Metal>
+
+>>След.
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Was Just Your Life :: 7:08
+02. The End Of The Line :: 7:52
+03. Broken, Beat & Scarred :: 6:25
+04. The Day That Never Comes :: 7:56(   Читать дальше...   )Жанр: Thrash Metal |Продолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BCC90C9FD39021CFA63FF8332F20A7863A616E
 ```
 
 https://mybot314.ru/tekegram_catalog/

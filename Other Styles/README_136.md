@@ -1,3 +1,61 @@
+###  Публикация: 33144   (375013) от 12.11.2012
+
+Music of the Shamans (Музыка шаманов)
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_375013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Shamanic Way (Путь шамана) 18:50
+02 Forest Spirit (Дух леса) 12:27
+03 La Bruja de la Cura 11:31
+04 Rain Dance (Танец дождя) 9:38Жанр: Музыка шамановПродолжительность: 52:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254365   (374945) от 13.10.2018
+
+Armik - Cafe Romantico (2004) [MP3|320 Kbps] <Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovers Moon (5:04)
+02. Cafe Romantico (5:16)
+03. Rain Drops (5:03)
+04. Sweet Dreams (4:59)(   Читать дальше...   )Жанр: FlamencoПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D9665BB4195D2A8FB80C52D0DF1C71B8CA920E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947844   (374863) от 24.10.2015
 
 Kike Fernandez - 100 Tangos Inolvidables (2010) [MP3|192 кб/с]<Tango>
@@ -681,64 +739,6 @@ Andrey Klimkovsky (Андрей Климковский) - Star Triangle (2001) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A58EE38E581DCE4FE3A7C76762D8855343AE6CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327099   (366028) от 29.09.2019
-
-VA - Modern Sound Orchestras - Another Day In Paradise (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Day In Paradise - Phil Collins  (3:46)
-02. Right Here Waiting – Richard Marx (3:22)
-03. Hey Jude - McCartney / Lennon  (3:43)
-04. I Just Died In Your Arms Tonight – Nicolas Eede (3:15)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2400F6EDE728C6238291D7E117A1DCF239BE8EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 153436   (365816) от 21.11.2009
-
-VA - Tea Music (Музыка для Чайных Церемоний) - 12 CD (1993 - 2004) [FLAC|lossless]<New age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New age, Meditative, RelaxПродолжительность: 00:50:56
-
-01. Fragrance of Water
-02. Fine Tea Is Like a Beauty(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

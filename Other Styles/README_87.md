@@ -1,3 +1,61 @@
+###  Публикация: 1136756   (672537) от 23.05.2017
+
+VA - Baywatch / Спасатели Малибу (Music From The Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Notorious B.I.G. - Hypnotize (03:50)
+02. Sean Paul - No Lie (feat. Dua Lipa) (03:41)
+03. A$AP Rocky - Everyday (feat. Rod Stewart, Mark Ronson & Miguel) (04:21)
+04. Vince Staples - BagBak (02:40)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE8FA1C0CF4EFC2006F5976FBB641C14AE843BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290857   (672350) от 23.03.2019
+
+The Bodarks - Uprooted (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caroline (03:33)
+02. Get It While the Gettin's Good (03:03)
+03. New America (03:56)
+04. Shame Shame (04:29)(   Читать дальше...   )Жанр: Contemporary Folk, CountryПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0F92DB062575CF3A97B4E32259D8EB8FDB7C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030757   (672291) от 01.07.2016
 
 Offrandes - Best of 2008-2015 (2016) [MP3|320 Kbps] <New Age>
@@ -710,64 +768,6 @@ James Last - Instrumental Forever (1998) [APE|Lossless|image + .cue] <Instrument
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43FF4AC862A208E9AE2A516B31FFD8F8A613042C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031247   (668433) от 03.07.2016
-
-Medwyn Goodall - The Dreamworld (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamweaver
-02. Where Imaginations Meet
-03. Orbit
-04. Eye of the Wolf(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC6FFF517AF9E939D491A59ED82A57452AC7508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031221   (668428) от 03.07.2016
-
-Ennio Morricone - Ennio Morricone 2016 Meisterwerke der Filmmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chi mai (from "The Professional" & "Maddalena") [3:35]
-02. Il forte (from "The Good, the Bad and the Ugly") [2:24]
-03. The Good, the Bad and the Ugly (from "The Good, the Bad and the Ugly") [2:42]
-04. Once Upon a Time in the West (from "Once Upon a Time in the West") [3:11](   Читать дальше...   )Жанр: Soundtracks, ScoreПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7AD0AA63AF3694F93C34AB205979027D306F1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

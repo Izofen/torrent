@@ -1,3 +1,205 @@
+###  Публикация: 1850729   (1054436) от 29.01.2026
+
+Ahola - Studio Albums (2 releases) (2012-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ahola - рок-группа созданная в 2011 году финским композитором и вокалистом
+Jarkko Kalevi Ahola.2012 - Stoneface
+2014 - Tug Of WarЖанр: Heavy Metal/Hard RockПродолжительность: 01:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4839E79D411FD3D0277C1136D3A0D83783809464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850509   (1054413) от 28.01.2026
+
+Avatar (Sweden) - Studio Albums (10 releases) (2006-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avatar — шведская метал-группа, образованная в Гётеборге в 2001 году.2006 - Thoughts Of No Tomorrow
+2007 - Schlacht
+2009 - Avatar
+2012 - Black WaltzЖанр: Melodic Death Metal/MetalcoreПродолжительность: 08:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7FF94010E2853698E089E12690D9F97DEF78E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850498   (1054412) от 28.01.2026
+
+Cliff Richard - She's So Beautiful. Extended Mix From The Musical "Time" (1985) Single, 45RPM [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054412.jpg" />
+</div>
+
+
+###  Подробнее
+
+A She's So Beautiful (Extended Mix)
+B She's So Beautiful
+
+(c) 1985 Dave Clark Productions, under exclusive licence to E.M.I. Record Ltd.(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA037D554CEFF014C5E7EF99CAD68EBC8E1FD30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850304   (1054141) от 27.01.2026
+
+VA - Magical Melodies: Nicolai, Rossini, Gounod, Brahms, Tchaikovsky, Wagner - Overture, Waltz and other (1968) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054141.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Vienna State Opera Orchestra - The Merry Wives Of Windsor : Overture Nicolai
+A2 The Beecham Promenade Orchestra - The Thieving Magpie : Overture Rossini
+A3 The Vienna State Opera Orchestra - Faust Waltzes Gounod
+B1 The Vienna State Opera Orchestra - Three Hungarian Dances (Nos. 6, 7 And 1) Brahms(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B91270303C405F91D635574F13175399F914C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850341   (1054140) от 27.01.2026
+
+The Boomtown Rats - Dave (1984) [FLAC|Lossless|image + .cue] <Rock, New Wave, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054140.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dave (LP Version)
+A2 Hard Times
+Lazun Gemmun - The Boomtown Rats Live
+B1 Banana Republic(   Читать дальше...   )Жанр: Rock, New Wave, Synth-popПродолжительность: 00:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A298C245597DDF30D165D36C4C78016994747D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849912   (1054120) от 25.01.2026
+
+Manuel - This Is Manuel. 14 Tracks From His Fabulous Full-Price Albums (1971) Compilation, , Sampler [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054120.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Honeymoon Song
+A2 Intermezzo
+A3 A Man And A Woman
+A4 The Shadow Of Your Smile(   Читать дальше...   )Жанр: Pop, Easy Listening, InstrumentalПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B26BC68B8BA429C86224CDAF6A2859C09433044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850141   (1053960) от 26.01.2026
+
+VA - Party Mood. The Tremeloes, Anita Harris, Tony Bennett, Louis Armstrong and other (1967) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053960.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 New Christy Minstrels - Green, Green
+A2 Anita Harris - Don't Sit Under The Apple Tree
+A3 Tony Bennett - Let's Face The Music And Dance
+A4 Percy Faith - The Girl From Ipanema(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F98397BC520059E590539FD14AC2F7FEA0A4A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849692   (1053643) от 24.01.2026
 
 Jean-Michel Jarre - The Concerts In China (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Modern Classical, Ambient>
@@ -540,203 +742,6 @@ Vermocracy - австрийская дэт-метал группа из Вены
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90E100A0D51077CC7157072AFDD978B7AF26C98F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847451   (1052244) от 12.01.2026
-
-Destroy Them - Studio Albums (2 releases) (2018-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Destroy Them - немецкая трэш-метал группа из Эссена; образована в 2016 году.2018 - Use Hate (EP)
-2026 - Threshold Of ApocalypseЖанр: Thrash MetalПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8525FA8562B4493197A5F72A6E1C3E4CF9D88C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847467   (1052234) от 12.01.2026
-
-Velozza - Studio Albums (4 releases) (2017-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Velozza - трэш-метал группа из Рурмонда, Нидерланды, основана в 2016 году.2017 - Excluded Human Being (EP)
-2021 - Apocaholic
-2023 - Bankrupt the Republic (EP)
-2026 - HumanityЖанр: Thrash MetalПродолжительность: 01:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB906D8C09EC15B1653A9D56ACBC5E5D194DD505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847124   (1051979) от 10.01.2026
-
-For My Pain... - Studio Albums (2 releases) (2009-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051979.jpg" />
-</div>
-
-
-###  Подробнее
-
-For My Pain… — финская готик-метал супергруппа из города Оулу. В состав группы входят участники из различных финских групп, в частности Eternal Tears of Sorrow и Nightwish2009 - Fallen
-2026 - Buried BlueЖанр: Gothic Metal/RockПродолжительность: 01:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2113F2C66D92FA11A32AF215F4571A0F1B0CED8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846733   (1051663) от 08.01.2026
-
-Dew-Scented - Studio Albums (11 releases) (1996-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dew-Scented — метал-группа из немецкого города Брауншвейг. Сформирована в 1992 году.1996 - Immortelle
-1998 - Innoscent
-1999 - Ill-Natured
-2002 - InwardsЖанр: Thrash/Death MetalПродолжительность: 08:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4E6028878DF71FFA70447919DFEAFD2C049EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846433   (1051342) от 07.01.2026
-
-Entwine - Studio Albums (8 releases) (1999-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Entwine - финская рок-группа из Лахти, основанная в 1997 году.1999 - The Treasures Within Hearts
-2001 - Gone
-2002 - Time Of Despair
-2004 - DiEversityЖанр: Gothic MetalПродолжительность: 06:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BEF360E09BBD9913A8B8D5D7E86A3C5BA741D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845776   (1051000) от 03.01.2026
-
-Miss May I - Studio Albums (9 releases) (2007-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Miss May I - американская метал-группа из города Трой, штат Огайо. Основана в 2007 году.2007 - Vows for a Massacre (EP)
-2009 - Apologies Are For The Weak
-2011 - Monument
-2012 - At HeartЖанр: MetalcoreПродолжительность: 05:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85FA17A1B59F9927BDBEBD12ECB9E23405D36F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845545   (1050835) от 
-
-Sinamore - Studio Albums (2 releases) (2006-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sinamore - финская метал-группа, основанная в 2004 году, из участников которой впоследствии была сформирована группа Kaunis Kuolematon2006 - A New Day
-2007 - Seven Sins a SecondЖанр: Gothic Metal/RockПродолжительность: 01:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C7FE65827C0D5AEDF52D9631CD1D02431B9D179
 ```
 
 https://mybot314.ru/tekegram_catalog/

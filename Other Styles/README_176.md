@@ -1,3 +1,61 @@
+###  Публикация: 968109   (158234) от 22.12.2015
+
+Ennio Morricone - The Man And His Music (2002) 2CD, 2005, Warner Classics [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'era Una Volta Il West (3:11)
+02. The Mission: Gabriel's Oboe (2:17)
+03. C'era Una Volta In America: Deborah's Theme (4:11)
+04. L'Ereditа Ferramonti (1:54)(   Читать дальше...   )Жанр: Soundtrack |Продолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF08A9588CBE59050B68BF3F497120E0CF41946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967999   (158223) от 22.12.2015
+
+David Arkenstone - Native Dreams (2015) [MP3|320 кб/с] <Native american, Ethnic, Folk, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_158223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Roads (05:04)
+02. Wind and Stone (04:48)
+03. Mother Sky (06:00)
+04. Mesa Morning (04:51)(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, New AgeПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74120E850B00DAAECF2958497499CBCA4B5FB72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433119   (158041) от 20.12.2020
 
 VA - Enigmatica (Сборник Качественной Электронной Музыки) (2013) [FLAC|Lossless|WEB-DL|tracks] <Enigmatic, Downtempo>
@@ -744,64 +802,6 @@ Jeffrey Hilton - Velvet Skies (2016) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F10BB479AB22C2717E830C2B8AEF466568EB27A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085828   (154753) от 23.12.2016
-
-Anousheh & Tom - Silence (Secrets of Persian Ney) 2016 [MP3|320 Kbps] <Newage, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Secret One  (19:57) 
-02|  Secret Two  (12:31) 
-03|  Secret Three  (22:48) 
-04|  Secret Four  (19:20) (   Читать дальше...   )Жанр: Newage, MeditativeПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC41DC1832C90DF015E2628758B0BCF7FD3FC41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518158   (154696) от 19.12.2021
-
-Maitreya Bland - Tranquility (1999) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tranquility
-02. The Divine
-03. Back to Eternity
-04. Tenderness(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27F73B418F362E9DAAB22EC8EE7BE1D71BDD294
 ```
 
 https://mybot314.ru/tekegram_catalog/

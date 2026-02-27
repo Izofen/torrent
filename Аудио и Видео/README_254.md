@@ -1,25 +1,25 @@
-###  Публикация: 1423392   (239573) от 13.11.2020
+###  Публикация: 1430469   (173730) от 10.12.2020
 
-VA - Lilac Aromas Lounge: Chillout Your Mind (2020) [AAC|~326 Kbps] <Downtempo, Lounge, Chillout>
+VA - The Forest Chill Lounge, Vol. 3 (2013) [AAC|~314 Kbps] <Chillout, Lounge, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239573.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_173730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Flor De Lis, Shoree, Gabrielle Chiararo - Close to You (3:41)
-02. Raquel Silva Joly - Dindi (4:02)
-03. The Soul Crusaders - When the Night Falls (4:15)
-04. Chillson, Marc Hartman - Dancing Seahorses (Original Mix) (4:36)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:08:33
+01. Artenovum - Blue Sun (5:34)
+02. Jean Mare - Ageless (Allmira Enigmatic Mix) (4:53)
+03. Lebensart - Atmo Chant (Voices from Nowhere Mix) (6:30)
+04. Richard Bonnee - Voices of the Misty Dream (Soundcloud Chillout Mix) (5:00)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:51:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2577A605226899B6C708783C93352FD7CB3235C5
+magnet:?xt=urn:btih:3B0EF0DF9EB869016ACD7AF25B5603CA8004ACBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423394   (239470) от 13.11.2020
+###  Публикация: 1430421   (173715) от 10.12.2020
 
-VA - I Love the Rain Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtempo, Lounge, Chillout>
+VA - The Forest Chill Lounge, Vol. 10 (2017) [AAC|~314 Kbps] <Chillout, Lounge, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239470.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_173715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Michael e - I Love the Rain (Original Mix) (5:41)
-02. Patiotic, Marga Sol - Hold Me (Marga Sol Chill Mix) (4:21)
-03. Tigerfrost - I Will Follow You (Ametrine Remix) (5:20)
-04. Gary B - All I Long For (Original Mix) (4:00)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:15:01
+01. Artenovum, Svetlana - Virus to Heaven (Svetlana Vocal Mix) (5:06)
+02. Jean Mare - Another Orbit (Your Dreams Mix) (3:35)
+03. For Found Future - A Place in the Sun (Sunset Chillout Mix) (4:56)
+04. Richard Bonnee - Frost Point Zero (Deep Space Groove Mix) (7:02)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:44:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7190A203F00DF5FB92B76C1B9E54A02F405DCAF7
+magnet:?xt=urn:btih:6EED5B2DB0C8080B4F6E32EDF117CD0760CDB672
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423600   (239458) от 13.11.2020
+###  Публикация: 1430476   (173705) от 10.12.2020
 
-VA - Autumn Leaves Lounge: Chillout Your Mind (2020) [AAC|~325 Kbps] <Downtempo, Lounge, Chillout>
+VA - The Forest Chill Lounge, Vol. 2 (2012) [AAC|~313 Kbps] <Chillout, Lounge, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239458.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_173705.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deepanima - Autumn Leaves (Dalibor Dadoff Remix) (6:50)
-02. Darles Flow, Marga Sol - Silent Day (6:14)
-03. Christoph Kardek, Iris Onica - Terra (Alveol Dub Remix) (7:40)
-04. Nenad J. - Sunrise Flight (Original Mix) (8:20)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:33:25
+01. Pascheba - Vi Ser (Chillout Cut) (5:22)
+02. For Found Future - Hypnotic Dreams (Transformation Downbeat Cut) (5:17)
+03. Jean Mare - Space Experience (Electronic Sphere Mix) (5:55)
+04. Houie D. - Sun over Gobi (4:07)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:17:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F916A850C3D06FF1A6CE654302832008CBB2955C
+magnet:?xt=urn:btih:0BB43432A15DC714448DB0C0E8325196140FBCED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,27 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627925   (239043) от 21.04.2023
+###  Публикация: 1670116   (171720) от 22.10.2023
 
-Джон Гришэм | Информатор (2023) [M4B|AAC, Игорь Князев]
+Astral Projection - In the Mix (2000) [AAC|329-362 kbps] <Goa Trance, Progressive Trance>
 
 >>Аудио и Видео
->>Аудиокниги (AAC)
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239043.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что ждет судью, нарушившего закон и справедливость ради больших денег? За расследование его деятельности возьмутся специалисты из КПДС – Комиссии по проверке действий судей.
-Такие как Лейси Штольц и ее напарник Хьюго Хэтч.
-И однажды на связь с ними выходит таинственный информатор – чтобы предоставить доказательства преступлений судьи Клаудии Макдоувер. Судьи, которая (   Читать дальше...   )Жанр: Детектив, юридический триллерПеревод: Аркадий КабалкинФормат: M4BПродолжительность: 13:28:47
+CD1 - Sundown:
+01. Another World (Floorplay Remix) (6:03)
+02. Ionized (5:31)
+03. Let There Be Light (7:17)(   Читать дальше...   )Жанр: Goa Trance, Progressive TranceПродолжительность: 02:38:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D47F57F437E87B9F2357460F6A650E429F0E33C3
+magnet:?xt=urn:btih:86FB799F5CF4EEC497C23EAA06D5ECA114791A40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -113,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498505   (237817) от 13.10.2021
+###  Публикация: 1430477   (170775) от 10.12.2020
 
-VA - Fireplace Chill, Vol. 1 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+VA - The Forest Chill Lounge, Vol. 1 (2012) [AAC|~315 Kbps] <Chillout, Lounge, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237817.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jens Buchert - Drifting Away (Original Version) (5:24)
-02. Twentyeight - Memories (Original Mix) (4:51)
-03. Forbident - Break Down (Original Mix) (4:57)
-04. Newton - Silent Movie (Original Version) (4:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:05
+01. For Found Future - The Forest Dreams (Artenovum Piano Mix) (5:02)
+02. Marie Therese - Black Swan (3:37)
+03. Jean Mare - Lost Enigma (Smooth Spherical Mix) (7:30)
+04. Artenovum - Far East (Atmospheric Voices Mix) (4:58)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:15:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93AF8A6BB573CD0FE38E546B5DE5FADDC8C2A281
+magnet:?xt=urn:btih:FFD50B74D4EFF7EEF1F378F09FDC885A09456FF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -142,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498239   (237812) от 13.10.2021
+###  Публикация: 1515212   (170608) от 06.12.2021
 
-VA - The Perfect Soulful Vol.2 (Chillout Your Mind) (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
+VA - A Tribe Called Kotori 1 (2018) [AAC|~330 Kbps] <Progressive House, Deep House, Downtempo, Afro House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237812.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marga Sol, Darles Flow - Feel the Rain (Original Mix) (6:10)
-02. Chappell, Gregor Salto - Lonely (4:43)
-03. Mindlo & Essential, Rona Ray - Diary (Main Vocal Mix) (7:47)
-04. Kostafunk - Paradise (Earl Tutu Remix) (5:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:31:11
+01. Oliver Koletzki - A Tribe Called Kotori (6:10)
+02. Nu - Drug (7:12)
+03. Acid Pauli - Edda's Cumbia (4:14)
+04. Be Svendsen - Voice of Tohe (8:10)(   Читать дальше...   )Жанр: Progressive House, Deep House, Downtempo, Afro HouseПродолжительность: 03:09:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1DD318C5980BDC74908E78867D58F3C1026349F
+magnet:?xt=urn:btih:04DA74BBF15E2E13CB9EDEB09CC143A6048E116A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495303   (237806) от 13.10.2021
+###  Публикация: 1515215   (170591) от 06.12.2021
 
-VA - Fifty Shades of Lounge - 50 Smooth & Sexy Chill Tunes 4 Erotic Moments (2015) [AAC|~329 Kbps] <Lounge, Downtempo, Chillout>
+VA - A Tribe Called Kotori 2 (2018) [AAC|~333 Kbps] <Progressive House, Deep House, Downtempo, Afro House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237806.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170591.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cafe Americaine - Magical Mambo (Latin Lounge Cut) (5:24)
-02. Chillwalker - Smooth Peter (Jazzbrunch Mix) (5:21)
-03. Noise Boyz - I'm a Jazzwoman (Cooljazz Mix) (5:06)
-04. Vladi Strecker - Red Wine (Slowjazz Mix) (6:31)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 04:32:16
+01. Christos Fourkis - Ma Muse (Harri Agnel Remix) (8:14)
+02. Kermesse - Camomille (8:27)
+03. Canu, Alejandro Castelli, Nu - Mariposa (DAVI Remix) (7:45)
+04. Ilu & Aaye - Amrum (8:11)(   Читать дальше...   )Жанр: Progressive House, Deep House, Downtempo, Afro HouseПродолжительность: 03:15:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F65208FCC6FFDEF456B25B44430CBA87FCC88EE1
+magnet:?xt=urn:btih:338086A0E3A9ADF21542CE64EC4453EAAD9F9E88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,28 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497410   (237800) от 13.10.2021
+###  Публикация: 1515134   (170583) от 06.12.2021
 
-VA - Beautiful Metamorphosis, Vol. 1 (2021) [AAC|~307 Kbps] <Downtempo, Lounge, Chill Out>
+VA - syncmusic - Essentials, Vol. 2 (2017) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237800.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dharma Frequency - Puja Ritual (5:15)
-02. S.W. - Like In My Dream (0:47)
-03. Prana Tones - Eastern Piano (4:52)
-04. Lemongrass - Dreaming (2:44)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:40:17
+1.01. DJ Sleeptalker - First Contact (Pete Dingon Mix) (5:33)
+1.02. Anthony Island - Open Water (4:50)
+1.03. Eric Driven - Wishful Times (5:50)
+1.04. Velvet Lounge Project - Mi Cielo Azul (Han Solo Remix) (4:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:39:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD7652D90901706F2AFDE60FA0122599BD4B205C
+magnet:?xt=urn:btih:40D66A345E8AC2235F9F0BB4E1B68D6C703BDA3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,28 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496555   (237793) от 13.10.2021
+###  Публикация: 1515135   (170572) от 06.12.2021
 
-VA - Smooth Jazz n Chill 2 (2017) [AAC|~344 Kbps] <Jazz>
+VA - syncmusic - Essentials, Vol. 3 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237793.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nick Colionne - Got to Keep It Moving (4:51)
-02. LeBron, Keith Fluitt - For the Love (4:37)
-03. Cindy Bradley - Lifted (4:55)
-04. Nicholas Cole, Steve Cole - Just One Night (4:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:13:37
+1.01. Atmoman - Russian Spring (3:46)
+1.02. DJ Sleeptalker - You ain´t me (4:02)
+1.03. Velvet Lounge Project - Angkor dreams (Floating RMX) (5:03)
+1.04. Brook Sapphire - My Name in the Sand (Guitar Dust Version) (4:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:39:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C6214F900510CA535597EEC00980D570A2E8874
+magnet:?xt=urn:btih:CCF65F793F962A1E0687BF3AB56A1DF21C8BF9E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,28 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498507   (237785) от 13.10.2021
+###  Публикация: 1515218   (170551) от 06.12.2021
 
-VA - Fireplace Chill, Vol. 2 (2020) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+VA - A Tribe Called Kotori 3 (2019) [AAC|~328 Kbps] <Progressive House, Deep House, Downtempo, Afro House>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237785.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Twentyeight - Sunday Morning (Original Version) (5:40)
-02. Dreamhunter - How to Disappear (Original Mix) (4:13)
-03. Weathertunes - Anis nous explique (Original Mix) (5:32)
-04. Stargazer - Providence (Original Mix) (3:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:53
+01. Hot Oasis - El Zalaga (6:46)
+02. Oliver Koletzki - Tankwa Town (7:34)
+03. Christos Fourkis - Drunk Salome (5:54)
+04. Nhii - Kasbah De Tarouriert (Señora Remix) (8:47)(   Читать дальше...   )Жанр: Progressive House, Deep House, Downtempo, Afro HouseПродолжительность: 02:27:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:515B0EA03AB4F1C8A024A96E522DEF48CCC78219
+magnet:?xt=urn:btih:CF3D1C7A213F1D783048856E3077FC5FBBB0A7EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +288,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495305   (237775) от 13.10.2021
+###  Публикация: 1515133   (170540) от 06.12.2021
 
-VA - Fifty Shades of Lounge, Vol. 2 - 50 Smooth & Sexy Chill Tunes 4 Erotic Moments (2016) [AAC|~329 Kbps] <Lounge, Downtempo, Chillout>
+VA - syncmusic - Essentials, Vol. 1 (2013) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237775.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Maretimo, Vladi Strecker - Sentimental Break (Wide Ocean Mix) (6:51)
-02. Orange Music - Blown Away (Acoustic Mix) (6:03)
-03. Jazzy James Jr. - Jazz Dilemma (Jazz Loungebar Mix) (4:54)
-04. Vladi Strecker - Hot Afternoon (Jazzfly Mix) (9:33)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 04:45:16
+1.01. Mano - Castaway Part1 (3:41)
+1.02. Mano - Watching Their Eyes (3:57)
+1.03. Mano - Sunflowers (3:57)
+1.04. Mano - Breathtaking Part1 (3:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:24:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E33F8145F22418D8D499E702238A669EB5EE7443
+magnet:?xt=urn:btih:9A2B829DC1EA313FA62AC333BE0820C3160223B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496563   (237769) от 13.10.2021
+###  Публикация: 1515156   (170515) от 06.12.2021
 
-VA - Smooth Jazz n Chill 6 (2021) [AAC|~347 Kbps] <Jazz>
+VA - Calm Winter Sea: Chillout Your Mind (2021) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237769.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cindy Bradley - Exhale (5:15)
-02. Kayla Waters - Open Portals (4:24)
-03. Nick Colionne - Right Around The Corner (3:47)
-04. Oli Silk - Just Can't Resist (4:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:16
+01. Peter Pearson - Can Summer Last Forever (Original Mix) (5:05)
+02. Michael e - It's Like Floating (Original Mix) (4:45)
+03. Beamy - Daybreak (4:00)
+04. Martin Hiska, Michael Moses - Sandy (4:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:12:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08E21DD9C51C87F374DADD16F6D82FE1266567B9
+magnet:?xt=urn:btih:F60E7128EA379CEEBEFC51939C9E368C0CB26559
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495377   (237760) от 13.10.2021
+###  Публикация: 1515166   (170433) от 06.12.2021
 
-Epica - Omega (2021) [AAC|~345 Kbps] <Symphonic Metal>
+David Knopfler - Shooting for the Moon (2021) [AAC|~306 Kbps] <Rock, Folk>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237760.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.01. Alpha - Anteludium (1:38)
-1.02. Abyss of Time - Countdown to Singularity (5:20)
-1.03. The Skeleton Key (5:06)
-1.04. Seal of Solomon (5:29)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 03:47:45
+01. Autumn Roses (3:24)
+02. 'til Your Ship Comes In (2:56)
+03. All the Way Down (3:10)
+04. On the Line (3:36)(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 00:40:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DC5112AF0D2989B1A1140C5DC7A25948F5F5539
+magnet:?xt=urn:btih:AE6EB33ED445492998BBCF0B6F032E5FA9FA957D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498520   (237752) от 13.10.2021
+###  Публикация: 1515157   (170425) от 06.12.2021
 
-VA - Fireplace Chill, Vol. 4 (2020) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+Deep Purple - Turning to Crime (2021) [AAC|~328 Kbps] <Rock>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237752.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_170425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tranquillo - Do You Really Love Me (Original Mix) (5:25)
-02. Jens Buchert - 1001 Miles (Original Version) (4:43)
-03. Ialaz - Go with the Flow (Original Mix) (3:53)
-04. Lazy Hammock - One of Those Days (Original Mix) (5:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:26
+01. 7 and 7 Is (2:29)
+02. Rockin’ Pneumonia and the Boogie Woogie Flu (3:15)
+03. Oh Well (4:31)
+04. Jenny Take a Ride! (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAA9573AA4A1308B7E1C14DB562F552C8A73EE87
+magnet:?xt=urn:btih:5F5B7046C4BCD49C2033E3B8CD16842396152C49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +404,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498510   (237745) от 13.10.2021
+###  Публикация: 1344378   (169987) от 10.12.2019
 
-VA - Fireplace Chill, Vol. 3 (2020) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+Арахисовый сокол / The Peanut Butter Falcon (2019) BDRip [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237745.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dreamhunter - La Nostalgie (Original Mix) (5:24)
-02. Lemongrass - Heart Flutter (Original Mix) (6:07)
-03. Jens Buchert - Motiongate (Original Mix) (5:12)
-04. Chambre 3 - L'impression de St.Tropez (Original Mix) (6:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:51
+Большое путешествие начинается с шага, а легендарное — с полета. Вылетев в окно, герой очутился в мире, где чего-то не хватало. Его новому другу — крупной суммы денег. Паре головорезов — головы друга. Молодой медсестре — любви. А ему — путешествий на плоту, погонь, пылающих костров и немного арахисового масла.Производство: США / Armory Films, 1993, Lucky TreehouseЖанр: Драма, комедия, приключенияРежиссер: Тайлер Нилсон, Майк ШварцАктеры: Шайа ЛаБаф, Дакота Джонсон, Зак Готтзаген, Джон Хоукс, Томас Хейден Чёрч, Брюс Дерн, Джон Бернтал, Джэйк Робертс, Мик ФолиПеревод: Дублированный (iTunes)Субтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:36:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93198BF21E2EDF03EC5E9507475094078D39F92C
+magnet:?xt=urn:btih:E34CB6503417D5F8C7C2C7D575A5D2C47BADFFE5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,28 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500813   (237737) от 13.10.2021
+###  Публикация: 1430728   (169973) от 11.12.2020
 
-Imaginature - Imaginature (2021) [AAC|~346 Kbps] <Metal>
+Григорий Лепс - Честь имею! На дистанции (Высоцкий) (2020) [AAC|~333 Kbps] <Chanson, Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237737.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Imaginature, Gunsen - Atonement (6:30)
-02. Imaginature, Konstantin Naumenko, Anna Dembowska - Edge (4:05)
-03. Imaginature, Konstantin Naumenko - Imaginature (4:35)
-04. Imaginature, Anna Dembowska - Shade Enchantress (6:53)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:42:33
+01. Проложите (1:12)
+02. Не писать мне повестей, романов (2:47)
+03. Ошибка вышла (5:31)
+04. День Рождения лейтенанта милиции (2:20)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 01:08:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A3A7E6E55E6FE335951CDB96B3216AF9CE634FF
+magnet:?xt=urn:btih:10706D41A228937E656906DCE6D23DAEA985ECEE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,28 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498355   (237730) от 13.10.2021
+###  Публикация: 1430726   (169970) от 11.12.2020
 
-VA - Los Angeles Beach Lounge, Vol. 4 (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
+Григорий Лепс - Честь имею! Разведка боем (Высоцкий) (2020) [AAC|~330 Kbps] <Chanson; Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237730.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tapelapse - Ocean Sunset Breeze (3:57)
-02. Weathertunes - From the Sky (Original Mix) (6:09)
-03. Marc Hartman, Airily - Spirits (Original Mix) (4:26)
-04. Stargazer, Crystin - First Love (Remastered) (Original Mix) (5:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:04
+01. Я вам мозги не пудрю (2:45)
+02. Штрафные батальоны (2:59)
+03. Жил я с матерью и батей (1:16)
+04. Их восемь, нас двое (2:43)(   Читать дальше...   )Жанр: Chanson; PopПродолжительность: 00:28:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF16FE55806AAB6874F4E7A1131684BC938DE6D3
+magnet:?xt=urn:btih:0C3C0567480367C8A68CC849EC3984E5D9F226A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,28 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498837   (237721) от 13.10.2021
+###  Публикация: 1430812   (169945) от 11.12.2020
 
-VA - Fifty Shades of Jazz (2017) [AAC|~330 Kbps] <Downtempo, Lounge, Balearic>
+Sody - real growth takes time (2020) [AAC|~273 Kbps] <Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237721.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vladi Strecker - Evening Groove (Gentle Mix) (8:17)
-02. DJ Maretimo - The Colours of Light (Sky Sergeant Mix) (6:18)
-03. Bar Blue - Walk in the Moonlight (Smoother Cut) (4:01)
-04. Sky Sergeant - Espace Essentials (Sundown Dinner Mix) (5:14)(   Читать дальше...   )Жанр: Downtempo, Lounge, BalearicПродолжительность: 08:51:04
+01. butterfly (3:09)
+02. hold it all together (3:02)
+03. i'll be there (2:24)
+04. scary part of me (3:11)(   Читать дальше...   )Жанр: PopПродолжительность: 00:17:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69A2E4BFEF4B4F1933ED7DBBF2E898F3256B20BF
+magnet:?xt=urn:btih:DA6903C0F482C4078DB0E60AD389F683712CF3A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +517,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501666   (237702) от 13.10.2021
+###  Публикация: 1430717   (169906) от 11.12.2020
 
-VA - Flora Lounge Tunes by Smooth Deluxe, Vol. 1 (2021) [AAC|~318 Kbps] <Chill Out, Lounge, Downtempo>
+Григорий Лепс - Честь имею! Мой первый срок (Высоцкий) (2020) [AAC|~329 Kbps] <Chanson, Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237702.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Red Buddha - Red Flower (1:06)
-02. Yantra Mantra - Solitaire (5:06)
-03. Giorgio Moroder - The Chase (Marat Taturas Coctail Pool Remix Radio Edit) (4:10)
-04. 351 Lake Shore Drive, Genius Jane - Butterfly (5:37)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 01:59:39
+01. Мой первый срок (2:01)
+02. Татуировка (2:07)
+03. Счётчик щёлкает (2:00)
+04. Я был душой дурного общества (2:10)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:36:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7600FA7E20D7BD3DD6D41E7E28549D36A29CC8B5
+magnet:?xt=urn:btih:B39F563738D278A19D9A2347F8A87FDC4C0C8E71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,28 +546,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499080   (237692) от 13.10.2021
+###  Публикация: 1430731   (169889) от 11.12.2020
 
-Александр Новиков - Стрелочник (2021) [AAC|~311 Kbps] <Chanson>
+Григорий Лепс - Честь имею! Городской романс (Высоцкий) (2020) [AAC|~328 Kbps] <Chanson, Pop>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237692.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Стрелочник (4:48)
-02. Костюмчик (3:48)
-03. Шир-дыр-быр (4:06)
-04. Корявый танец (3:30)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:45:41
+01. Подумаешь, с женой не очень ладно (1:36)
+02. В пику, а не в черву (2:08)
+03. Попутчик (2:44)
+04. Про соседа-завистника (2:02)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:40:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EB1D96203297EB7B30862B56D22B9D62AF941FD
+magnet:?xt=urn:btih:5ED8023FD1CAC4546A3E965C0205F22D59E9EB41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,28 +575,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500986   (237685) от 13.10.2021
+###  Публикация: 1430707   (169880) от 11.12.2020
 
-VA - The World Series of Lounge, Vol. 2 (2021) [AAC|~319 Kbps] <Balearic, Downtempo, Lounge>
+Владимир Высоцкий - Оригинал пятый (октябрь - декабрь 1973 года) [Часть 1] (2020) [AAC|~182 Kbps] <Acoustic, Chanson, Ballad>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237685.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 351 Lake Shore Drive, Genius Jane - Freezing Cold (4:25)
-02. Aiemo - I Need You (Instrumental) (4:05)
-03. Twins In Mind - Beyond Vision (Cammiloo Remix) (7:41)
-04. Inventors Of The Sun - Es vedrà (5:17)(   Читать дальше...   )Жанр: Balearic, Downtempo, LoungeПродолжительность: 01:38:09
+01. «То ли в избу и запеть…» (3:31)
+02. Песенка про метателя молота (1:31)
+03. Песня командировочного (3:13)
+04. Песня про стукача (1:50)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:50:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:915E511E1CD596B9D09314DBC1519FD220C6FA8F
+magnet:?xt=urn:btih:696865C06D514A7D4CD29F3E408CA8B621899E1D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,28 +604,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501634   (237668) от 13.10.2021
+###  Публикация: 1430696   (169876) от 11.12.2020
 
-VA - The Lounge Chill Out Chapter, Vol. 2 (2021) [AAC|~329 Kbps] <Chill Out, Lounge, Downtempo>
+Владимир Высоцкий - Оригинал второй (май - декабрь 1972 года) [Часть 2] (2020) [AAC|~183 Kbps] <Acoustic, Chanson, Ballad>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237668.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nale - Nevermind (4:52)
-02. Aerium, Me3dian - Midsimmerhjoen (6:08)
-03. Deeper Sublime, MoVoX, Marga Sol - Noname Story (5:09)
-04. Peter Pearson - Nostalgie (5:20)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:04:25
+01. Разведка боем (2:31)
+02. Золотая середина (2:57)
+03. Песня про белого слона (2:49)
+04. Песня лётчика (2:05)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:51:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CECC42A52CDAB6C7239363CE53D04107D71707E3
+magnet:?xt=urn:btih:41BE4C860168759A1CEBECEB41FF5AE5D8C880C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,28 +633,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496921   (237660) от 13.10.2021
+###  Публикация: 1430698   (169871) от 11.12.2020
 
-VA - Lounge Remixes (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Deep House>
+Владимир Высоцкий - Оригинал второй (май - декабрь 1972 года) [Часть 3] (2020) [AAC|~193 Kbps] <Acoustic, Chanson, Ballad>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237660.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Natalie Renoir, STEREO DUB, Brazil XXI - Can't Take My Eyes off You (2:56)
-02. Scubba, Ivette Moraes - The Sweetest Taboo (Dub Remix) (3:08)
-03. Urselle - Lovefool (Dalbani Remix) (3:08)
-04. Ituana - Wicked Game (Strange Desire Mix) (3:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, Deep HouseПродолжительность: 01:36:09
+01. Тот, который не стрелял (2:42)
+02. Чужая колея (3:20)
+03. Мишка Шифман (2:57)
+04. Затяжной прыжок (4:42)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:59:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E4E4DD397CAA6E542B71DF53FF0895CE2C0BEF1
+magnet:?xt=urn:btih:CBA75B34E87EB91EB1CAF2F4295B8B8095ECED0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,28 +662,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498630   (237611) от 14.10.2021
+###  Публикация: 1430703   (169861) от 11.12.2020
 
-VA - Relaxing Jazzy Beats (Abstract Electronic Chill Jazz Vibes) (2021) [AAC|~333 Kbps] <Jazz, Lounge, Chill Out>
+Владимир Высоцкий - Оригинал четвертый (1973 год) [Часть 2] (2020) [AAC|~187 Kbps] <Acoustic, Chanson, Ballad>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237611.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Duran Y Garcia - Un peu de jazz (5:27)
-02. Lo Greco Bros, Flow Bop - One Man (4:47)
-03. Agostino Maria Ticino - If I Had Said to You (3:01)
-04. Paolo Sessa, Polose - The Moon (3:53)(   Читать дальше...   )Жанр: Jazz, Lounge, Chill OutПродолжительность: 01:27:34
+01. Я был слесарь шестого разряда (1:27)
+02. «Передо мной любой факир - ну просто карлик…» (1:13)
+03. «Говорят, арестован…» (1:01)
+04. «Вот раньше жизнь!..» (1:44)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:43:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65B19B544825D0AC4CA68C92F2128C23E24DF62D
+magnet:?xt=urn:btih:470BFC74DCF572519FE552B390498363E97D8DC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,28 +691,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497791   (237598) от 14.10.2021
+###  Публикация: 1430701   (169856) от 11.12.2020
 
-VA - 0815 Lo-Fi Chill Hop (2019) [AAC|~264 Kbps] <Jazzy, Chillhop, Lounge>
+Владимир Высоцкий - Оригинал третий (декабрь 1973 года) (2020) [AAC|~384 Kbps] <Acoustic, Chanson, Ballad>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237598.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jazzy System - Strange Things (4:52)
-02. Jean Mare - Places (Lo-Fi Chill Mix) (3:24)
-03. Nightzoom - Abstract Living (Lo-Fi Chill Cut) (3:51)
-04. Jazzy System - Your Eyes They Worry (4:09)(   Читать дальше...   )Жанр: Jazzy, Chillhop, LoungeПродолжительность: 01:00:30
+01. Баллада о маленьком человекe (6:37)
+02. Марш футбольной команды «Медведей» (3:17)
+03. Песня Билла Сиггера (2:24)
+04. Мистерия хиппи (3:57)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:48:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8C15DAFA371EF76BADFA75E0E7D1E4ADF221E18
+magnet:?xt=urn:btih:28A20A090C6AB2118A7EA85712AEAC60CD570840
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -722,28 +720,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502410   (237588) от 14.10.2021
+###  Публикация: 1430684   (169850) от 11.12.2020
 
-VA - What About Lounge, Vol. 2 (2021) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+Владимир Высоцкий - Оригинал первый (апрель 1972 года) (2020) [AAC|~172 Kbps] <Acoustic, Chanson, Ballad>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237588.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_169850.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mazelo Nostra - Beach Hopper (Original Mix) (6:19)
-02. Roberto Sol, Martine - Love Finds You (Ibiza Lounge Mix) (4:21)
-03. Allume - Wellfare (Original Mix) (3:48)
-04. VAN - Gentleman (Original Mix) (6:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:17:27
+01. Певец у микрофона (4:14)
+02. На маскараде (2:44)
+03. Марш аквалангистов (1:41)
+04. Оловянные солдатики. Детская песня (2:08)(   Читать дальше...   )Жанр: Acoustic, Chanson, BalladПродолжительность: 00:57:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2654DC392ADC0B0A2C222AED7E6F6CC433AF5899
+magnet:?xt=urn:btih:99E457A0EDF35BC29C4AE0AD601B88177EC8DEEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

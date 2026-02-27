@@ -1,3 +1,61 @@
+###  Публикация: 1026199   (704154) от 15.06.2016
+
+Juliana - Earth Goddess (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prithivi - Earth    11:48
+02. Jala - Water    12:12
+03. Agni - Fire    10:44
+04. Aria - Air    12:04Жанр: New Age, Relax, VocalПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3543842A0C032F8C674D8BAF026DDA282DD587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026264   (703961) от 15.06.2016
+
+Brian Bennett - Shadowing John Barry (2015) [FLAC|Lossless|tracks] <Contemporary, Soundtrack, Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunderball    02:57
+02. Out Of Africa    03:33
+03. You Only Live Twice    03:12
+04. The Appointment    03:17(   Читать дальше...   )Жанр: Contemporary, Soundtrack, ClassicalПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE266EDBE5F53808063014AC2FD856F7506E7487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026440   (703953) от 15.06.2016
 
 Anhidema - Conversation with the Cosmos (2014) [MP3|320 кб/с] <New Age, Ambient, Chillout>
@@ -687,64 +745,6 @@ Daniel Pemberton - King Arthur: Legend of the Sword / Меч короля Арт
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4303C47C21A7375D0FD7AD98A4FE9B230382A034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027059   (700322) от 17.06.2016
-
-Thomas Newman - Finding Dory / В поисках Дори (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelpcake (00:46)
-02. Finding Dory (Main Title) (00:55)
-03. Lost at Sea (01:36)
-04. One Year Later (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5B50077665470F832B4501984F2E10822A18A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026906   (700321) от 17.06.2016
-
-Brian Tyler - Now You See Me / Иллюзия обмана (Complete Motion Picture Score) (2013) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now You See Me (02:02)
-02. The Team (02:45)
-03. Opus NYSM (02:28)
-04. Chess Moves (03:56)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:21:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2C6EF32840B8A5E186C267AF0568D9687E4E92
 ```
 
 https://mybot314.ru/tekegram_catalog/

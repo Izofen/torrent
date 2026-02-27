@@ -1,3 +1,32 @@
+###  Публикация: 1370499   (896785) от 27.03.2020
+
+Jelly Roll - A Beautiful Disaster (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-Hop, Country Rap, Blues Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bottom (2:37)
+ 02. I Need You (2:52)
+ 03. Nothing Left At All (3:24)
+ 04. Suicide (3:43)(   Читать дальше...   )Жанр: Hardcore Hip-Hop, Country Rap, Blues RockПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F98A72074D54BFD017029D909BDC311198D198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370540   (896704) от 27.03.2020
 
 Childish Gambino - 3.15.20 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, R&B>
@@ -734,35 +763,6 @@ Pharrell Williams - G I R L (2014) [FLAC|Lossless]<R&B, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73220C6346F79D015CA67E8351BD34BCED1EDE92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372334   (885431) от 03.04.2020
-
-A$AP Twelvyy - Before Noon (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Poet [00:51]
-02. Catch Up [02:16]
-03. Daytona [03:13]
-04. Kratez [03:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D9361E1E54416D7D08878579362ECD27B3409A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1839324   (1046474) от 28.11.2025
+
+VA - Trance: The Vocal Session 2026 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC & Fragma - Look At You Now (Extended Mix) [7:01]
+02. Richard Durand & Nicholas Gunn feat. Alina Renae - For You (Extended Mix) [6:46]
+03. Andy Jay Powell & DJ Fait - Love Is Heartbreak (Uplifting Mix Extended) [5:49]
+04. Ayla & York & NELLY TGM - Left On Our Own (Extended Mix) [6:19](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA822D6123DFB58B12904125BAF9A2482E01594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605105   (1045082) от 16.01.2023
+
+VA - Uplifting Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Kearney - Kaia (Original Mix) (3:40)
+02. Raz Nitzan & Neev Kennedy - Release You (Original Mix) (3:44)
+03. Paul Clark (UK) & Nicholson with Chelsea Holland - In Your Arms (Original Mix) (3:31)
+04. DIM3NSION - Theia (Original Mix) (3:59)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53BB9610532547457BAD3579935F684A4C5DE9CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606259   (1044160) от 25.01.2023
 
 VA - Black Hole Trance Music 01-23 (2023) [MP3|320 Kbps] <Trance>
@@ -685,64 +743,6 @@ VA - Sahara Universe 2022 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69574296298B11779FAD5EDEA84914F1A65BEE32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439068   (1040298) от 11.01.2021
-
-VA - Dream Dance Vol. 90 (2021) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040298.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dream Dance Alliance - Legacy (2:34)
-02. Armin van Buuren, AVIAN GRAYS, Jordan Shaw - Something Real (Cosmic Gate Remix) (3:26)
-03. Paul van Dyk, Bo Bruce - Covered In Gold (6:40)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 04:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CE1C6C0793730D4420A228A753ED9D079D8A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439265   (1040160) от 12.01.2021
-
-VA - Best Of Trancer (Mixed by Nick Turner) (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocoro - Meari (Original Mix)
-02. Etasonic - Rainbowland (AirLab7 Remix)
-03. Air Project - Crystal Illusion (Original Mix)
-04. Nick Parker - Forever You (Dalmoori Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D44EF8E77F01F2F5A734E4A40E0D8DF876B8CA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

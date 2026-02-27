@@ -1,3 +1,71 @@
+###  Публикация: 529103   (568809) от 30.07.2012
+
+101 Strings Orchestra - Audiophile Movie & Love Classic (2CD) (2011) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568809.jpg" />
+</div>
+
+
+###  Подробнее
+
+101 Strings Orchestra - Оркестр 101-ой Скрипки
+Этот оркестр почти неизвестен в нашей стране. В отличие от часто звучащих оркестров Поля Мориа и Джеймса Ласта услышать его можно было только в передаче "Поющие меридианы", которую вел В.Сиверов.
+По данным Wikipedia оркестр был создан Дэвидом Миллером на основе Гамбургского оркестра Германского радио. В 1957 году выпустил свой первый альбом.
+101 Скрипка - это рекламная фишка. Реально музыкантов было больше.
+По своему составу это был, наверно, самый большой оркестр исполнявший музыку easy listening. Большое количество струнных создавало очень плотный приятный звук. Оркестр исполнял музыку в различной аранжировке, но, как правило, это была спокойная музыка.1. Quando, Quando, Quando (2:53)
+ 2. Besame Mucho (3:53)
+ 3. Fly Me To The Moon (3:42)
+ 4. The Blue Danube (2:16)
+ 5. Piano Sonata No. 8 (2:42)
+ 6. Andante From Violin Concerto In E Minor (3:06)
+ 7. Serenade (3:30)
+ 8. Chopin's Nocturne (4:46)
+ 9. Brahms' Lullaby (3:58)
+ 10. Nocturne in E Flat Major, Op. 9, No. 2 (4:07)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9105CEA4D15D5D2EDC3D42E48C48A787E25121E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554691   (568748) от 04.06.2022
+
+Andy Jonas (Angel X) - Summer In Your Heart (1996) Maxi-Single [APE|Lossless|image + .cue] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Summer In Your Heart (radio version)
+02 Summer In Your Heart (rock house - radio mix)
+03 Summer In Your Heart (oceanal blue house mix)
+04 Do You Believe In LoveЖанр: Enigmatic, New AgeПродолжительность: 00:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BCC62B104EC74FFB3CD8D860FE6055B63CEA14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555559   (568733) от 04.06.2022
 
 Blue Flower - Songs Celestial (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras, Meditative>
@@ -720,64 +788,6 @@ Win Kowa - довольно известный немецкий композит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1A1D05CF8BA5CBB2B81843079C9BEBB6EC12F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304603   (561847) от 27.05.2019
-
-Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godzilla (feat. Serj Tankian) (03:10)
-02. Godzilla Main Title (02:35)
-03. Memories of San Francisco (02:11)
-04. The Larva (04:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA99F830247C60C0155790CBF4349C98906D299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304653   (561840) от 27.05.2019
-
-Alan Menken & VA  - Aladdin / Аладдин (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arabian Nights (2019) (03:13)
-02. One Jump Ahead (02:55)
-03. One Jump Ahead (Reprise) (01:00)
-04. Speechless (Part 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE81FDA6275B3682A45FF6B262A71F5AF2D44A8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

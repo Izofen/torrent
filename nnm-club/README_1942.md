@@ -1,52 +1,25 @@
-###  Публикация: 1483571   (1006791) от 14.07.2021
+###  Публикация: 1482298   (1007623) от 08.07.2021
 
-reaConverter Pro 7.657 (Repack & Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006791.jpg" />
-</div>
-
-
-###  Подробнее
-
-reaConverter Pro - мощный инструмент для тех, кто имеет дело с большим количеством изображений. C помощью программы вы сможете организовать групповую обработку и редактирование изображений. Поддерживается огромное количество форматов.
-Все параметры гибко настраиваются. Присутствует окно предпросмотра, позволяющее сразу же оценить вносимые корректировки. Предпочитаемые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA6B108F30C688158E240256C741207E3E88DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483090   (1006790) от 14.07.2021
-
-Sananda Maitreya - Pandora's PlayHouse (2021) [FLAC|Lossless|WEB-DLL|tracks] <Funk, Soul, R&B, Rock>
+Swingrowers - Hybrid (2021) [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro Swing>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006790.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007623.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Pandora's Plight
-02. Time Is On My Side
-03. Don't Break My Balls(   Читать дальше...   )Жанр: Funk, Soul, R&B, RockПродолжительность: 00:56:43+00:53:44
+Swingrowers - лучший экспортный продукт из Италии вернулись с новым льбомом! Одни из пионеров Electro Swingа и постоянно развивающийся концертный коллектив, который почти непрерывно гастролировал с момента своей дебютной работы 2012 года, предлагает 4-й студийный альбом Hybrid. Swingrowers - это опытный оркестр из четырех человек из Палермо, Сицилия, в состав которого (   Читать дальше...   )01. In the Blink of an Eye (intro) (1:51)
+02. Hybrid (3:04)
+03. Follow the Stars (3:22)
+04. Seven Million Faces (3:41)(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:32:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08264CF9AFAD7613B1F695B4A3FF91717FB20E02
+magnet:?xt=urn:btih:0B1389EF9081C968760D6BFC0D6FC6D0539FAA04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483582   (1006789) от 14.07.2021
+###  Публикация: 1482316   (1007622) от 08.07.2021
 
-RogueKiller Anti-Malware 15.0.8 + Portable [Multi]
+Thy Catafalque - Vadak (2021) [FLAC|Lossless|image + .cue] <Avant-garde Metal, Black Metal>
 
->>Архив торрентов
->>Архив Программ
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006789.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007622.jpg" />
 </div>
 
 
 ###  Подробнее
 
-RogueKiller Anti-Malware можно использовать бесплатно для сканирования и очистки. Однако, приложение имеет дополнительные платные функции, которые обеспечивают защиту в режиме реального времени, более высокий уровень безопасности и позволяют более детально настраивать поведение программы. Среди дополнительных возможностей: автоматическое обновление, использование (   Читать дальше...   )Язык интерфейса: Английский и другие
+01. Szarvas (5:39)
+02. Köszöntsd a hajnalt (4:28)
+03. Gömböc (5:06)
+04. Az energiamegmaradás törvénye (6:51)(   Читать дальше...   )Жанр: Avant-garde Metal, Black MetalПродолжительность: 01:02:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1379A92AC7C44F3D149246855A2C7311CAEE809A
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,113 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483618   (1006788) от 14.07.2021
+###  Публикация: 1482501   (1007621) от 08.07.2021
 
-Истоки анимации. Мэри и Гретель / Mary and Gretel (1916) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006788.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вот еще один из зачинателей жанра, жанра кукольной анимации. Для своего времени фильм был весьма новаторским. По художественным и техническим приемам и т.д. Наверное в те годы несложно было быть новатором, все внове, чуть-чуть фантазии и ты уже новатор. :)
-Сюжет таков - Мэри и Гретель это куклы бездушные, их оживляет фея и сулит долгую и интересную жизнь, ну и (   Читать дальше...   )Производство: США, Peter Pan Film Corp.Жанр: Кукольная анимация, фэнтезиПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7F727F45675358BFD0C33F6BF4DF77B607F22F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483443   (1006787) от 14.07.2021
-
-Got no ego - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Anti-De Sitter Space (00:04:15)
-02 - Banana (00:04:13)
-03 - Fortune Cookie (00:04:18)
-04 - Consequences (00:04:12)(   Читать дальше...   )Жанр: Progressive Metal, Groove MetalПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B5FD0A6A170ED626B6F1618ED9330BD0CE1446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483561   (1006786) от 14.07.2021
-
-Mythologyca - Corner Of Hell's Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mythologyca
-02. Evil Polish Woman
-03. Intergalactic Love
-04. Dracula(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBE48BAA7FEBBD205E77AE1D2007028A7E83576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483645   (1006785) от 14.07.2021
-
-BLNDR - Callopsis (2021) Kizen Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
+Sound Quelle - Trait (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006785.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007621.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ulearum (04:47)
- 02. Callopsis (05:57)
- 03. Protarum (06:31)
- 04. Gorgonidium (06:14)Жанр: Ambient, TechnoПродолжительность: 00:23:29
+01. My Heart (4:16)
+ 02. Summer Rain (3:56)
+ 03. Ah Up (3:20)
+ 04. Hung (3:22)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep HouseПродолжительность: 00:56:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86141BD6EDC4445C58EF46D23C97F0A36FD266EC
+magnet:?xt=urn:btih:F43961E2B41AAB61EB6D34EADBA6FE3C8FBB1AEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,24 +85,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483649   (1006784) от 14.07.2021
+###  Публикация: 1482350   (1007620) от 08.07.2021
 
-Sincere Trade - Between You And Me (2007) Sublight Records [FLAC|Lossless|tracks+.cue] <IDM, Glitch, Experimental>
+Frank Marocco Groups - Brazilian Waltz (1988) Discovery Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Accordion Jazz>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006784.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007620.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Turn (03:07)
- 02. Forsas (06:12)
- 03. Creeping Serif (04:52)
- 04. Extract Exume (04:24)(   Читать дальше...   )Жанр: IDM, Glitch, ExperimentalПродолжительность: 00:45:08
+01. Sweet Gorgeous George [3:51]
+02. Brazilian Waltz [4:40]
+03. Ecaroh [5:03]
+04. Spring Is Here [5:03](   Читать дальше...   )Жанр: Mainstream Jazz, Accordion JazzПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1601680134E06B70E9DA9E38F81A0D5525845814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482313   (1007619) от 08.07.2021
+
+Hello - Complete Singles Collection (2021) Compilation [FLAC|Lossless|image + .cue] <Bubblegum, Glam Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007619.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. You Move Me (1972)
+02. Ask Your Mama (1972)
+03. C'mon (1972)(   Читать дальше...   )Жанр: Bubblegum, Glam RockПродолжительность: 02:08:01
 
 ## Скачать торент
 ```bash
@@ -223,170 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483461   (1006783) от 14.07.2021
+###  Публикация: 1482509   (1007618) от 08.07.2021
 
-VA - Best New Hype Techno (2021) [MP3|320 Kbps] <Techno, Minimal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006783.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Briarcliff - One Direction
-002. Obstructor - Recession
-003. Chris Lehmann - Drive
-004. Dhalgren - Bad Trip(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 11:54:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483343   (1006782) от 14.07.2021
-
-VA - Guido's Lounge Cafe, Vol. 4 (2020) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillson, Marc Hartman - Smiling Faces (Original Mix) (4:09)
-02. Mo'jardo, Tim Gelo - Midnight in Paris (4:43)
-03. Florzinho, Euphonic Traveller - Like the First Moment (Original Mix) (5:33)
-04. Martin Liege - Balearic Jazz (Original Mix) (3:43)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483640   (1006781) от 14.07.2021
-
-Potlatch - On The Cloud (2021) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Cloud (02:25)
- 02. The Old Mirrorball (02:32)
- 03. Glass Shoes (02:21)
- 04. Water Trip (02:18)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 00:19:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483344   (1006780) от 14.07.2021
-
-VA - Guido's Lounge Cafe, Vol. 5 (2020) [AAC|~330 Kbps] <Chillout, Lounge, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patiotic - Late Night Neon (Original Mix) (3:39)
-02. CaPa - Time Is All We've Got (4:32)
-03. Tigerforest - Azure (4:02)
-04. Kevin Paczesny, Jani R. - Winter Lights (5:33)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:40:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483476   (1006779) от 14.07.2021
-
-Истоки анимации. Басня о полной женщине. Басня о неудавшемся романе / The Phable of the Phat Woman. The Phable of a Busted Romance (1916) DVDRip
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две коротенькие мультипликационные басни. Ничего особенного, просто две незатейливые шутки, типичный пример анимации тех лет.Производство: США, International Film ServiceЖанр: Рисованная анимация, короткометражныйРежиссер: Том Э. Пауэрс, Рауль БаррПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:02:20 - часть (2 части)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483456   (1006778) от 14.07.2021
-
-VA - Electro Town (2021) [MP3|320 Kbps] <Trance, Progressive>
+VA - Private Summer Theme: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006778.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007618.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Peetu S - Afterlife
-002. Human Force - Sun Rising High
-003. Green Court - Silent Heart
-004. Wavetraxx - Lost Transition(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:29:11
+001. Har.Art - The Last Goodbye
+002. Blue Mood - Morning Light
+003. Philip Ropero - Deep Blue Sea
+004. Monoscope - Au Revoir(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 08:22:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F15575E00776F7C701B1013DD65AF3A8D40B4CC7
+magnet:?xt=urn:btih:768E6A711FBCD8D501B932BDC0984BC5E0E6149F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,28 +172,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483341   (1006777) от 14.07.2021
+###  Публикация: 1482531   (1007617) от 08.07.2021
 
-VA - Guido's Lounge Cafe, Vol. 3 (2019) [AAC|~338 Kbps] <Chillout, Lounge, Downtempo>
+Aiseesoft Mac Video Converter Ultimate 10.1.10 [Multi/Ru]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006777.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vincent Boot - Code (Original Mix) (6:00)
-02. Weathertunes - Take It Easy (Original Mix) (4:08)
-03. Marga Sol - Night Sky (Original Mix) (4:17)
-04. Michael e - With Each Passing Moment (Guitar Mix) (4:13)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:18:49
+Aiseesoft Mac Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов и папок Blu-Ray в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.07.2021Разработчик: Aiseesoft StudioПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C529261DA3619FBBCD05FA6521E656B102E90579
+magnet:?xt=urn:btih:DDA8183E844D4AA2DAC0222523CF51E476950DAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,24 +198,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483349   (1006776) от 14.07.2021
+###  Публикация: 1482477   (1007616) от 08.07.2021
 
-VA - Guido's Lounge Cafe, Vol. 7 (2020) [AAC|~327 Kbps] <Chillout, Lounge, Downtempo>
+VA - Watching the Sunset: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
->>
->>
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006776.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007616.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Schwarz & Funk, Storm Marrero - On the Line (Main Mix) (5:08)
-02. Roberto Bronco, The One Lavic - Day After Day (Original Mix) (3:42)
-03. Chillson, Marc Hartman - With You (4:36)
-04. Roberto Bronco - Come Together (Original Mix) (4:47)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:45:10
+01. James Butler - Blue Sky - Original Mix (2:58)
+02. Peter Pearson - Love Chills - Original Mix (5:58)
+03. The Soul Crusaders - Heroes (5:45)
+04. Mission Brown - Watching Clouds - Original Mix (6:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2416BC9860BF003EBB16DF1FA6B99F8E61D53358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482520   (1007615) от 08.07.2021
+
+MaxCommander 2.0.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007615.jpg" />
+</div>
+
+
+###  Подробнее
+
+MaxCommander - это все, что вам нужно для управления файлами на локальных дисках и удаленных файловых серверах. Приложение поддерживает следующие операции:
+• Просмотр папок
+• Предварительный просмотр файлов с помощью QuickLook
+• Редактирование файлов(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.07.2021Разработчик: Marcin LabenskiПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский, Немецкий и Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEB4EE0348BF4D2B3A97A0317FDC3F915CCC4A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482521   (1007614) от 08.07.2021
+
+VA - Beatport Electro House: Sound Pack #314 (2021) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007614.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Sunburst Band - He Is
+002. Michael Cassette - Through The Windows
+003. Kazantip - Deep Impact
+004. Igor Bartyuk - Dzëmgi(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33480147B459815F8E6F36C77C36DA60B951D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482540   (1007613) от 08.07.2021
+
+TechSmith Camtasia 2021 Studio 2021.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A089068DC9D64E8FF63D2168886F936D69C70309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482318   (1007612) от 08.07.2021
+
+Capture One 21 Pro Pro Beta 4 v14.3.0.254  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конвертеров цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.07.2021Разработчик: Phase OneПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса приложения зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE62AE1415285757A3F898E46E3A10622EB2051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482518   (1007611) от 08.07.2021
+
+VA - Chill House: Evening Theme (2021) [MP3|320 Kbps] <Chill, Deep House, Chillout>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007611.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Simon Vuarambуn - Lazos
+002. Thulane Da Producer - Thorn
+003. Nordfold - Letter To Lillehammer
+004. Luka Sambe - Sinner(   Читать дальше...   )Жанр: Chill, Deep House, ChilloutПродолжительность: 10:14:45
 
 ## Скачать торент
 ```bash
@@ -452,24 +367,76 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483347   (1006775) от 14.07.2021
+###  Публикация: 1482519   (1007610) от 08.07.2021
 
-VA - Guido's Lounge Cafe, Vol. 6 (2020) [AAC|~326 Kbps] <Chillout, Lounge, Downtempo>
+VA - Beatport Hard Dance: Sound Pack #315 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core Dance>
 
->>
->>
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006775.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mirage Of Deep - Forbidden Perfume (5:28)
-02. Dellasollounge - Show Me the Stars (Original Mix) (4:47)
-03. Chillson, Marc Hartman - Crash & Burn (4:08)
-04. Peter Pearson - Lead Me On (Original Mix) (4:27)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:49:46
+001. Bass D & King Matthew - Like A Dream
+002. Myst - Goodbye
+003. Phd & Gem Stone - The Beat
+004. Brad Riffresh - Pay Attention(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Core DanceПродолжительность: 08:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EA78596FA8A285BC56752D2E57D81472A667EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482448   (1007609) от 08.07.2021
+
+Растровый клипарт - Сборник клипарта #6 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 210x183-5280x2829
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57CE793F639BD92AB48F3D2B75F38A4CFD2CC8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482525   (1007608) от 08.07.2021
+
+Нехожеными тропами Ингушетии (2014) HDTV [H.264/1080i]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Республика Ингушетия – один из самых небольших субъектов Российской Федерации. Однако для путешественника эти территории – настоящая шкатулка с драгоценностями. Помимо величественной гряды кавказских гор здесь находятся более двух тысяч объектов исторического наследия. Удивительные памятники средневековой архитектуры, и в первую очередь, знаменитые 30-метровые боевые (   Читать дальше...   )Производство: Россия, RTGЖанр: Документальный, познавательный, путешествияРежиссер: Алексей СтарченкоЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:27:48
 
 ## Скачать торент
 ```bash
@@ -481,24 +448,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483648   (1006774) от 14.07.2021
+###  Публикация: 1482452   (1007607) от 08.07.2021
 
-Blochemy - Aithem (2021) whitelabrecs [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Field Recording>
+Растровый клипарт - Сборник клипарта #8 [PNG, TIF, JPG]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006774.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Guis (04:54)
- 02. Feal (04:31)
- 03. Ange (04:52)
- 04. Lues (04:18)(   Читать дальше...   )Жанр: Ambient, Field RecordingПродолжительность: 00:40:20
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 224x512-4997x1941
 
 ## Скачать торент
 ```bash
@@ -510,28 +474,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483334   (1006773) от 14.07.2021
+###  Публикация: 1482450   (1007606) от 08.07.2021
 
-VA - Guido's Lounge Cafe, Vol. 2 (2019) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
+Растровый клипарт - Сборник клипарта #7 [PNG, TIF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006773.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gary B - I Did You Wrong (Original Mix) (3:26)
-02. Dreamhunter - Boarding Gate (Original MIx) (4:27)
-03. Marc Hartman - Leave the World Behind (Original Mix) (5:30)
-04. Pier-O - Lady Fantasy (The Next Summer) (5:37)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:15:57
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 238x512-6895x3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86BE3D545334FCBACC805E36F46E4A0CF477DD0B
+magnet:?xt=urn:btih:676D7FF1C5B0E1F25F643050229989CE2145902A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -539,28 +500,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483439   (1006772) от 14.07.2021
+###  Публикация: 1482445   (1007605) от 08.07.2021
 
-41 South - Are We There Yet? (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
+Растровый клипарт - Сборник клипарта #5 [PNG, TIF]
 
->>
->>
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006772.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Red Rocks 07:14
-02. Night Creatures (It Is Time!) 02:31
-03. Night Creatures - Come On My Children (Let's Dance) 08:30
-04. Who Left The Gate Open? 04:32(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:36:59
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 264x231-7087x2362
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:39D58460CE4EF2F4DDFBD1F641144751AEF3903B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,28 +526,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483485   (1006771) от 14.07.2021
+###  Публикация: 1482444   (1007604) от 08.07.2021
 
-Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
+Растровый клипарт - Сборник клипарта #4 [PNG, TIF]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006771.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Sliding Doors (00:03:10)
-02 - 1961 (00:03:42)
-03. Aftermath (00:03:46)
-04. Wildflowers (00:03:04)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:33:49
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 266x354-6031x2994
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28C5F89E8C1BEE6181DB953029B7D955A243AC00
+magnet:?xt=urn:btih:6F5D1B69CA3C55FF0C44A599A57B9B1E4F2FA6AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,86 +552,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483328   (1006770) от 14.07.2021
+###  Публикация: 1482249   (1007603) от 08.07.2021
 
-VA - Guido's Lounge Cafe, Vol. 1 (2019) [AAC|~348 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Ibiza Blue (Original Mix) (5:02)
-02. Solar Music Club - It's All Right (Original Mix) (5:04)
-03. Marga Sol - Butterflies (Project Blue Sun Rmx) (7:30)
-04. Sky Spirit - Beautiful Day (Original Mix) (4:58)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75041E6DD28FC5BAB2090BA839FB0068D8006652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483352   (1006769) от 14.07.2021
-
-VA - Guido's Lounge Cafe, Vol. 8 (2021) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weber & Weber - Frozen in Time (4:32)
-02. Simply Chill - Fire (Costa del Mar edit) (5:22)
-03. Patiotic - Timeless (Original Mix) (4:06)
-04. J. R. Haim - Wanderlust (4:47)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3E7347E800A1A8E26EE1CD7A47A8C0ABCEC865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483436   (1006768) от 14.07.2021
-
-Goad - La Belle Dame (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Eclectic Prog>
+Операция Пластилин - Грустные песни для уставших людей (2021) [FLAC|Lossless|image + .cue] <Punk-Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006768.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007603.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Haunted Palace In The Poe' Land
-02. The Queen Of The Valley
-03. The Man In The Dreamland
-04. Magic Stairway pt. 1(   Читать дальше...   )Жанр: Progressive Rock, Eclectic ProgПродолжительность: 00:58:54
+01. Чёрный факел
+02. Ашан (письмо Саше Г.)
+03. Моя провинция
+04. Все взрослые(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:51:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CFB0ADC653CAA745F7571FF8CC14638703D1154
+magnet:?xt=urn:btih:DB77F20888A6E01B9C9A0FAF256E294752665867
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,25 +581,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483585   (1006767) от 14.07.2021
+###  Публикация: 1482453   (1007602) от 08.07.2021
 
-Mozilla Thunderbird 78.12.0 [Ru]
+Растровый клипарт - Сборник клипарта #9 [PNG, TIF]
 
->>Архив торрентов
->>Архив Программ
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006767.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007602.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 201x201-8464x5520
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43562F00524A0380602EFB855CD680160D67B5F3
+magnet:?xt=urn:btih:47A8317CE966BD0B383F95B60FE21F4A3AB5F320
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,25 +607,104 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483573   (1006766) от 14.07.2021
+###  Публикация: 1482503   (1007601) от 08.07.2021
 
-IObit Uninstaller 11.0.0.40 RC [Multi/Ru]
+Opera 77.0.4054.203 Portable by Cento8 [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006766.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59F22CE2D05015325FB15313337BE84FE275B294
+magnet:?xt=urn:btih:032E33FDFF5E66BFD4C4559577075EAA7F769BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482490   (1007600) от 08.07.2021
+
+Мэйбл Норманд. Этажом ниже / The Floor Below (1918) WEB-DLRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминально-любовная история. С одной стороны озорница Мэйбл работающая в большой редакции, как сейчас сказали бы, офис-менеджером. Но в силу своего неуемного характера уже на грани увольнения. С другой стороны миллионер-идеалист, который верит, что этот мир можно сделать лучше и падших можно перевоспитать. Но не видит как у него под носом его нелюбимая невеста крутит (   Читать дальше...   )Производство: СШАЖанр: Комедия, мелодрама, немое киноРежиссер: Кларенс Дж. БаджерАктеры: Мэйбл Норманд, Том Мур, Хелен Даль, Уоллес МакКатчен мл., Линкольн Пламмер, Шарлотта Гранивиль ’Дэнни’, Ромэйн Кэллэндер, Louis R. Grisel, Уиллард Дэшил, Tex CharwateПеревод: Немой с интертитрамиСубтитры: Голландские интертитры, русские отдельным файломПродолжительность: 01:18:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111637C91C88E185313E9F30FC3D0D3EA28F25DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482339   (1007599) от 08.07.2021
+
+Opera 77.0.4054.203 Portable by JolyAnderson [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera – веб-браузер, разрабатываемый компанией Opera Software, особенностью которого является поддержка встроенного VPN-клиента, блокировщика рекламы, возможность менять внешний вид, кастомизировать вкладку быстрого доступа и многое другое.
+Вашему вниманию предоставляется Portable версия Opera.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482467   (1007598) от 08.07.2021
+
+Природа Крыма / The nature of Crimea (2020) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007598.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение месяца я ездил по Крыму, чтобы снять этот короткометражный фильм. Аэросъемка с дронаПроизводство: РоссияЖанр: Документальный, видовойРежиссер: Богдан СинайскийПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E780CCBB5A96453E43EBE335456B3FBD9FA9C77C
 ```
 
 https://mybot314.ru/tekegram_catalog/

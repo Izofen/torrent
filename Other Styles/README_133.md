@@ -1,3 +1,61 @@
+###  Публикация: 1171392   (396680) от 04.10.2017
+
+Joel Goldsmith - Stargate: Atlantis (2005) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Main Title
+02 - Atlantis Takes Flight
+03 - Rogue Drone
+04 - Messages(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE816B06332699687713DC64624D27F1A99FB0B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171474   (396567) от 04.10.2017
+
+Jesse Cook - Beyond Borders (2017) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_396567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Borders
+02. Hembra
+03. Unchosen
+04. To the Horizon(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6FC1E3C7FB1D09AB4CE2226C1989F024D5AC1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171443   (396560) от 04.10.2017
 
 Nino Rota & Carmine Coppola - The Godfather Trilogy I - II - III: 30th Anniversary (2001) [MP3|320 Kbps] <Score>
@@ -710,64 +768,6 @@ Meditation Music Masters, Reiki Tribe - Erotic Side of Yoga (2020) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:567E7FA070D23AC43FDCDB628B853330746CE235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414104   (387288) от 07.10.2020
-
-Sensual Music Academy - Ambient Tantric Melodies (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fine Wine and Love (3:49)
-02. Hot Massage (3:54)
-03. All Night Talking (3:28)
-04. At One's Night (4:01)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C51AAE5DD8807BA3673B2348CCF3CD69063BAC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067080   (387256) от 29.10.2016
-
-Bob Weir - Blue Mountain (2016) [MP3|320 Kbps] <Folk Rock, Country Rock, Psychedelic Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Only a River   (05:28) 
-  02| Cottonwood Lullaby   (03:40) 
-  03| Gonesville   (04:09) 
-  04| Lay My Lily Down   (03:57) (   Читать дальше...   )Жанр: Folk Rock, Country Rock, Psychedelic RockПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E207E2D444520A2540E4CA205347A445861DBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

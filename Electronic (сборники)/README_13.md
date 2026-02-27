@@ -1,3 +1,32 @@
+###  Публикация: 1350885   (1002994) от 07.01.2020
+
+VA - Queena Techno (2020) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002994.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joe De Renzo - Long Trip
+002. Af Double - Redemption
+003. Agoria - Hélice
+004. Sebastian Groth - Snow Leopard(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 15:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492F07413472B6388959FE7A9DE53BBCC55F1A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350677   (1002986) от 07.01.2020
 
 VA - Techno Friday: With Special Guest (2020) [MP3|320 Kbps] <Techno, Minimal>
@@ -716,35 +745,6 @@ VA - Pansperman: Renegade Techno Master Top 100 (2020) [MP3|320 Kbps] <Techno, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CDE973ABBFE5F4130AAB69076FFDE3A6B26E7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352478   (1001082) от 14.01.2020
-
-VA - Start A New Day: Trance Mix (2020) [MP3|320 Kbps] <Trance, Electro, Progressive, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001082.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Imarek - Save Our Souls (Original Mix)
-002. Goarilla - Honeycake
-003. Metta & Glyde - Limerence (Original Mix)
-004. Elevven And Jes - Heartbeat Tonight(   Читать дальше...   )Жанр: Trance, Electro, Progressive, UpliftingПродолжительность: 13:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED8AEB0452BF6A4313CE7D1E447109E6979F33C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1031247   (668433) от 03.07.2016
+
+Medwyn Goodall - The Dreamworld (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamweaver
+02. Where Imaginations Meet
+03. Orbit
+04. Eye of the Wolf(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC6FFF517AF9E939D491A59ED82A57452AC7508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031221   (668428) от 03.07.2016
+
+Ennio Morricone - Ennio Morricone 2016 Meisterwerke der Filmmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chi mai (from "The Professional" & "Maddalena") [3:35]
+02. Il forte (from "The Good, the Bad and the Ugly") [2:24]
+03. The Good, the Bad and the Ugly (from "The Good, the Bad and the Ugly") [2:42]
+04. Once Upon a Time in the West (from "Once Upon a Time in the West") [3:11](   Читать дальше...   )Жанр: Soundtracks, ScoreПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7AD0AA63AF3694F93C34AB205979027D306F1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137518   (667810) от 26.05.2017
 
 Out of Berlin & Luke Woodapple - Sounds of Piano (Works of Glass, Einaudi, Richter & Woodapple) (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano, New Age>
@@ -708,64 +766,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D163C8F3B750B453ABE29F482EEBFC83BBA4C7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139395   (660006) от 02.06.2017
-
-Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rupert Gregson-Williams - Amazons of Themyscira (06:48)
-02. Rupert Gregson-Williams - History Lesson (05:16)
-03. Rupert Gregson-Williams - Angel on the Wing (03:45)
-04. Rupert Gregson-Williams - Ludendorff, Enough! (07:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E3208AAC262B98ED367CCBE8842B158B2A9AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139396   (659910) от 02.06.2017
-
-Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|tracks+ .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rupert Gregson-Williams - Amazons of Themyscira (06:48)
-02. Rupert Gregson-Williams - History Lesson (05:16)
-03. Rupert Gregson-Williams - Angel on the Wing (03:45)
-04. Rupert Gregson-Williams - Ludendorff, Enough! (07:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CADDB831BFD28C4A9325062B5F02323159DE5DB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

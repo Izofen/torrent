@@ -1,3 +1,64 @@
+###  Публикация: 219384   (938284) от 18.01.2011
+
+Giovanni Marradi - 4CD (1996, 1998, 2010) [APE|Lossless]<Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:44:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753050   (938239) от 04.02.2014
+
+Oliver Scheffner - 9 Альбомов (2012-2013) [MP3|192-320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Early Morning Aura (8:04)
+02. Sunlight Reflections (6:06)
+03. Follow The River (6:54)
+04. Find The Tree Of Life (8:02)
+05. My Day Of Rest (6:47)
+06. Total Lunar Eclipse (6:45)
+07. Wildlife Refugee (7:42)
+08. Cloud Pictures Passing By (6:45)
+09. Celestial Peace (6:45)
+10. Hall Of Supreme Harmony (8:02Жанр: New AgeПродолжительность: 09:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F95B0543A10C66B2A032EFF70850FE6862905FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983901   (938232) от 09.02.2016
 
 M83 - Suburra (2015) Original Motion Picture Soundtrack [MP3|320 кб/с]<Soundtrack, Score>
@@ -737,63 +798,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753771   (936765) от 05.02.2014
-
-Ravi Shankar - The Master (3CD Box Set) (2010) [MP3|320 кб/с]<Ethnic, World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(08:40) 1. Padhasapa
-(04:59) 2. Kaharwa
-(10:46) 3. Improvisation on the Theme of ''Rokudan''
-(07:59) 4. Namah Shivaya
-(13:20) 5. Tribute to Nippon
-(23:35) 6. Raga Hemant (Homage to Baba Allauddin)Жанр: Ethnic, WorldПродолжительность: 01:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C436D27DA03E0FF63C1B8A0D71B71FD2626C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753404   (936465) от 05.02.2014
-
-Kristopher Carter, Michael McCuistion, Lolita Ritmanis and Shirley Walker - Супермен / Superman: The Animated Series (2014 (1996-2000)) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ScoreПродолжительность: 05:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED81E3D0FC3F0D130FB498BF67C75602C6ADC0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

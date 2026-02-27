@@ -1,3 +1,293 @@
+###  Публикация: 1623106   (1029615) от 31.03.2023
+
+Bee Gees - Living Eyes (1981) Reissue, 1993, Polydor [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Eyes
+02. He's A Liar
+03. Paradise
+04. Don't Fall In Love With Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7043AE59374C21F726B53D37084999DEC50C80E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623115   (1029601) от 31.03.2023
+
+Elton John - Honky Château: 50th Anniversary (1972, 2xCD, Remastered, 2023, Rocket Entertainment) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Honky Château — пятый студийный альбом британского певца и композитора Элтона Джона, выпущенный в 1972 году. Пластинка была названа в честь французского замка XVIII века Шато д’Эрувиль, где проходила её запись. Альбом занял первое место в США, став первым серии из семи последовательных альбомов Джона, возглавлявших национальный хит-парад.
+
+В феврале 1972 года (   Читать дальше...   )CD One:
+ Honky Château:
+01. Honky Cat
+02. Mellow(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84031A3513464E4DC0CE1E7304C350E1C5CEB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449924   (1029574) от 23.02.2021
+
+Talisha Karrer - Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (04:05)
+02. My Favourite Game (03:35)
+03. Apologize (02:48)
+04. You Have Been Loved (04:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E5D81B5234960CF500F9AE7E1C5781ECA547C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449661   (1029524) от 23.02.2021
+
+Groove State - Unstoppable (2020) Deluxe Edition [MP3|320 Kbps] <EuroDance, Vocal Trance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Beautiful (Glamour Electric Radio Edit) [00:02:58]
+02. Never Stop [00:02:59]
+03. Unstoppable (Trance Radio Mix) [00:03:10]
+04. Angel [00:03:21](   Читать дальше...   )Жанр: EuroDance, Vocal TranceПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E9D5910685FB5C5E11FAB933F77A233E0B4364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449732   (1029509) от 23.02.2021
+
+E.G. Daily - Wild Child (серия "Другие восьмидесятые") (1985) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is Anybody Home?
+02. Little Toy
+03. Love In The Shadows
+04. Just For You(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, DanceПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2902CA284BF68C120B52CD31DF4D15F959C1A394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449810   (1029500) от 23.02.2021
+
+Celine Dion - 27 Albums, 19 Compilations, 8 Live, 53 Singles & EPs (1981-2019) [MP3|320 Kbps] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029500.jpg" />
+</div>
+
+
+###  Подробнее
+
+1981 - Chante Noel
+1981 - La voix du bon Dieu
+1982 - Tellement j'ai d'amour
+1983 - Chants et contes de NoelЖанр: PopПродолжительность: 72:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E059A71C08352A959C5167DFD1F46C554C84FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623389   (1029408) от 01.04.2023
+
+Lian Ross - 4You (2023) 2CD [MP3|320 Kbps] <Euro-Disco, Synth-pop, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can You Love Me (Extended) [00:08:08]
+02. Take My Hand (Extended) [00:07:21]
+03. My Love (Extended) [00:06:25]
+04. Dance with Me (Extended) [00:07:42](   Читать дальше...   )Жанр: Euro-Disco, Synth-pop, EuropopПродолжительность: 2 CD, 01:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4B299B2D5EB687028D268B32152C49B9B914E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450074   (1029381) от 24.02.2021
+
+Q - Q (1982) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain (6:19)
+02. Disco Damage (4:18)
+03. I Am On Fire (3:43)
+04. Never Felt This Way Before (4:22)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-pop, DiscoПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524ECFA332969F28844545078CB76812AEA7FA40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450121   (1029334) от 24.02.2021
+
+Bonnie Tyler - The Best Is yet to Come (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Is Yet To Come
+02. Dreams Are Not Enough
+03. Hungry Hearts
+04. Stuck To My Guns(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862F4AC879CB311502879E04B64907E3EAA364E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 161466   (1029209) от 02.04.2023
+
+МакSим - Дискография  (2006-2009) [FLAC|Lossless] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Певица МакSим родилась 10 июня 1984 года в городе Казани.По словам МакSим, все в ее жизни происходило само собой. Сначала было обучение в вокальном кружке города Казани. Параллельно МакSим занималась в спортивном кружке карате дзю-тзютсу. 6 лет стараний и красный пояс в кармане.
+Даже в старших классах МакSим не отличалась прилежным поведением. Но прогулы и опоздания (   Читать дальше...   )Жанр: Pop, Dance, Disco.Продолжительность: 4:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D8169623D717E56F5EA76EAF57D7A4657C34FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450279   (1029194) от 25.02.2021
 
 Modern Boots - Garden of Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
@@ -455,296 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:511E9E56B4D9C08314C2A10DF8EDC4D07F1AA324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452342   (1027730) от 06.03.2021
-
-Genghis Khan - Here We Go (2021) Japan Edition [MP3|320 Kbps] <Disco, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Strassen Von Paris [00:04:37]
-02. Moskau [00:04:30]
-03. Afrika [00:03:27]
-04. Istanbul [00:03:49](   Читать дальше...   )Жанр: Disco, EurodanceПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F60F58F4FB3C5699F11A83EAD97E00F7081FACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452346   (1027719) от 06.03.2021
-
-Genghis Khan - Here We Go (2021) Japan Edition [FLAC|Lossless|image + .cue] <Disco, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Strassen Von Paris [00:04:37]
-02. Moskau [00:04:28]
-03. Afrika [00:03:25]
-04. Istanbul [00:03:49](   Читать дальше...   )Жанр: Disco, EurodanceПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C697D691E26D61135D08ED6DB3C1208B61BE062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451902   (1027695) от 06.03.2021
-
-Марина Журавлёва - Белая черёмуха (1994) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белая черёмуха (03:57)
-02. Розовый рассвет (03:12)
-03. Забудь меня, забудь (03:29)
-04. На сердце рана у меня (04:10)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6A08DBF845082FF578FA6404B7A1921FC5727B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452394   (1027694) от 06.03.2021
-
-Ricchi e Poveri - Reunion (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. L'ultimo amore
-02. La prima cosa bella
-03. Che sarà (feat. José Feliciano)(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F926041B7CE9B568A9098B07319678E127F32F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443555   (1027669) от 06.03.2021
-
-Юрий Стоянов - Где-то (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027669.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сапожник
-2. Где-то
-3. Ташкент
-4. Актёрский цех(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C3D4006D086719C2C0C3FEA630990CBBFAF5FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452703   (1027569) от 07.03.2021
-
-Celeste - Not Your Muse (2021) 2CD Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Ideal Woman
-02. Strange (Edit)
-03. Tonight Tonight(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2B8FDB3BBD879738400DF5376681D3A1666B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452948   (1027388) от 08.03.2021
-
-Disco Loveland Orchestra - Koto Around The World. ABBA Investigation (1979) LP [MP3|320 Kbps] <Disco, Funk Soul, Pop, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (3:35)
-02. Fernando (3:55)
-03. Hasta Manana (3:04)
-04. Mamma Mia (3:04)(   Читать дальше...   )Жанр: Disco, Funk Soul, Pop, InstrumentalПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376A1D96DA093928D83F7C32F06D15C23C208878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453041   (1027228) от 09.03.2021
-
-Aleph - Little Wonder (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire on the Moon (Under the Moon Version) (5:30)
-02. I'm on Fire (Grand Mix Extended Version) (4:45)
-03. Must Be Love (3:50)
-04. Fly to Me (5:28)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492A85AC1BD4D312049A0C9AD435AC565961660C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453040   (1027220) от 09.03.2021
-
-Aleph - Black Out (1988) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Brother (Extended Mix) (6:39)
-02. Fly to Me (D.J. Version) (7:15)
-03. Check It Up (Re-Edit) (6:54)
-04. Just for Love (12'' Version) (6:12)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 02:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B403654C0953B9FA00588E3DC1CD1E5B73B72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453035   (1027218) от 09.03.2021
-
-Amadeus Liszt - La Donna (Original Mike Mareen Master Tape Series) (2019) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Donna (Crazy Disco Version) (6:26)
-02. La Donna (4:46)
-03. Only Time (4:08)
-04. La Donna (Playback with Jingles) (4:46)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91BB36A08ADC84D391BCFE8C91936FD4BFE0850
 ```
 
 https://mybot314.ru/tekegram_catalog/

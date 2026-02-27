@@ -1,3 +1,32 @@
+###  Публикация: 1732658   (107269) от 30.06.2024
+
+VA - Bad Blues, Dark Blues (2024) 2CD  [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy F Gibbons - Missin’ Yo’ Kissin’ [03:19]
+02. The White Buffalo - The Matador [04:34]
+03. Gov't Mule - Thorazine Shuffle [06:47]
+04. Isobel Campbell, Mark Lanegan - Snake Song [02:48](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 11:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E4FDA399D6EB8633FE91680E5E1E30D7420A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822559   (100922) от 07.10.2025
 
 Blues & Gentlemen's - Compilation (2025) [MP3|320 Kbps] <Blues, Slow Blues, Instrumental>
@@ -716,35 +745,6 @@ VA - My Live In Blue (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4395EF9D121BA62466DFEEF1A004E09E7C7BC88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752495   (41909) от 30.09.2024
-
-VA - Smooth Jazz. Music Without Irritation (2024) [MP3|320 Kbps] <Smooth, Jazz, Downtempo>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41909.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Digo - Old Days - (01:32)
- 002. Heimlich - Arcadia - (02:04)
- 003. Serena Forni - Ecliptic Echo - (02:15)
- 004. Jikuru - Drifting On Chords - (02:15)(   Читать дальше...   )Жанр: Smooth, Jazz, DowntempoПродолжительность: 09:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F41B7ECA12058A68723159EC3A72CEBAA719AEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

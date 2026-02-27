@@ -1,3 +1,61 @@
+###  Публикация: 867235   (896269) от 12.02.2015
+
+Wikluh Sky - Сербский фильм / A Serbian Film (2010) [MP3|320 kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balcan Sex God
+02. Cheaporn
+03. Decollection
+04. Fancy Porn(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2C15A44D45AA3BAC3141986F4BC6D60EE7CCD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992682   (895246) от 05.03.2016
+
+VA - Straight Outta Compton (Music From The Motion Picture) (2016) [FLAC|Lossless|tracks + .cue] <Hip Hop, Funk, Soul>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.W.A - Straight Outta Compton (4:17)
+02. Parliament - Flash Light (Single Version) (4:29)
+03. Eazy-E - We Want Eazy (5:01)
+04. N.W.A - Gangsta Gangsta (5:36)(   Читать дальше...   )Производство: UMe, Priority Records, Ruthless Records – B0023597-02Жанр: Hip Hop, Funk, SoulПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED0CB509EDDCC05C1303A4632CA9EEF3F5C1D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993172   (895189) от 05.03.2016
 
 Trio Mandili - With Love (2015) [MP3|320 кб/с] <Ethnic / Georgian Folk>
@@ -748,72 +806,6 @@ Ed Smith - Siesta: Relaxing Spanish Guitar (2007) [MP3|320 кб/с]<Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:236AF208CF28EE20530CD8EC46302E5A631FB7F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762266   (892522) от 02.03.2014
-
-David Arkenstone - Spirit of Tibet (2002) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Himalayan Caravan (5:49)
-02. Wheels of Prayer (6:34)
-03. Nirvana (6:22)
-04. On the Border (5:47)
-05. Rhythm of the High Road (6:11)
-06. Roof of the World (5:34)
-07. Midnight Fires (6:39)
-08. View from the Palace (6:23)Жанр: New AgeПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBF0005152843689F1D1ECABE7CB76541173D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184406   (892503) от 18.03.2010
-
-Наеховичи - 3 albums (2006-2008) [MP3|320 kbps] <Folk, Klezmer>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. New Russian Sher (feat. Daniel Kahn) текст (2:52)
-02. Rezinke (feat. Psoy Korolenko) (4:47)
-03. Borsht (feat. Daniel Kahn) (3:49)
-04. The Beauty Of 17 (3:39)
-05. Junkoi (4:56)
-06. Rumenye (feat. Daniel Kahn) (7:15)
-07. Iber Berg Un Iber Toln (feat. Mila Kikina) (8:17)
-08. Amol iz Geven a Mayse (feat. Psoy Korolenko) (2:35)Жанр: Folk, Klezmer
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

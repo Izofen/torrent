@@ -1,3 +1,293 @@
+###  Публикация: 1512442   (787404) от 24.11.2021
+
+Bros - Gold (2020) 3xCD, Box Set [FLAC|Lossless|image + .cue] <Synth-pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bros - британская музыкальная группа, активная во второй половине 1980-х и начале 1990-х годов. Основу группы составляли братья-близнецы Matt и Luke Goss (Bros - сокращенное от Brothers) и их школьный товарищ Craig Logan. Дебютный альбом группы Push (1988 ) покорил музыкальные чарты многих стран Европы, а у себя на родине стал четырежды платиновый. В следующем, 1989, (   Читать дальше...   )CD - 1:
+01. When Will I Be Famous (3:59)
+02. I Owe You Nothing (3:36)
+03. Drop The Boy (3:50)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 03:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAE6AC9DA76BDE20A4D89D3E7484B0F3EBDA660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806441   (787334) от 24.11.2021
+
+Mike Mareen - Dance Control (2006) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here I Am 5:12
+02. Cecilia (Remix) 6:47
+03. Double Trouble 5:20
+04. Peace To Mankind 4:30(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD42193C20336889F0F8BBA4947A729370F090A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276953   (787252) от 18.01.2019
+
+Eloy de Jong - Kopf aus - Herz an (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schritt fur Schritt
+02. Repeat
+03. Eloy de Jong, Marianne Rosenberg : Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
+04. Risiko(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE82385EF2B4F8A8C2E77546651D4DF05F0457E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276959   (787242) от 18.01.2019
+
+Sabu - Sabu (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Rollin' (7:17)
+02. We're Gonna Rock (7:23)
+03. You're Mine Forever (5:48)
+04. Loose Lucy Is On The Loose (6:40)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98BD63DD87D00CE8F2E30BF8608488345840A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512539   (787088) от 25.11.2021
+
+Игорь Николаев - Пять причин (2003) Compilation [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прости и отпусти
+02. Мутная река воспоминаний
+03. Пять причин
+04. Человек влюблённый в Сахалин(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F96E9AAFF22874EA74C390D17561E949FF34C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512593   (787082) от 25.11.2021
+
+Александр Серов - The Very Best Of (2013) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Музыка венчальная (2:57)
+ 02. Мадонна (3:38)
+ 03. Я люблю тебя до слез (4:31)
+ 04. Сюзанна (3:42)(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC09674CE48E6CF35D76FFD22D2E35A28B32D073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277152   (787031) от 19.01.2019
+
+VA - Die Offiziellen Deutschen Party & Schlager Charts Vol.11 (2019) 2CD [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787031.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Eloy de Jong - Regenbogen (Remix)
+02. Nicole - Traumfänger
+03. Jörg Bausch - Erst wenn's im Sommer schneit(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:22:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D0CDAE7E7CC9104DF377997A3148A4D663BC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277157   (787026) от 19.01.2019
+
+VA - Schlager Aktuell 14 (2019) 2CD [MP3|320 Kbps] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787026.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Michelle - Nicht verdient
+02. Beatrice Egli - Was geht ab
+03. Maite Kelly - Die Liebe siegt sowieso(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9509BE6BFC37565D848EC796823FAD74056B7B65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276909   (787019) от 19.01.2019
+
+VA - Dreamlover vol.1 (1994) [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Adams - Please Forgive Me
+02. Mariah Carey - Without You
+03. Michael Bolton - Said I Love You ... But I Lied
+04. Roxette - Almoust Unreal(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7566DB9ACDD176A03D3FC8CF24EBC40A167F024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277091   (787002) от 19.01.2019
+
+Sarah Brightman - Hymn (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hymn Overture (1:03)
+02. Hymn (4:28)
+03. Sogni (feat. Vincent Niclo) (4:18)
+04. Sky and Sand (4:12)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B0D265EA12397F7491312A1A01F4887788AB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388317   (786867) от 05.06.2020
 
 VA - Feel Good Disco Anthems (2020) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
@@ -455,296 +745,6 @@ VA - Body Shaper Vol.1 (2017) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:763E22B1C27A37DBF0635787492BD89F090E1C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123606   (786373) от 08.04.2017
-
-Natalie Imbruglia - Counting Down The Days (2005) [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starting Today  (02:56) 
-02. Shiver  (03:44) 
-03. Satisfied  (03:30) 
-04. Countind Down The Days  (04:09) (   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD11344249960762D96D9FFE22AD18F80C013013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123707   (786363) от 08.04.2017
-
-VA - Acoustic: The Collection (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alanis Morissette - Ironic (Acoustic Version)  3:56
-02.  Coldplay - The Scientist  5:10
-03.  Bruno Mars - Grenade (Acoustic)  4:07
-04.  James Blunt - 1973 (Acoustic)  3:30(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D427440167F35F35AE8078D21323E1BB786C7DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123617   (786328) от 08.04.2017
-
-Ganymed - 3 Studio Albums (1978-1980) LP [MP3|320 Kbps] <Electronic, Space Rock, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disco-Space-Rock Band from Austria - именно так в одном из музыкальных каталогов была охарактеризована группа Ganymed. Стартовав в конце 77-го как квартет и распавшись в 83-ем уже как квинтет, эта команда оставила значительный след в истории "диско" и музыки вообще.Список альбомов:
-1978 - Takes You Higher
-1979 - Future World
-1980 - Dimension No. 3(   Читать дальше...   )Жанр: Electronic, Space Rock, Pop Rock, DiscoПродолжительность: 02:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB5D1F2176F55E6D935E61FCFE6CB642706A75F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123458   (786308) от 08.04.2017
-
-VA - Now That's What I Call Music! 96 (2017) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Top 40, Pop Compilation, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Now That's What I Call Music 96 - является 96-ым изданием серии Now! в Великобритании. Он был выпущен 7 апреля 2017 года. Обратите внимание на композицию "Fastlove", которая достигла первого места в UK Singles Chart в 1996 году. Она была добавлена в этот сборник как дань памяти Джорджу Майклу, который умер до выхода этого альбома. Ремиксованная версия песни, (   Читать дальше...   )CD1:
-01. Ed Sheeran - Castle on the Hill  (4:21)
-02. Rag'n'Bone Man - Human  (3:18)
-03. Little Mix - Touch  (3:31)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, ElectronicПродолжительность: 02:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5288D63847FACF9D50D957D0910A8B155D290C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123778   (786303) от 08.04.2017
-
-HOT R.S. - 3 Albums (1977-1980) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco, Glam>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа появилась на свет в Йоханнесбурге (Южно-Африканская Республика), как чисто студийная, созданная продюсером Кевином Крюгером (Kevin Kruger) и Дэном Хиллом (Dan Hill) . HOT R. S. является аббревиатурой от названия первой записанной песни, а именно -Список альбомов:
-1977 - House Of The Rising Sun
-1978 - Forbidden Fruit
-1980 - Heads Or Tails(   Читать дальше...   )Жанр: Electronic, Pop Rock, Disco, GlamПродолжительность: 01:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05ECDC2C630697B2FFDB54D71E023CFB9C1C7AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124102   (786141) от 09.04.2017
-
-VA - 80's Pop Beyond The Hits (2017) [MP3|320 Kbps] <Pop, Pop Rock, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inxs - Listen Like Thieves 03:45
-02. Duran Duran - Careless Memories (Remastered 2010) 03:55
-03. Elvis Costello - Veronica 03:08
-04. John Parr - King Of Lies 04:11(   Читать дальше...   )Жанр: Pop, Pop Rock, New WaveПродолжительность: 01:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169D589684E8C34AC9D84EE2D60CB92C426D341D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124137   (786126) от 09.04.2017
-
-Disco Rock Machine - Time To Love (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Funk-Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disco Rock Machine - второе коммерческое название коллектива в составе Kevin Kruger, René Veldsman, Trevor Rabin, более известного под другим названием - HOT R.S.01. Time To Love (7:23)
-02. Living For The City (7:25)
-03. You Really Got Me (7:14)
-04. Loving Styles (7:21)Жанр: Electronic, Pop Rock, Funk-Soul, DiscoПродолжительность: 00:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0449242119F23B88B4C12804DF3F3B31B959ECBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124374   (785794) от 11.04.2017
-
-Bosé - Papito (2007) [FLAC|Lossless|image + .cue] <Soft Rock, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morena Mia (Con Julieta Venegas)  (03:45) 
-02. Si Tu No Vuelves (Con Shakira)  (05:13) 
-03. Bambu (Con Ricky Martin)  (04:58) 
-04. Nada Particular (Con Juanes)  (06:21) (   Читать дальше...   )Жанр: Soft Rock, LatinПродолжительность: 01:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA351DE8D44B907EF8E7338B0EC4B96E039D7FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124547   (785760) от 11.04.2017
-
-Thomas Anders - Pures Leben (2017) [FLAC|Lossless|tracks + .cue] <Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Der beste Tag meines Lebens
-2. Sternenregen
-3. Das Lied das Leben heißt
-4. Feuerwerk(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD60941BDC687346DBEB77965CFAD7CB741FFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124800   (785634) от 12.04.2017
-
-Lulu - Independence (1993) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Independence
-02. There Has Got To Be A Way
-03. Restless Moods
-04. I’m Back For More (ft. Bobby Womack)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7E3EC0E35434E1CE8814BB9E6A4A18DC4D0DE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

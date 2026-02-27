@@ -1,3 +1,61 @@
+###  Публикация: 1024869   (714143) от 10.06.2016
+
+Shannon Rae - Shannon Rae (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blame It on the Radio (3:48)
+02. Gotta Let Go (3:23)
+03. Beer Trucks & Girls (3:40)
+04. Gasoline (2:53)(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0D7B740E118A3756D9272583081AA0EDC266E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024867   (714139) от 10.06.2016
+
+Alex Hart - On This Day (2014) [MP3|320 кб/с] <Country, Alt Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (4:35)
+02. Bonita (3:16)
+03. Bad Boy Bill (3:27)
+04. Keep Britain Tidy (3:42)(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A908D7FBDFCD8DDEA46C2F3EAEBFC2E84B8C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024936   (714134) от 10.06.2016
 
 Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [MP3|320 кб/с] <New Age, Ambient>
@@ -686,64 +744,6 @@ Jim Beckwith and Hans Christian - Be Love (2017) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90824202E9EDD076ACCBA249B2464D5064726E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131300   (708908) от 05.05.2017
-
-VA - 50 Vinyasa Chill Yoga: Healing & Relaxing Yoga Exercises (2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Yoga Healing Sounds Unit - Vinyasa Chill Yoga  3:57
-02.  Kundalini Yoga Group - Emotional Healing  4:01
-03.  Yoga Music Masters - Relaxing Yoga  4:02
-04.  Chakra Healing Music Academy - Basic Yoga  3:36(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 03:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4514D4B8632D8C5E2801D8D0ECC9A672196837BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131361   (708561) от 05.05.2017
-
-Jed Kurzel - Alien: Covenant / Чужой: Завет (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jed Kurzel - Incubation (01:07)
-02. Jed Kurzel - The Covenant (03:25)
-03. Jed Kurzel - Neutrino Burst (02:57)
-04. Jed Kurzel - A Cabin on the Lake (01:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0413B49AC1FE70E8B02298BACE17326B1D05F8C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

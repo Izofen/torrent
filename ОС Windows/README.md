@@ -1,5 +1,63 @@
 https://t.me/izofen
-###  Публикация: 1855058   (1057841) от 
+###  Публикация: 1855531   (1058308) от 23.02.2026
+
+Windows 10 (v22h2) x64 PRO by KulHunter v30 (esd) [En]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на ISO-образе, собранном на UUP Dump: 19045.6937.260207-1153.22H2_RELEASE_SVC_PROD1_CLIENTMULTI_X64FRE_EN-US.iso
+Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.
+Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117287F9CAFE71F0847BF62380E66A7B9FFBE58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855530   (1058307) от 23.02.2026
+
+Windows 10 (v22h2) x64 PRO by KulHunter v30 (esd) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на ISO-образе, собранном на UUP Dump: 19045.6937.260207-1153.22H2_RELEASE_SVC_PROD1_CLIENTMULTI_X64FRE_RU-RU.iso
+Отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.
+Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B207F522D24183E03CEE505B6FC409C3D04966B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855058   (1057841) от 21.02.2026
 
 Windows 11 3in1 x64 25Н2 (build 26200.7840) by ivandubskoj 21.02.2026 [Ru]
 
@@ -638,64 +696,6 @@ ru-ru_windows_11_business_editions_version_26h1_x64_dvd_b8bdee14
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F5AA0C10435DFC207FA57E7517C6A480E55B32D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852208   (1055812) от 08.02.2026
-
-Windows 10 (v22h2) x64 PRO by KulHunter v29 (esd) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на ISO-образе, собранном на UUP Dump: 19045.6809.260109-0949.22H2_RELEASE_SVC_PROD1_CLIENTMULTI_X64FRE_RU-RU.iso
-Отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.
-Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C082E70769834F27634D5A48060782D945D821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852210   (1055810) от 07.02.2026
-
-Windows 10 (v22h2) x64 PRO by KulHunter v29 (esd) [En]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на ISO-образе, собранном на UUP Dump: 19045.6809.260109-0949.22H2_RELEASE_SVC_PROD1_CLIENTMULTI_X64FRE_EN-US.iso
-Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.
-Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6912C326FB52A8C0A41972D7C21817BD2F52AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

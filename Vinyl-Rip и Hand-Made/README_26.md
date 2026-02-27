@@ -1,3 +1,207 @@
+###  Публикация: 1306999   (554635) от 11.06.2019
+
+Johnny Cash - The Johnny Cash Collection 1955 - 1971 (1971) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Country Rock, Folk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554635.jpg" />
+</div>
+
+
+###  Подробнее
+
+RECORD 1:
+PDA 005 A
+01. Folsom Prison Blues
+02. I Can't Help It(   Читать дальше...   )Жанр: Country Rock, Folk RockПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872D0C131A63D2E70D7BDC5143854B1E0BE9E404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040309   (551667) от 27.08.2016
+
+Stars On 45 - Звёзды Дискотек - 2 (1982) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Рок-н-роллы 15:54
+Сторона 2
+2. Stars On Stevie 7:41(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CA5329AD86F0144704CC5FABBFA6BBBB1679B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040009   (551652) от 27.08.2016
+
+Stars on 45 - Звёзды дискотек (1981) [WAW Pack 2.0|192/32|tracks|Vinyl-Rip] <pop>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Stars On 45 - 1 15:53
+Попурри на темы песен группы "Битлз"
+Сторона 2(   Читать дальше...   )Жанр: popПродолжительность: 00:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED4638E333FDF3BA486F0DB27023564CEB9297C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047254   (549161) от 30.08.2016
+
+Chicago - Chicago 18 (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niagara Falls
+02. Forever
+03. If She Would Have Been Faithful...
+04. 25 Or 6 To 4(   Читать дальше...   )Жанр: Jazz Rock, Pop RockПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59427E2D6D8AFAD4414B3CC395EF1BEDED7202D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047244   (549071) от 30.08.2016
+
+VA - Панорама '86. Фестиваль Молодежной Популярной Музыки (1987) 2LP [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hard Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Круиз - Не падай духом
+02. Здравствуй Песня - Дрянная девчонка
+03. С. Сарычев - Цунами
+04. И. Кезля, А. Моргунов - Долина грёз(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 01:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7FFCD0A042F5FA8510E62DDD365E37765DC87C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046569   (548151) от 31.08.2016
+
+Маки - Одесса (1988) Repress 1989 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548151.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1986 году Валерий Чуменко реформировал ВИА "Красные маки" в группу "Маки", которая просуществовала до 1989 года.
+В 88-м на фирме "Мелодия" вышла единственная пластинка коллектива - "Одесса".Сторона 1
+A1. Одесса (В.Матецкий - М.Танич) 3:16
+A2. Так случилось (В.Матецкий - М.Шабров) 4:53
+A3. Когда, когда (В.Добрынин - Л.Дербенев) 3:45(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:668C98434947B2A5DC2ED4294112F3D0D13A1CA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238143   (547897) от 28.07.2018
+
+Tin Machine - Tin Machine II (1991) [FLAC 2.0 24/192|image|Vinyl-Rip] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Universal (3:19)
+ 02. One Shot (5:12)
+ 03. You Belong In Rock N' Roll (4:07)
+ 04. If There Is Something (4:45)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5DE6718718C36B98A18891D70CD2B82EACFB050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048502   (546298) от 02.09.2016
 
 Виктор Цой - Печаль (2000/2015) [WavPack 2.0 32/192|image + .cue|Vinyl-Rip] <Rock>
@@ -541,208 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33289A3AEB105AD0C34B7EEDE4AC7A4DC3566415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157308   (525127) от 12.08.2017
-
-Мираж - Звёзды нас ждут (1987) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звёзды нас ждут (06:18)
-02. Видео (04:29)
-03. Электричество (04:30)
-04. Безумный мир (04:02)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3739293C2B66E860F5B557DF82EF9CE9C30738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928203   (522479) от 16.08.2015
-
-Smokie - Midnight Cafe (1976) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Something's Been Making Me Blue  3:02
-2. Wild Wild Angels  3:58
-3. Poor Lady (Midnight Baby)  4:42(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876ADB15A390E796B2A9CD0BE07EC26667190001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928219   (522404) от 16.08.2015
-
-Эдуард Артемьев - Свой Среди Чужих, Чужой Среди Своих (1975) [FLAC 2.0 16/44.1|tracks]<Stage & Screen>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Градский- Песня О Корабле (4:38)(DR9)
-02. Оркестр - Ограбление Поезда (1:17) (DR9)
-03. Оркестр - Финал (3:08) (DR9)Жанр: Stage & ScreenПродолжительность: 00:9:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38D15991BEF0FD92B3228F714B01E975EF0D79B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929709   (518478) от 20.08.2015
-
-Genesis - Abacab (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518478.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Abacab (7:04)
-A2. No Reply At All (4:40)
-A3. Me And Sarah Jane (6:04)
-A4. Keep It Dark (4:34)(   Читать дальше...   )Производство: Vertigo / Nippon PhonogramЖанр: Progressive RockПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73CDECC206FFE0AC0FF1BD664830D41DF3DC59C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241093   (518119) от 19.08.2018
-
-Eric Clapton - Reptile (2001) [FLAC 2.0|88.2/24|tracks|DVD-Audio] <Blues, Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Reptile
-02 - Got You On My Mind
-03 - Travelin' Light
-04 - Believe In Life(   Читать дальше...   )Жанр: Blues, Rock, Soft RockПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBD2F24170CB5AADDB4B7E01B27D115C6C1DA2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560933   (516602) от 03.07.2022
-
-Black Sabbath - Russian Vinyl Collection/Блэк Сэбэт - Русская коллеция винила (1990) 6LP [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516602.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sabbath Bloody Sabbath • Кровавая суббота
-A2 A National Acrobat • Национальный акробат
-A3 Fluff • Пух
-A4 Sabbra Cadabra • Саббра Кадабра(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 04:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3153064D4C14D10A793B331CA37198DBE2E20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930155   (516201) от 22.08.2015
-
-Luciano Pavarotti - The Essential Pavarotti (1991) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Classical, Opera>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516201.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 La Donna E Mobile
-A2 Che Gelida Manina
-A3 E Lucevan Le Stelle
-A4 Nessun Dorma(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293F2FF3BA36F246BFDCA9242A86B9E2C6EFBB59
 ```
 
 https://mybot314.ru/tekegram_catalog/

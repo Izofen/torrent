@@ -1,3 +1,293 @@
+###  Публикация: 925211   (541206) от 06.08.2015
+
+Vicki Sue Robinson - Half And Half (1978) Remastered /2011, Sony/ [MP3|320 кб/с]<Disco, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feels So Good It Must Be Wrong (5:32)
+02. Jealousy (5:19)
+03. Freeway Song (5:08)
+04. Don't Try To Win Me Back Again (4:25)(   Читать дальше...   )Жанр: Disco, SoulПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956F5F118F5BA7EB269F2A7A279D88F1CB26C6EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557375   (541123) от 15.06.2022
+
+Los Rivera Destino - Besitos Y Besitas (2022) [FLAC|Lossless|WEB-DL|tracks] <Latin Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Foto de Perfil (00:03:43)
+02 - Edgar Allan Poe (00:03:44)
+03 - Mis Amigos (00:03:00)
+04 - Pancakes (00:05:33)(   Читать дальше...   )Жанр: Latin Pop, Pop RockПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7866995F53826380C912AD6DF0DF33FDE42282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154441   (540782) от 30.07.2017
+
+Tom Jones - The Best Of Tom Jones (1999) 3CD Box Set [MP3|320 Kbps] <Pop, Blues, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Blues, SoulПродолжительность: 02:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDFB8505053A03ADF5C30C30EF9ED42547495C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365205   (540731) от 21.07.2011
+
+Женя Белоусов - Ночное такси (1994) [APE|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Золотые купола
+02. Маленькая лгунья
+03. Ночное такси
+04. Забудь меня, забудь
+05. Такое короткое лето
+06. Алушта
+07. Девочка моя синеглазаяЖанр: PopПродолжительность: 00:34:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154467   (540671) от 30.07.2017
+
+Sheila & B. Devotion - 2 Albums (1977, 1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диско - шоу проект известной французской  исполнительницы Шейлы и негритянского сопровождения "Черная Преданность" (BLack Devotion). Выпустили совместно только эти два альбома, достигнув пика популярности в Европе и распались в 1980 м. Далее Шейла продолжила свою сольную карьеру.01. Love Me Baby (3:37)
+02. Shake Me (4:41)
+03. Kiss Me Sweetie (6:49)
+04. Singin' In The Rain (6:47)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD45EC46B5B70A03C0A0A8D59C962DDA9A874011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049977   (540654) от 07.09.2016
+
+VA - Divas (2004) [FLAC|Lossless|image + .cue] <Pop, Electronic, Jazz, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink - Trouble.
+02. Dido - All You Want.
+03. Avril Lavigne - I'm With You.
+04. Sarah McLachlan - Angel.(   Читать дальше...   )Жанр: Pop, Electronic, Jazz, RockПродолжительность: 01:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657505788ECDAAE31B245D19B4026B9F9406A340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239215   (540622) от 04.08.2018
+
+MarieMarie - O (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Art Pop, Dark Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Favorite Rain
+02. Wrap Your Night Around Me
+03. Salt Is My Sugar
+04. Sailor(   Читать дальше...   )Жанр: Alternative Pop, Art Pop, Dark Pop, Indie Pop, Electronic, Female VocalПродолжительность: 01:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A94F88A693AA1EA37E8DD65F971EF9E7690E850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239276   (540493) от 04.08.2018
+
+VA - Summer Latin Hits (2018) [MP3|320 Kbps] <Reggaeton, Salsa, Merengue, Bachata>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danilo Orsini – La Conoci Bailando (Radio Edit) 4:07
+02. Fedo Mora – The Only One (Original Mix) 3:21
+03. Charly Rodriguez – Salvaje (Original Mix) 3:18
+04. Yero Company – Echame La Culpa (Workout Mix) 2:39(   Читать дальше...   )Жанр: Reggaeton, Salsa, Merengue, BachataПродолжительность: 01:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443B9627E4F0F7823DDC16512E3FC5E1C25C4602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239195   (540485) от 04.08.2018
+
+VA - Sounds Of The Eighties The Rolling Stone Collection 1983-1985 (1995) Time Life Music [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540485.jpg" />
+</div>
+
+
+###  Подробнее
+
+И так, продолжаем серию публикаций о холдинге Time Life Music и музыкальных сериях, изданных музыкальным лейблом. В настоящем релизе, (который является продолжением релиза см. ссылку внизу), так же каждый отдельный выпуск (в данном случае, с 1983 по 1985 год) определяет стилистические тенденции и конкретных художников, влиятельных в рок-музыке именно в эти годы по (   Читать дальше...   )01. Van Halen - Jump  (4:04)
+02. ZZ Top - Sharp Dressed Man  (4:15)
+03. Rod Stewart - Some Guys Have All The Luck  (4:34)
+04. Tina Turner - What's Love Got To Do With It  (3:50)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5106881351667933709B2903BDB186802A9922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050160   (540368) от 07.09.2016
+
+Bee Gees - Best Of Bee Gees Vol.1 (1969) Reissue, 1987, Polydor [FLAC|Lossless|image + .cue]<Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holiday 02:56
+02. I've Gotta Get A Message To You 03:00
+03. I Can't See Nobody 03:48
+04. Words 03:19(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACCDD100260A423E1BFB8060686D775C6237BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531884   (539946) от 06.08.2012
 
 VA - The Best Of Italo Disco - Живая классика (2012) [MP3|320 кб/с]<Pop, Disco>
@@ -464,299 +754,6 @@ Blue System - Seeds Of Heaven/21st Century (2000) [FLAC|image+.cue]<EuroDisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A159144CB4DDCEE2AF99C4908C7DFBAF7ADA2A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239520   (536722) от 06.08.2018
-
-Vanessa Mai - Schlager (Ultra Deluxe Fanbox) (2018) 5CD, Box Set [MP3|320 Kbps] <Schlager, Pop, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536722.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Wiedersehen
-02. Mein Sommer
-03. Fallschirm(   Читать дальше...   )Жанр: Schlager, Pop, InstrumentalПродолжительность: 03:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEAD289E1F60181AEBF5FDA69B8C72AC22412F61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050582   (536577) от 09.09.2016
-
-Charlie Mike Sierra - On The Moon (1977) LP [MP3|320 Kbps] <Electronic, Disco, Ambient>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственный  проект французкого исполнителя музыки в стиле спейс-диско Charlie Mike Sierra (настоящее имя - Raymond Jeanno).01. Venus (4:33)
-02. Battle Of The Stars (4:13)
-03. Lunar Orbital (3:54)
-04. On The Moon (7:08)(   Читать дальше...   )Жанр: Electronic, Disco, AmbientПродолжительность: 00:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA23569D46FAAD9C2CD9AA1EB8D24AC5A787E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050816   (536458) от 09.09.2016
-
-Lady Gaga - Perfect Illusion (2016) Single [MP3|320 Kbps] <Pop, Electropop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Illusion (3:02)Жанр: Pop, Electropop, DanceПродолжительность: 00:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2781F2F84CEB3B5405EF443AFDA4E61D340108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532562   (536430) от 08.08.2012
-
-VA - The Late '50s - The Top 10 Collection (1998) 4CD [FLAC|Lossless]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fats Domino - I'm In Love Again [02:03]
-02. Ricky Nelson - Lonesome Town [02:16]
-03. Chuck Berry - Johnny B. Goode [02:42]
-04. Georgia Gibbs - Dance With Me, Henry [02:20]
-05. Teresa Brewer With The Dick Jacobs Orchestra - A Tear Fell [02:38]
-06. Sarah Vaughan - Broken-Hearted Melody [02:25]
-07. Gale Storm - Ivory Tower [02:46]
-08. The McGuire Sisters - Sugartime [02:34]
-09. Patti Page - Allegheny Moon [02:54]
-10. The Chordettes - Lollipop [02:12](   Читать дальше...   )Жанр: Pop, Rock, Retro, OldesФормат: 4CD BoxSetПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311755   (536391) от 02.07.2019
-
-Heather Nova - Pearl (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wounds We Bled [03:50]
-02. All the Rivers [04:00]
-03. Rewild Me [04:13]
-04. Some Things Just Come Undone [03:38](   Читать дальше...   )Жанр: PopПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EEA96A9E5E552F4FAF53DBB64834F9077950FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311901   (536389) от 02.07.2019
-
-Dave And Sugar - Greatest Hits (1981) LP [MP3|320 Kbps] <Pop, World, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536389.jpg" />
-</div>
-
-
-###  Подробнее
-
-По данным от Allmusic:  в штатах их называли - "The country ABBA"01. It's A Heartache (2:42)
-02. Queen Of The Silver Dollar (2:47)
-03. Tear Time (2:35)
-04. Golden Tears (2:31)(   Читать дальше...   )Жанр: Pop, World, CountryПродолжительность: 00:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8157A158DF5FDD3AD66ED29DACE92269B7A21BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311636   (536383) от 02.07.2019
-
-VA - Sláger Rádió - Sláger Slágerek. Vol 3 (2000) [FLAC|Lossless|image + .cue] <Pop Rock, Disco, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536383.jpg" />
-</div>
-
-
-###  Подробнее
-
-A 60-as 70-es évek legnagyobb slágerei  
-
-01. Zorán - Romantika (1978) (3:21)
-02. Koncz Zsuzsa - Rohan az idõ (1966) (3:25)(   Читать дальше...   )Жанр: Pop Rock, Disco, RetroПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78419EEEBF834CB23E5568072F1287406A09405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050778   (536372) от 09.09.2016
-
-Tarkan - Tarkan (1999) [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simarik (3:10)
-02. Olurum Sana (4:05)
-03. Bu Gece (Kir Zincirlerini) (remix 99) (3:49)
-04. Sikidim (Hepsi Senin mi?) (3:16)(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0576064A13A00D4E2672E71FE5756091E5F16A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312037   (536319) от 02.07.2019
-
-Mark Ronson - Late Night Feelings (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Late Night Prelude (01:29)
-02. Late Night Feelings (04:11)
-03. Find U Again (02:56)
-04. Pieces of Us (03:26)(   Читать дальше...   )Жанр: Electronic, Soul, PopПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F76508D32DF10786411FDCB5FE349EFDE1233E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311652   (536310) от 02.07.2019
-
-VA - Sláger Rádió - Sláger Slágerek. Vol 2 (1999) [FLAC|Lossless|image + .cue] <Pop Rock, Disco, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536310.jpg" />
-</div>
-
-
-###  Подробнее
-
-A 60-as 70-es évek legnagyobb slágerei  
-
-01. Hofi Géza - Próbálj meg lazítani (3:23)
-02. Kovács Kati - Úgy szeretném meghálálni (3:22)(   Читать дальше...   )Жанр: Pop Rock, Disco, RetroПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49435B77F307D11C829EF74CC5301A9D2FB54D0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

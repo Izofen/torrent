@@ -1,3 +1,32 @@
+###  Публикация: 1374530   (872330) от 10.04.2020
+
+Jonny Craig - Find Your Home (2020) [MP3|320 Kbps] <R&B, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Block out the Noise [03:20]
+02. D.R.E.A.M. [03:23]
+03. Forelsket (Euphoria) [03:04]
+04. Turning the Page [03:33](   Читать дальше...   )Жанр: R&B, Hip-HopПродолжительность: 00:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24EE8C5C10DF8637847FE95490B6012CABC08CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998286   (869812) от 19.03.2016
 
 CENTR - Качели (2007) [FLAC|Lossless|tracks + .cue] <Rap>
@@ -722,35 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2EE276AA0560EC48C33A2DEA58A77465FC23D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377194   (853422) от 21.04.2020
-
-Wiz Khalifa - The Saga of Wiz Khalifa (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Y U Mad (feat. Megan Thee Stallion, Ty Dolla $ign & Mustard) [03:31]
-02. Out in Space (feat. Quavo) [02:50]
-03. Still Wiz [02:51]
-04. Bammer (feat. Mustard) [03:03](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:857F49CD40AB4B2D5992EEB60D60CE458543E76A
 ```
 
 https://mybot314.ru/tekegram_catalog/

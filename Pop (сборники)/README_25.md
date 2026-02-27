@@ -1,3 +1,148 @@
+###  Публикация: 1007864   (819439) от 16.04.2016
+
+VA - Вспомним 90-2000 от Виталия 72 - 3 (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Фристайл - Фонари
+02. Авраам Руссо - Знаю (remix)
+03. Сладкий сон и С. Васюта - На белом покрывале января
+04. Юля Савичева - Высоко(   Читать дальше...   )Жанр: PopПродолжительность: 05:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422150B32E6CCFF967B5C5A76F74FCBBD70882AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008277   (817838) от 17.04.2016
+
+VA - Отдых у моря с лучшими хитами (2016) (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Sasha Dith & Мохито - Я Тебя Люблю
+02. Elton John - Wonderful Crazy NightElton John - Wonderful Crazy Night
+03. Rihanna - Kiss It Better
+04. Сергей Костецкий - Простые Движения(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4D97CFAD7A28FAD5F06E0176E587B07EE9F3A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008144   (817457) от 17.04.2016
+
+Madonna - Like A (The Best of) (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Like A Virgin.mp3
+ 02 - True Blue.mp3
+ 03 - Into The Groove.mp3
+ 04 - Like A Prayer.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2938E12781ABD0AA52CF5810DE74E2D44AED05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117244   (817337) от 23.03.2017
+
+VA - Весенняя танцевальная вечеринка. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817337.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Глюкоза - Без Тебя 3:44
+002. Яков Самодуров - Стану Первым 3:42
+003. Emin - Ты Же Не Знаешь 3:42
+004. Никита Ломакин - 3000 Карат 3:44(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2304DAD5E223E23944A16A76167666F09D98E221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197026   (817287) от 06.01.2018
+
+VA - Back In Disco (2018) vol.4 [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Synth-pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abba - Gimme Gimme Gimme (A Man After Midnight) (4:53)
+02. Area Code (212) - Manhattan Shuffle (6:12)
+03. Baccara - Sorry, I'm A Lady (3:39)
+04. Bee Gees - Tragedy (5:03)(   Читать дальше...   )Жанр: Electronic, Disco, Pop Rock, Synth-popПродолжительность: 05:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9808022F820AD4B218DDC811FD15DE583CA46F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117250   (817193) от 23.03.2017
 
 VA - Музыкальный подарок на радио Europa Plus выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
@@ -600,151 +745,6 @@ VA - De Top 100 Aller Tijden 1975 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7E90C533710BCB36201F3B7139C54A8359ACFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383591   (810130) от 16.05.2020
-
-VA - German Top 100 Single Charts 15.05.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apache 207 - Fame
-02. Capital Bra x Loredana - Nicht verdient
-03. UFO361 - Emotions
-04. Haftbefehl x Shirin David - Conan x Xenia(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB97FD928AE58038227AA8465A6A85D4EAA92D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009421   (809908) от 21.04.2016
-
-VA - Весенняя Сенсация: Популярный Русский Микс (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809908.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 140 Ударов В Минуту И Джинсовые Мальчики - Выше Тополей
-002. ALEKSEEV - Пьяное солнце (Dj Andy Light Dj ONeill Sax Remix)
-003. Аня Добрыднева - Бабочка
-004. byCity - Лето(   Читать дальше...   )Жанр: PopПродолжительность: 06:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B34C08A1695BD287B5998FFFEFA2CC64F752D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009300   (809670) от 21.04.2016
-
-VA - The Best 80's Vol.1 - Maxi Version (2016) [MP3|192-320 кб/с] <Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Bedford - Tonight 05:12
-02. Eddy Huntington - Physical Attraction 05:01
-03. Bad Boys Blue - A World Without You (Michelle) (Remix) 06:20
-04. Mike Mareen - Love Spy (Night Mix) 08:42(   Читать дальше...   )Жанр: Pop, Eurodance, DiscoПродолжительность: 06:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6013174F1B423DB9A5F0E1CC65A4535D0CD11E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119014   (809597) от 27.03.2017
-
-VA - Положительный заряд отличного настроения выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809597.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Смирнов & Компания - Прочь 3:31
-002. Зара - Миллиметры 3:33
-003. Piar - Страны Города 3:41
-004. Evidelle - Ну Почему 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385C4E5AC492F3A1BA33026F9F1EF62C80BB87C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119016   (809596) от 27.03.2017
-
-VA - Танцевальная вечеринка на Hit FM выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809596.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Слава Басюл - Ты Меня Ранишь Поцелуями 4:45
-002. Тина Кароль - Lost In The Rain 3:18
-003. Алина Башкина Feat. Dj Andrey Sanin - Ты Изменил Мою Жизнь 3:18
-004. Oleynik - Остановись 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656622359110D0CD64D045104F76D61EE9683983
 ```
 
 https://mybot314.ru/tekegram_catalog/

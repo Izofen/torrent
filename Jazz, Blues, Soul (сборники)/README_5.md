@@ -1,3 +1,32 @@
+###  Публикация: 999585   (862520) от 23.03.2016
+
+James Brown - 10 Of The Best (2015) [MP3|320 кб/с] <Funk, Soul, R&B>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please, Please, Please
+02. Papa’s Got a Brand New Bag
+03. Cold Sweat
+04. Say It Loud – I’m Black and I’m Proud(   Читать дальше...   )Жанр: Funk, Soul, R&BПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41FAA5AA9F9858F24730B4D8BCD5D2C5E723D464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108811   (862339) от 25.02.2017
 
 Gary Moore - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -718,35 +747,6 @@ VA - Blues Forever vol.69 - vol.72 (2017) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44CEF850C96EE188B45049F5BA3FF611763449AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112746   (841222) от 09.03.2017
-
-Jimi Hendrix - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Blues (With Harmonica)
-02. Voodoo Chile Blues
-03. Born Under a Bad Sign
-04. The Little Drummer BoySilent NightAuld Lang Syne(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19BB29BA4DB2DE03342E5C72F46965E05DE73701
 ```
 
 https://mybot314.ru/tekegram_catalog/

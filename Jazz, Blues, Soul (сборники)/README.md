@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1855611   (1058219) от 24.02.2026
+
+VA - Lounge And Jazz Background Music (2024) [MP3|320 Kbps] <Lounge, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058219.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mandy Mars - Rewind
+002. Chillaxing Jazz Kollektion - Memories Of Us
+003. Kool&Klean - Amazing
+004. Landayn - Bright And Breezy(   Читать дальше...   )Жанр: Lounge, JazzПродолжительность: 08:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6E7D269B2A5532FB1443191D141FB6540F7235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851936   (1055692) от 05.02.2026
 
 Мария Варгас - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Blues, Blues Rock, AI>
@@ -717,35 +746,6 @@ VA - Fortune Teller Blues - Smming up the Results (2025) [MP3|320 Kbps] <Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AD37F7C4320E76FFE4C47E1B12C8216AD1DE377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844397   (1050328) от 29.12.2025
-
-VA - Merry Christmas At the Hammond Organ (2025) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050328.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Denzel Sachs - Have Yourself A Merry Little Christmas [04:11]
-002. Jan Verkroost - Jingle Bells [02:33]
-003. Leigh Harline - When You Wish Upon [04:13]
-004. George Conedy - O Come All Ye Faithful [03:26](   Читать дальше...   )Жанр: Jazz, Blues, InstrumentalПродолжительность: 08:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBEE1ABFB093D649D466FE828166E07581F82A0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

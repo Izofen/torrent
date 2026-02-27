@@ -1,344 +1,3 @@
-###  Публикация: 1512477   (228048) от 26.11.2021
-
-Windows 7/10/11 Pro х86-x64 by systemp 21.11.10 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стабильная сборка на базе оригинальных русских Windows 7/10/11 Pro x86-x64 с обновлениями по 21.11.10 и отключением телеметрии.
-Установка автоматическая, выбирается только раздел на диске.
-Присутствует возможность установки 64-разрядных систем на UEFI.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401620CE1570958B9841FF9A6F13536CCD3EEEF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586433   (228047) от 08.12.2012
-
-Залив / The Bay (2012) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беспрецедентная биологическая катастрофа постигает небольшой город на берегу залива: паразиты, обитающие в морских глубинах, заражают людей неизлечимой болезнью. Весь ужас произошедших событий жители города запечатлели на видео, которое выкладывали в интернет.Жанр: Ужасы, Фантастика, ТриллерРежиссер: Барри ЛевинсонПродюсер: Джейсон Блум, Стивен Шнайдер, Жанетт БриллАктеры: Кристен Коннолли, Джейн МакНейлл, Кристофер Денхам, Майкл Бисли, Кетер Донохью, Энтони Рейнольдс, Энди Стал, Джон Харингтон, Блэнд Лоурен, Кон Стэйси РэбонПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F351ED7CB191B1DDA64BB6DA6C9AF5A1FFECB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424628   (228043) от 17.11.2020
-
-SoundSource 5.1.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228043.jpg" />
-</div>
-
-
-###  Подробнее
-
-SounceSource позволяет настроить прямо из строки меню входные, выходные данные и звуковые эффекты устройства и настройки громкости в считанные минуты. С SoundSource, вы получаете быстрый доступ к наиболее важным настройкам звука вашего Mac.
-
-Мгновенное переключение аудио-устройств - c помощью всего двух щелчков мыши, вы можете переключить аудио устройство вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2020Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE7D7B6F53DBA7F9457A7B315C4D7C7C6B3FE99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851543   (228019) от 19.12.2014
-
-VA - Monster Tunes Best Of 2014 (Mixed By Allen Watts) (2014) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 03:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD1FB8775466A7B5A1FCA801034394EC300B19F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341731   (228017) от 29.11.2019
-
-Movavi Video Converter 20.0.1 Premium RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Converter - программа для конвертации видео и аудио файлов. Конвертируйте, сохраняйте видео для iPod, iPhone, PSP, Zune, КПК, MP4 - плееров и сотовых телефонов. Загружайте онлайн - видео,записывайте DVD. Программа подойдет пользователю с любыми навыками в работе с видео, программа предлагает как готовые настройки популярных форматов для новичков, так (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8791310482600C3875BCA10827A17D799765CE1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851538   (228011) от 19.12.2014
-
-VA - The Best Of Damaged 2014 (Mixed by Jordan Suckley) (2014) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Jordan Suckley - Elation (Original Mix) (6:15)
-02. Jordan Suckley & Paul Webster - HELP (Original Mix) (6:43)
-03. Jordan Suckley - Contaminated (Original Mix) (5:55)
-04. Liam Wilson - The Speed of Design (Harmonic Rush Remix) (7:00)
-05. Daniel Skyver - Minefield (Future Antics Remix) (6:08)
-06. Jordan Suckley & Eddie Bitar - Centipede (6:08)
-07. Will Atkinson presents Darkboy - Atkinsane (Mark Sherry Remix) (7:21)
-08. Johnny Yono - Pulverize (Original Mix) (5:41)
-09. DJ T.H - Shapes in the Darkness (   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4E1E7685C0E676E7973F003B1BFCA2320C0333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585981   (227995) от 08.12.2012
-
-Искатели могил 2 / Grave Encounters 2 (2012) DVDRip [ЛО]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В руки к режиссёру-юнцу Алексу попадает фильм ужасов «Искатели могил». Кино не производит на него впечатления, но отношение Алекса меняется, когда ему анонимно присылают странный видеоролик, смахивающий на вырезанную сценку из «Искателей». Заинтересовавшись посланием, Алекс пытается найти создателей хитового ужастика.
-
-Тщетность этих попыток наталкивает парня на мысль, что снятое в «Искателях» произошло на самом деле, и авторы фильма мертвы. Продолжая расследование и получая новые доказательства своей теории, Алекс решается на последний шаг: он предлагает своим друзьям забраться в ту самую заброшенную психушку, где снимались «Искатели могил».Жанр: УжасыРежиссер: Джон ПоликуинАктеры: Шон С. Филлипс, Дженника Фултон, Джеффри Бауэр-Чепман, Чарли Керр, Франциско Пассуэло, Эндрю Ампфлетт, Дж. Джонс, Майк Холц, Кэлвин Валантус, Зэк Лоркевич ...Перевод: Одноголосый закадровый, любительскийПродолжительность: 01:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6310889D67C488A7FA6BD0ABC389D5F463E10CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424721   (227989) от 17.11.2020
-
-Movist Pro 2.6.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
-
-Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2020Разработчик: MovistПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2E5C29E3DD75821BFE170840E3991E24273BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965294   (227986) от 13.12.2015
-
-Unheilig - MTV Unplugged: Unter Dampf - Ohne Strom (2015) Live [MP3|320 кб/с] <Gothic Metal, Industrial Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unter deiner Flagge
-02. Mein Berg
-03. Freiheit
-04. Sage ja(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E7E378F113273386B238FA113ECD3E04BCCE807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649991   (227960) от 30.07.2023
-
-SyncBird Pro 4.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227960.jpg" />
-</div>
-
-
-###  Подробнее
-
-SyncBird Pro - это файловый менеджер iPhone, который обеспечивает синхронизацию iOS и чистку iTunes. Передавайте музыку, плейлисты, фотографии, видео, книги - все, между вашим iPhone, iPad, iPod и Mac без использования iTunes. Эксклюзивные функции SyncBird под названием PhoneCare и TunesClean созданы для того, чтобы освободить больше свободного места на вашем iPhone (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.07.2023Разработчик: © 2023 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский или Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940B971DCF95151A955B0A9BE511E21F8A82DE20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424497   (227950) от 17.11.2020
-
-Scrivener 3 v3.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrivener — это текстовый процессор и инструмент управления проектами, предназначенный для людей, которым приходится работать с большими объемами текста.
-Scrivener сочетает в себе возможности текстового редактора с функциями органайзера и средствами для управления проектом. Все ваши записи в виде отдельного текста, фотографий и идей будут удобно организованы и всегда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2020Разработчик: Literature & Latte LtdПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC7B4AC5F50400DF6DFD55E60619C597A63E881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851533   (227942) от 19.12.2014
-
-VA - The Best Of Trancemission 2014 (Mixed By Feel) (2014) [MP3|320 кб/с]<Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Igor Dyachkov - Sacrifice (Original Mix) (05:45)
- 02. Adagio Sensus - Easy For You (NoMosk Remix) (05:45)
- 03. Vadim Spark - Megapolis (Original Mix) (06:18)
- 04. Matrick - I Follow You (Alekzander Remix) (07:00)
- 05. Kam Delight - Clear Sky (Original Mix) (05:00)
- 06. Ruslan Radriges - The Need For Change (Original Mix) (06:54)
- 07. AxelPolo - Connected (Original Mix) (07:22)
- 08. Erick Strong - Brave Heart (Original Mix) (06:40)
- 09. Matrick - Apnea (Erick Strong Remix) (06:10)
- 10. Ozo Effy - One Day In Mountains (   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3E2B61B8FB75F069845C359B1CCF63D9DE3050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583816   (227916) от 16.10.2022
 
 JMG Sound - Cryostasis 1.0 VST, VST 3, AAX (x86/x64) RePack by TeamCubeadooby [En]
@@ -710,6 +369,373 @@ PrivaZer - полезная утилита, которая поможет вам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BAB7659955480644607F3EF34BA221BC5EB22F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424561   (227851) от 17.11.2020
+
+Viber 14.2.0.35 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viber для Windows позволяет бесплатно отправлять сообщения и звонить другим пользователям Viber на любые устройства в любых сетях и странах. Viber синхронизирует Ваши контакты, сообщения и журнал звонков с Вашим мобильным устройством. Интегрируется в адресную книгу и авторизует по номеру телефона. Позволяет делать бесплатные звонки через Wi-Fi и мобильные сети 3G (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206801F509410CD57E6777EEE5F226C725D9A6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851578   (227850) от 19.12.2014
+
+Мартин Соларес | Черные минуты (2014) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В мексиканском городе Паракуана зверски убит молодой журналист Бернардо Бланко. Следствие ведет продажный детектив Чавез, и он уже схватил подозреваемого. Но шеф полиции не доволен результатами его работы, он поручает это дело единственному честному детективу городской полиции Рамону Кабрере. Кабрера выясняет, что перед смертью Бланко занимался расследованием серии жутких убийств детей, происшедших много лет назад. Идя по следам журналиста, Кабрера понимает, что он на верном пути, но тут на него начинается охота...Жанр: ДетективПеревод: Ксения ЕреськоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6861DF68D8836C6EBB3B3F6F81AA8E173DE13213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586550   (227836) от 09.12.2012
+
+Dj DEMONIC - My narkotic (2011) [MP3|320 кб/с]<Dubstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227836.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Figure - Zombies
+2.Figure - Aliens
+3.The Streets - Going Through Hell (Diplo Remix)
+4.Bullwack - Vanguard feat King Minos (Original mix)
+5.Bassnectar - The 808 Track (feat. Mighty High Coup)
+6.Terravita - Lockdown (Original Mix)
+7.Emalkay - Fabrication (Extended Mix)
+8.RedLoop(feat.Mary Dell) - I Like
+9.Mart - Get`s Beeter (Abrissol Remix)
+10.Lats Frends - Telefon Skip(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3D2504F52C828814C1B0C254FDDE21F1B7E9B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586715   (227829) от 09.12.2012
+
+New-G - Harmonie (2006) [MP3|112-320 кб/с]<New age, Instrumental, Electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227829.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:21) 01. Terre de feu
+(3:44) 02. Passons le temps
+(2:07) 03. Envol vers l'infini
+(6:28) 04. New way of life 2005
+(2:57) 05. Harmonie
+(4:12) 06. Clair de lune
+(3:37) 07. Soleil levant
+(0:43) 08. Modulation
+(4:26) 09. Vision of stars
+(2:37) 10. Odyssee(   Читать дальше...   )Жанр: New age, Instrumental, ElectronicПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171EA3C110E021C69CD2CE4BCDFE48B8F0296ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851546   (227827) от 19.12.2014
+
+Shogun - Dragon (2014) [MP3|320 кб/с]<Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Shogun ft. Adara - Dragon (Radio Edit) (3:42)
+02. Shogun ft. Susie Ledge - When I'm With You (Radio Edit) (3:35)
+03. Shogun - Zanarkand (Radio Edit) (3:00)
+04. Shogun ft. Chloe - Underwater (Radio Edit) (3:35)
+05. Shogun - Laputa (Radio Edit) (3:58)
+06. Shogun - Abduction (Radio Edit) (3:25)
+07. Shogun ft. Tania Zygar - Find Me (Radio Edit) (4:10)
+08. Shogun - Erhu (Radio Edit) (3:16)
+09. Shogun ft. Emma Lock - Fly Away (Radio Edit) (4:20)
+10. Shogun - Meteor (Radio Edit) (3:12)Жанр: Progressive TranceПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BD017AF10B37341A9C284DFE98A88A0B4A8811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424539   (227824) от 17.11.2020
+
+Sigil 1.4.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sigil — программа представляет собой мощный редактор электронных книг в формате EPUB, позволяющий не только редактировать, но также создавать собственные электронные книги с собственным дизайном. Множество полезных функций, возможность настройки параметров конфигурации приложения делают данное программное обеспечение достаточно эффективным при работе с электронными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A85957D858540705522AB8A6A9A54404AD8B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268311   (227818) от 10.12.2018
+
+Geek Uninstaller 1.4.5 Build 134 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geek Uninstaller - удобный, маленький и надежный, не требующий установки деинсталлятор, разработанный, чтобы помочь пользователям произвести деинсталляцию программ, установленных в системе. В отличие от других деинсталляторов, программа осуществляет глубинные процессы сканирования и очищает ваш ПК от того, что осталось после удаления.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E889FC7E4AF132F8067B559ABB8377768C74C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736376   (227812) от 19.12.2013
+
+DJ Nike Twist - TranceWave 078 @ GTI Radio (19.12.2013) [MP3|320 кб/с]<Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Zach Teiser feat. Erin Levins - We're The Ones (DelAir Remix) (Vendace)
+2. Ciro Visone and Rita Visone - Aurora (Michele Cecchi Remix) (Diverted Music)
+3. Araya - Sonar (Sunset Heat Remix) (Fly Warp)
+4. Adam Nickey - Perfect Destiny (Moonsouls Remix) (Touchstone)
+5. Paul Rigel - Forehand (Original Mix) (Edge EDM)
+6. Mike Adams - Halcyon (Original Mix) (Arcana)
+7. Sean Mathews - Promised Land (Original Mix) (Vendace)
+8. Tristan Armes - Iced Earth (Original Mix) (Dilaryn Records)
+9. Jaco - Two Is One (Original Mix) (Free Download)
+10. The Thrillseekers - When All Else Fails (Original Mix) (Adjusted Music)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A341563C6D6C0DC8290613E93D7A038BAABC9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268269   (227804) от 10.12.2018
+
+Remote Desktop Manager Enterprise 14.0.11.0 Beta [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remote Desktop Manager – это приложение для контроля за удаленными соединениями. С программой Remote Desktop Manager вы сможете добавить, редактировать, удалить, систематизировать или быстро найти удаленное соединение. Приложение совместимо с Microsoft Remote Desktop или с Terminal Services, очень простая в использовании, но в то же время достаточно мощная и эффективная. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1601E771EBF819A6884FEFC44A22E78C9EA82F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586792   (227798) от 09.12.2012
+
+VA - New Club-16 (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Abel Almena - Secret Lover (Original Extended)
+2. DJ Favorite feat. Kristina Mailana - Love Hurts (Radio Edit)
+3. Molella - Even In The Rain (Extended Edit)
+4. Alex Gray vs Alaia & Gallo - Keep On Rising (Club Mix)
+5. EDX & Syntheticsax vs. JunGO! & Klein - I Will Be Touched
+6. Molla & Marquis feat. Marti Ray - Just Because Of You (Extended Mix)
+7. Alexys - Good Bye My Love (Teknova Remix)
+8. Enur feat. Nicki Minaj & Goonrock - I’m That Chick (Rune RK Club Mix)
+9. Molla & Marquis feat. Marti Ray - Just Because Of You (Radio Edit)
+10. Andain - What It’s Like (Loverush UK! Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6810014638A63ACC920B32755C0AB478461C288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424537   (227796) от 17.11.2020
+
+PDF24 Creator 10.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227796.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF24 Creator - бесплатная программа, которая позволяет легко создавать PDF-документы практически из любого графического изображения (формат PNG, JPEG, BMP, PCX, TIFF, PSD) с функцией их печати при помощи виртуального принтера.
+Кроме того, программа предоставляет возможность просматривать созданные PDF-файлы, разделять и объединять документы, извлекать отдельные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E28B34CBF06752EBE16539FBCCA696711D739A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586943   (227785) от 09.12.2012
+
+VA - Drum & Bass On Demand (2012) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. M-Zine and Scepticz - Alone (05:14)
+02. Heavy1 - Maya (05:41)
+03. Pennygiles & RoyGreen and Protone - Misuranderstanding (05:38)
+04. Gerwin - Inner Conflict (05:48)
+05. Ed:it - Element (06:01)
+06. Soul Intent - Synthetic (05:52)
+07. Cursa & Subliminal & Alxr - Camino (05:14)
+08. Axon - Danger Close (04:51)
+09. Eastcolors featuring Cain Mos - the Longest Journey (06:22)
+10. Heavy1 - Xiphactinus Vip (05:18)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1FFB5C8EF6DD71089EC9B1DE3BB789B0E83AD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

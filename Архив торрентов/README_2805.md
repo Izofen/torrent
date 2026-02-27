@@ -1,343 +1,3 @@
-###  Публикация: 914734   (596093) от 03.07.2015
-
-Поле Чудес 2015 1.2.6 [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отгадываете слова, смотря передачу по телевизору?
-Теперь Вы можете играть в любое время на экране Вашего телефона или планшета!
-Разомните мозги и с пользой проведите время в пробке, очереди или по дороге на работу.
-Участвуйте и выигрывайте в 1/8, четверть-финале, полу-финале, финале и супер-игре.Тип издания: FreeРелиз состоялся: 15 июня 2015 г.Разработчик: FunArtsStudioПоддерживаемая ОС: Android: 2.3+Жанр: LogicЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8BFA986ABD0D5BB1688B5500160B4869620F3DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039494   (596087) от 01.08.2016
-
-Футбол. Чемпионат России 2016-2017. 1-й тур. Терек - Крылья Советов (31.07.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596087.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 июля 2016, воскресенье. 20:30 МСК
-1-й тур
-
-Стадион: Ахмат-Арена (Грозный, Россия) , вместимость: 30597(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Александр Неценко)Продолжительность: 02:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2FAC26A4849D0B8EBE2D77CB90B3793257A8C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039417   (596085) от 01.08.2016
-
-Футбол. Чемпионат России 2016-2017. 1-й тур. Спартак (Москва) - Арсенал (31.07.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596085.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 июля 2016, воскресенье. 18:00 МСК
-1-й тур
-
-Стадион: Открытие Арена (Москва, Россия) , вместимость: 45360(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Константин Генич, Нобель Арустамян, Дмитрий Шнякин, Андрей Талалаев, Михаил Моссаковский)Продолжительность: 02:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F257446A92826A27E44A601CB41540806BC28EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298836   (596078) от 03.05.2019
-
-NASCAR-2019. 8-й Этап. Бристоль. Гонка / Monster Energy NASCAR Cup Series 2019. Food City 500. Race (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596078.jpg" />
-</div>
-
-
-###  Подробнее
-
-NASCAR Cup Series 2019 - Сезон 2019 года
-Воскресенье, 07 апреля 2019 года. Бристоль (штат Теннесси, США).
-8-й Этап. Food City 500
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B0DA0EB1A5C260A5B078562AE6470BC33E3F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299787   (596077) от 03.05.2019
-
-NASCAR-2019. 10-й Этап. Талладега. Гонка / Monster Energy NASCAR Cup Series 2019. GEICO 500. Race (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596077.jpg" />
-</div>
-
-
-###  Подробнее
-
-NASCAR Cup Series 2019 - Сезон 2019 года
-Воскресенье, 28 апреля 2019 года. Линкольн (штат Алабама , США).
-10-й Этап. GEICO 500
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3D05631DDEE7E9A8D337D8B1D4EAA908756326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039517   (596074) от 01.08.2016
-
-VA - Best of Trance 2016 Vol.03 (2016) [MP3|320 Kbps] <Trance, Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mango -  Here We Go (Jaytech Remix) 6:45
-02. Gregory Esayan -  Coastal Glow (David Broaders Remix) 6:55
-03. MoodFreak & Mike Koglin ft Sudhaus -  Octagon (Original Mix) 6:07
-04. Dan Sieg -  Horizons (Blugazer Remix) 7:56(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2499FD24DB4259D8E730E5237A5A5CA68EC73916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548923   (596052) от 04.05.2022
-
-Wise Registry Cleaner Pro 10.7.3.700 RePack (& portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Registry Cleaner - утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того, как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть её детальное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14DDC8CAB1D94D665DAE89FA44FE09D04BD8E3DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548901   (596040) от 04.05.2022
-
-foobar2000 1.6.11 Stable + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596040.jpg" />
-</div>
-
-
-###  Подробнее
-
-foobar2000 - это аудиоплеер, подкупающий своим весьма качественным звуком, имеющий широкие возможности настройки, спартанский непритязательный интерфейс и довольно низкие системные требования. Foobar проигрывает файлы многих форматов: MP3, MP1, MP2, MP4, MPC, Ogg Vorbis, AAC, FLAC / Ogg FLAC, WavPack, AIFF, AU, WAV, SND, CDDA, WMA (для lheubt форматов нужны соответствующие (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6767E9E887C3D7B64DA26861529798AE09B9AE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232792   (596022) от 26.06.2018
-
-Ubuntu BusinessPack 16.04 (июль 2018) [i386 + amd64] (2xDVD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках. Она ориентирована на простоту использования и удобство работы.
-
-Включена необходимая подборка программного обеспечения, которая позволяет создать удобное рабочее окружение в корпоративной среде предприятия или на домашнем компьютере.Язык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589DA0AB6351D39503610CD4B59780487242AC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526554   (596007) от 25.07.2012
-
-Disperse - Journey Through The Hidden Gardens (2010) [MP3|320 кб/с]<Melodic Progressive Metal/Atmosferic/Djent>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596007.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Balance Of Creators (8:21)
-2. Reflection Of A Dying World (6:11)
-3. Entering Newlands (6:25)
-4. On The Windows Of A Dove (3:27)
-5. Let Me Get My Colours Back (5:54)
-6. Far Away (7:18)
-7. Above Clouds (9:55)
-8. Spirit Of Age (9:23)
-9. Circle's Complete (5:47)Жанр: Melodic Progressive Metal/Atmosferic/DjentПродолжительность: 01:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05936764DAF44482C55F223E8F5711B197C6E53A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526991   (596006) от 25.07.2012
-
-AkelPad Portable 4.7.7 by PortableApps [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_596006.jpg" />
-</div>
-
-
-###  Подробнее
-
-AkelPad - текстовый редактор с открытым исходным кодом, созданный, чтобы быть маленьким и быстрым. AkelPad работает с текстовыми документами в одно- или многооконном режиме, полностью поддерживает строки Unicode в системах Windows NT/2000/XP/2003, а также кодовые страницы Unicode. Используя AkelPad, можно редактировать даже файлы, имеющие атрибут "Только для чтения", а также предварительно просматривать их перед открытием. Среди других возможностей редактора следует отметить многоуровневую систему отката, наличие списка последних открытых в программе документов, запоминание кодовой страницы для файла, а также положения знака вставки и последней строки поиска/замены. AkelPad поддерживает дополнительные модули и дает возможность выводить документ на печать.Язык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527054   (596005) от 25.07.2012
-
-Газета | Готовим вкусно № 7 [2012] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596005.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Готовим вкусно" - газета для тех, кто любит вкусно приготовить, вкусно поесть, вкусно угостить друзей. Красочное издание для радушных хозяек. В нем рассказывается, как принимать гостей и сервировать стол. В каждом номере кулинарные рецепты изысканных и повседневных блюд.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5113AEC55BB7EA1F2AC62CA2EB0CA0EF30DBF71A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526359   (596004) от 25.07.2012
 
 Xavier Quijas Yxayotl - Aztec Dances (2003) [MP3|192 кб/с]<Folk, Aztec Dances>
@@ -723,6 +383,374 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:228AA96EAC32317758D5357C12D01D1AE2EAEFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039441   (595955) от 01.08.2016
+
+VA - Goa Year 2016 Vol.4 (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixsense, Vimana Shastra & GoaStream -  Acid Drops 6:19
+02. Retronic -  Young and Restless 7:29
+03. Nosfer -  Kill Them All (Atomic Pulse Remix) 8:23
+04. D-Tek -  U96 7:17(   Читать дальше...   )Жанр: Trance, Psy-Trance, GoaПродолжительность: 03:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE3BF8C3B3967F35692BBE12D83A39456B25142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039439   (595950) от 01.08.2016
+
+Jack The Smoker - Jack Uccide (2016) [MP3|320 Kbps] <Hip-Hop, Trap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - V(a)iking
+02 - Burial
+03 - 666
+04 - Grazie a me (feat. Gemitaiz & Madman)(   Читать дальше...   )Жанр: Hip-Hop, TrapПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CCD63738F93CAF0B4467D7DA49BBCEF7C274EB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039508   (595943) от 01.08.2016
+
+Смешанные единоборства. Invicta FC 18: Grasso vs. Esquibel. (29.07.2016) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все бои турнира "Invicta FC 18: Grasso vs. Esquibel", прошедшего 29 июля 2016 года в "Scottish Rite Temple", Канзас-Сити, штат Миссури, США.Телекомпания: FOX SportsЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 03:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68BB6387D0A6BF52FA9595465CEF30A47F9D184D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526877   (595941) от 25.07.2012
+
+Bill Miller - Spirit Wind North (2009) [MP3|320 кб/с]<Native American, Ethno, Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595941.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Birds of Pray 4:06
+2. Together as One 5:11
+3. High Eagle Prayer 7:13
+4. Lost Canyon 6:59
+5. Vision Quest 6:42
+6. Tranquil Fire 4:23
+7. Journey Into Prayer 4:26
+8. Amazing Grace 3:59
+9. Reconciliation Prayer 5:07Жанр: Native American, Ethno, RockПродолжительность: 00:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38773A3CED53623D41D8DB39A64A0C42A0994789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527183   (595938) от 25.07.2012
+
+Журнал | ХлебСоль №8 (август 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595938.jpg" />
+</div>
+
+
+###  Подробнее
+
+"ХлебСоль" — это еще одна возможность рассказать о еде как творчестве. И появление журнала — это удивительное стечение обстоятельств, потому что в одном месте собрались энтузиасты, которые очень любят готовить и экспериментировать на кухне. Все рецепты неоднократно тестируются на редакционной кухне. Штатные повара журнала выверяют необходимое количество (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B8644086888BE6D8EF24B1F4A226EB621796EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526236   (595936) от 25.07.2012
+
+VA - TMP: Clear Sky 080 (2012) [MP3|320 кб/с]<Vocal Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595936.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ferry Corsten vs. Armin van Buuren - Brute (Darren Porter Remix)
+002. Moonbeam feat. Avis Vox - Disappearance (Kollektiv SS Remix)
+003. Max Graham & Susana - Down To Nothing (Original Mix)
+004. Evol Waves - Evolver
+005. Johan Vilborg - Fall (Original Mix)
+006. Gal Abutbul & Liri - Golden Globe (Original Mix)
+007. Julian Vincent & Shannon Hurley - Lost In Space (Mark Otten's Original Mix)
+008. Jake Shanahan feat. Tyler Sherritt - On The Otherside (Original Mix)
+009. Glideslope - Sunstone (Original Mix)
+010. Maor Levi - Won't Say NoЖанр: Vocal Trance, TranceПродолжительность: 01:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65175629F9B866488AB2EF5DF242408321B26251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526244   (595935) от 25.07.2012
+
+VA - TMP: Vanilla Dreams 080 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595935.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Morris & Sequentia - Blind (Vocal Mix)
+002. Masoud feat. Nicole McKenna - Fix The Broken (Original Mix)
+003. Chicane - Going Deep (Club Mix)
+004. Cathy Burton & Omnia - Hearts Connected (Original Mix)
+005. Andrew Bayer & Matt Lange feat. Kerry Leva - In And Out Of Phase (Club Edit)
+006. Faruk Sabanci - Oriental Sentiment (Original Mix)
+007. Allure feat. Emma Hewitt - Stay Forever (Nitrous Oxide Remix)
+008. Bartlett Bros., Matt Loki & Tiff Lacey - Sweet Child (Lele Troniq Remix)
+009. Alexey Omen feat. Volodya Aspirin - When The Heavens Cry (Original Mix)
+010. Andy Moor & Ashley Wallbridge feat. Gabriela - World To Turn (Club Mix)Жанр: Vocal TranceПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A91968D12E50AFFC2AE67B69416252A37A045FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525718   (595932) от 25.07.2012
+
+VA - Black World Mix - Mixed By Rezonanz (2012) [MP3|320 кб/с]<Drum & Bass, Dubstep, Drumstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - C.A.2K - Moredanb
+02 - NLB aka Renegade Scientist - Horn Related
+03 - C.A.2K - Push a Little Harder
+04 - Exiva & TerrorЖанр: Drum & Bass, Dubstep, DrumstepПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFF38C06DFDDA475329FDD50144A92A0FDECD19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526860   (595928) от 25.07.2012
+
+Журнал | Marie Claire №8 (август / Украина) [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Marie Claire" - воплощение живой девушки, которая работает, неплохо зарабатывает, ни перед кем финансово не отчитывается и деньги тратит исключительно на свои прихоти. Может быть, у нее сейчас есть постоянный друг - мужчина, которого она по-настоящему уважает. Мы с вами знаем эту девушку, потому что она такая же, как мы. Думает, в чем пойти на работу, и при этом периодически совершает безумные покупки, знает значение слов "статусно" и "пафосно" и при этом любопытна до крайности. Все попробовать самой, везде побывать, по любому поводу иметь свою точку зрения. Ее зовут Marie Claire, и она - отражение эпохи, девушка,которой можно все.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5BCA730B1C79899E9DFB1DEE70FD378D87CDEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527132   (595926) от 25.07.2012
+
+DJ Kocmoc - Russian Dance vol.9 (28.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595926.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кипелов - Я свободен (DJ Mariya Malyakina DubStep Remix)
+ 2. Алина Гросу – Взрослая (BennStep Remix m.u. Radio Edit)
+ 3. Nutella - я тебя люблю (DJ Johnny Clash & DJ Grant Electro remix)
+ 4. Sexy Liya & Bob Rovsky - Фильтруй,что говорят
+ 5. Иракли vs Бьянка - Белый Пляж (DJ Ruin remix)
+ 6. Иван Дорн - Стыцамен (Viento & Mutti Remix)
+ 7. Пара Нормальных & Snoop Dogg - Вставай (Anton Orf & Muztrend Remix)
+ 8. Планеты - Любовь!(Alex Neo Remix)
+ 9. DJ Gold Sky feat. A&K - Rock Star 2012 (Russian Version)
+ 10. Вася Обломов - Магадан (Dj Slon Remix)(   Читать дальше...   )Жанр: Electro House, Electro ProgressiveПродолжительность: 01:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C7A2DF7F6284AE9D77A30E08551B8AE6A54A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527126   (595924) от 25.07.2012
+
+AtmAsfera - Internal (2012) [FLAC|Lossless]<World Music, Folk-Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_595924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+ 02. Where Sould I Go
+ 03. Bala
+ 04. Almost
+ 05. Lonely Night
+
+Tetralogy Apocalypse :
+ 06. Wart (Part I)
+ 07. Inside (Part II)
+ 08. Inspiration (Part III)(   Читать дальше...   )Жанр: World Music, Folk-RockПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039553   (595921) от 01.08.2016
+
+Manuel Rocca - Mochima (2016) Single [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mochima (Original Mix) 06:44
+02. Mochima (Airsoul Remix) 06:05
+03. Mochima (Sunlight Project Remix) 07:39
+04. Mochima (Factoria Remix) 06:57(   Читать дальше...   )Жанр: TranceПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E66678B425DF0C19CFBE1E904E8AB12049A1E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

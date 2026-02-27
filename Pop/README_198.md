@@ -1,3 +1,303 @@
+###  Публикация: 1568552   (459759) от 09.08.2022
+
+Bad Boys Blue - House Of Silence (1991) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of Silence 3:54
+02. Under The Boardwalk 3:32
+03. Train At Midnight 3:29
+04. Baby Blue 3:46(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FDD021B5F5AB65E7106DD3A9482F0729A12D2A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941605   (459739) от 28.09.2015
+
+Maroon 5 - Singles (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Love
+02. Payphone (feat. Wiz Khalifa)
+03. She Will Be Loved
+04. One More Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082468ED81F5BEC424C31EA3C863D6160C8EF933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059875   (459702) от 05.10.2016
+
+Pure Orchestra  - Singin' Dog (2002) [FLAC|Lossless|tracks + .cue] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459702.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. U And I (4:05)
+2. Nation (4:13)
+3. Why She Was There (3:45)
+4.  Say It (3:40)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2FA30F69A6E8AF0112EEC428B9551FF2DB7AB01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059783   (459517) от 05.10.2016
+
+Herman's Rocket - Space Woman (1977) Reissue LP (2009) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul, Space-Age>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из проектов известного французского музыканта, композитора и продюсера - Jean-Pierre Massiera.01. Space Woman (5:11)
+02. Golden Crystallen (2:48)
+03. Transport Mission Security (3:35)
+04. Spirit In The Wind (4:21)(   Читать дальше...   )Жанр: Electronic, Disco, Space Rock, Space-AgeПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C07A5403A0C713BA015E388C699907E9353615B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059804   (459447) от 05.10.2016
+
+Joe Dassin - Chante l'amour (1992) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459447.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Salut les amoureux
+2. Sometime Lovin'
+3. L'Ombre d'un amour
+4. La mal aimee du courrier du coeur(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43266923F292FD065A7B34DDB8649760206FD838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549631   (459427) от 21.09.2012
+
+Boney M - Boney M - Original Version • Long Version • Rarities [4CD BOX] (2012) [MP3|320 кб/с]<Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459427.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Silly Confusion (12'' Version) (4:00)
+ 2. African Moon (Long Version) (6:43)
+ 3. I See A Boat On The River (Long 12'' Version) (6:06)
+ 4. I'm Alive (Fr. Farian Corp. Long Version) (5:14)
+ 5. Going Back West (3:12)
+ 6. Hooray! Hooray! It's A Holi-Holiday (3:38)
+ 7. Love For Sale (4:15)
+ 8. Hold On! I'm Comin' (3:37)
+ 9. Bang Bang Lulu (3:00)
+ 10. Barbarella Fortuneteller (2:56)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D5ADB080E43E1115C809EC1945F52A352CD187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549475   (459335) от 21.09.2012
+
+Любэ - Полное собрание сочинений 8 CD (2007) [FLAC|Lossless]<Поп, Pок, Фолк-рок, Авторская песня>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. От Волги До Енисея (3:41)
+02. Русские (3:37)
+03. Батька Махно (2:59)
+04. Ясный Сокол (3:22)
+05. Сестра (3:28)
+06. Мой Конь (2:26)
+07. Не смотри на часы (3:30)
+08. По Высокой Траве (4:24)
+09. Многая Лета Русской Земле (4:18)
+10. Гимн России (3:26)(   Читать дальше...   )Жанр: Поп, Pок, Фолк-рок, Авторская песняПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162401   (459219) от 01.09.2017
+
+VA - The Best Of TVI Records - Dance The Night Away (1995) CD [MP3|320 Kbps] <Funk-Soul, Disco, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Valor Sounds Orchestra - Gotta Have It (4:46)
+02. Tony Valor Sounds Orchestra - Ma-Mo-Ah (4:51)
+03. Tony Valor Sounds Orchestra - Love Has Come My Way (7:04)
+04. Touch - Me And You (5:46)(   Читать дальше...   )Жанр: Funk-Soul, Disco, PopПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5817210B266A445266302D1F048F71EC92BC667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246812   (459166) от 12.09.2018
+
+Mylene Farmer (Mylène Farmer) - N'Oublie Pas (2018) Single [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N'oublie Pas (feat. LP)
+02. N'oublie Pas (Version Instrumentale)Жанр: PopПродолжительность: 00:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43330FB1994F601EBDD20B3DFCA5A53552551066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162476   (459152) от 01.09.2017
+
+Liz Mitchell (ex. Boney M) - No One Will Force You (1988) Reissue, ESonCD, 2008 [MP3|320 Kbps] <Electronic, Reggae, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get On Up And Dance (4:02)
+02. Ninos De La Playa (3:06)
+03. Marinero (3:30)
+04. Mandela (4:47)(   Читать дальше...   )Жанр: Electronic, Reggae, Pop, DiscoПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE78D02F06D05DF75139252F36D52975D8247C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321446   (458937) от 24.08.2019
 
 Taylor Swift - Lover (2019) [MP3|320 Kbps] <Pop>
@@ -455,303 +755,6 @@ The Chaplin Band - 2 Albums (1979, 1982) LP [MP3|320 Kbps] <Electronic, Funk Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C7AD870A6E1B6E60011FAEA66624EF618B175DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569051   (455717) от 11.08.2022
-
-Bryan Ferry - Taxi (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Taxi - восьмой студийный альбом Bryan(а) Ferry, вышедший в апреле 1993. Альбом достиг 2 места в Соединенном Королевстве и по итогам продаж получил золотой сертификат. Синглы I Put A Spell On You и Will You Love Me Tomorrow достигли соответственно 18 и 23 позиции в чартах Великобритании.
-Как отмечали критики - "Taxi показывает зрелого Bryan'а Ferry, вежливого, (   Читать дальше...   )01. I Put A Spell On You (5:26)
-02. Will You Love Me Tomorrow (4:16)
-03. Answer Me (2:46)
-04. Just One Look (3:32)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486D01DFE3DA5C9915CF9B159AB05E869691B05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568895   (455714) от 11.08.2022
-
-Corona - The Rhythm Of The Night (1995) [OGG|485 Kbps] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Baby                                    	3:45
-02. Try Me Out                                  	3:24
-03. Get Up And Boogie                           	3:13
-04. I Don't Wanna Be A Star                         	3:15(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568070EA4A862505B1434B1CB9A42BF4C50E4BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568968   (455706) от 11.08.2022
-
-VA - Love You Tonight (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camila Cabello - Señorita (3:10)
-02. Maroon 5 - Sugar (3:54)
-03. Quavo - Intentions (3:32)
-04. Lady Gaga - The Edge Of Glory (5:20)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F798F25EFCD511672DC52E9A2A14A7B6A4D284CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569082   (455703) от 11.08.2022
-
-Bad Boys Blue - Game Of Love (1990) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of Hearts	4:11
-02. Jungle In My Heart	3:38
-03. I Don't Know Her Name	3:23
-04. Jenny, Come Home	3:49(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F88835A6A248F51B354E2433F2BB3CC5136CF6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569060   (455701) от 11.08.2022
-
-Bad Boys Blue - Heart Beat (1986) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Hear Your Heartbeat (Sunday Girl)	3:50
-02. Mon Amie	4:35
-03. One Night In Heaven	4:45
-04. Baby I Love You	4:05(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C826A6F5462691FF7AB122274E626CB762A69CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568880   (455570) от 11.08.2022
-
-Bad Boys Blue - My Blue World (1988) [OGG|485 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A World Without You >Michelle< (Radio Edit)	3:32
-02. Don't Leave Me Now	6:10
-03. Bad Reputation	3:36
-04. Don't Walk Away Suzanne	3:50(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8DAD66C0767E304193BDBA95DDDC6D00586853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568991   (455563) от 11.08.2022
-
-Bad Boys Blue - Hot Girls, Bad Boys (1985) [OGG|480 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Woman	5:21
-02. I Live	4:54
-03. Pretty Young Girl	5:46
-04. L.O.V.E. In My Car	5:24(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E5472D9988FE933B81A93D0FA9B106254B5FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939761   (455450) от 30.09.2015
-
-Mike Mareen - The Best Of (2002) [FLAC|image+.cue]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love spy 08:41
-02. Agent of liberty 08:55
-03. Dansing in the dark 07:10
-04. Don't talk to the snake 06:46(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F7137D065C7CDB1EECB51AB13AB2FE297FA1AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550178   (455237) от 23.09.2012
-
-Дюна - Звездная Серия (2000) [APE|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чай, Банан и Сайра [3:06]
-02. Караганда [3:03]
-03. Ны-Ны-Ны [3:19]
-04. Коммунальная Квартира [2:59]
-05. В Городе Большом [2:52]
-06. Фонарики [3:14]
-07. Пива Нет [3:20]
-08. Море Пива [3:27]
-09. А Нам Все Равно [2:48]
-10. Борька-Бабник [2:52](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060634   (455185) от 07.10.2016
-
-Poussez! - Poussez! (Poo-say) (1979) Reissue CD (2005) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On And Do It (7:29)
-02. Boogie With Me (7:53)
-03. You're All I Have (8:58)
-04. Never Gonna Say Goodbye (7:58)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3325EE279CC3281CC5D23395B1FF0549A1F3ABE
 ```
 
 https://mybot314.ru/tekegram_catalog/

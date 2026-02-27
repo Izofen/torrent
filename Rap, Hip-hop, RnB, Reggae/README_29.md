@@ -1,3 +1,32 @@
+###  Публикация: 1269702   (218090) от 16.12.2018
+
+THEY. - Fireside (2018) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Trap, Grime>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_218090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What I Know Now (feat. Wiz Khalifa) (3:00)
+02. Broken (feat. Jessie Reyez) (2:15)
+03. Wilt Chamberlin (feat. Jeremih) (3:05)
+04. Tell Me (feat. Vic Mensa) (2:54)(   Читать дальше...   )Производство: Mind of a Genius/Warner Bros. - 093624902942Жанр: Hip-Hop, Trap, GrimeПродолжительность: 00:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C336B0942C3A7BC21FB84C6CF875A2EBAFBB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343422   (218058) от 06.12.2019
 
 Бьянка - Волосы (2019) [MP3|320 Kbps] <R&B, Pop>
@@ -713,35 +742,6 @@ VA - Поколение Брат (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AB7739D54328EDCD23F07B83CA7186DA999E496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286061   (185809) от 20.10.2025
-
-VA - The Secret Garden (2012) [FLAC|Lossless|Web-DL|tracks] <Instrumental Hip-Hop, Abstract Hop, Trip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JIM - La Douche (Intro) (2:16)
-02. Tor - Heikki (5:21)
-03. Poldoore - Solstice (4:29)
-04. Travelling Day - Smoking Dog (2:31)(   Читать дальше...   )Производство: DLoaw & CoЖанр: Instrumental Hip-Hop, Abstract Hop, Breakbeat, Downtempo, Trip Hop, BeatsПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3B75D66F66FB0E226D85BE74557508D6C2C9F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

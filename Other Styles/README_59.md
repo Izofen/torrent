@@ -1,3 +1,61 @@
+###  Публикация: 1509062   (795486) от 11.11.2021
+
+VA - The Best Christmas Album In The World...Ever! 2021 (2021) [MP3|320 Kbps] <Christmas, Pop, Rock>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Thank God It's Christmas
+02. Band Aid 30 - Do They Know It's Christmas?
+03. Sam Smith - Have Yourself A Merry Little Christmas
+04. Justin Bieber - Mistletoe(   Читать дальше...   )Жанр: Christmas, Pop, RockПродолжительность: 03:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67DB638690343CEC5544BCAB38C4B3FA7FD34EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011672   (795451) от 29.04.2016
+
+Finvarra - Finvarra (2013) [FLAC|Lossless|tracks + .cue] <Folk, World, Country, Celtic>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelpie / The Cliffs Of Moher 03:33
+02. The Wind That Shakes The Barley 03:11
+03. Jovano Jovanke / Ciuleandra 05:25
+04. Dimna Juda 02:22(   Читать дальше...   )Жанр: Folk, World, Country, CelticПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C129CE82B254DC37528CC016CBC9723F6193A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011032   (795447) от 29.04.2016
 
 Andreas Vollenweider - White Winds (1984) [FLAC|Lossless|image + .cue] <Electronic>
@@ -687,64 +745,6 @@ Marty Robbins - Gunfighter Ballads And Trail Songs (1959) Remastered 1999 [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:430A788DFD86FCCDB9B9BC3E1856D948C8C2BDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012205   (793453) от 01.05.2016
-
-Henry Jackman - Первый мститель Противостояние / Captain America: Civil War (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siberian Overture (02:56)
-02. Lagos (02:10)
-03. Consequences (02:21)
-04. Ancestral Call (02:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2312EABBB59485A65EDEC90C57AB4B258FB3824F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012203   (793443) от 01.05.2016
-
-Henry Jackman - Первый Мститель Противостояние / Captain America: Civil War (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siberian Overture (02:56)
-02. Lagos (02:10)
-03. Consequences (02:21)
-04. Ancestral Call (02:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4F8E3D13120F8533C7823726593BA90E28B149
 ```
 
 https://mybot314.ru/tekegram_catalog/

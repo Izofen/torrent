@@ -1,349 +1,3 @@
-###  Публикация: 469390   (97147) от 18.03.2012
-
-Сборник "Амфора 2006" [2006] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97147.jpg" />
-</div>
-
-
-###  Подробнее
-
-2006Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9701E5A8CFCE8A6BBD404FB070BC90D5ECEC0594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469780   (97144) от 18.03.2012
-
-Дейл Фурутани | Убить сегуна [2008] [RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97144.jpg" />
-</div>
-
-
-###  Подробнее
-
-...Эдо.
-Новая столица Японии, не успевшей еще зализать кровавые раны жестокой гражданской войны.
-Твердыня клана Токугава, силой и хитростью вырвавшего власть из рук наследников Тоетоми Хидэеси.
-Здесь все еще нельзя доверять никому - ни другу, ни врагу, ибо каждый способен прятать в рукаве кинжал или пузырек с ядом.
-И теперь гибель, похоже, угрожает самому сегуну.
-Его люди убеждены - наемный убийца просто промахнулся, застрелив стоящего рядом с Токугавой Иэясу советника.
-И только ронин Мацуяма Кадзэ, всей душой ненавидящий клан Токугава и его приспешников, догадывается, как и почему произошло это преступление...2008Жанр: Исторический романФормат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A492934128F39F577AEB04E4367485B8A58EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469253   (97143) от 18.03.2012
-
-Boinc manager 6.12.34 [Мульти, есть русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-BOINC (англ. Berkeley Open Infrastructure for Network Computing) — открытая программная платформа (университета) Беркли для GRID вычислений — некоммерческое межплатформенное ПО для организации распределённых вычислений. Используется для организации добровольных вычислений.Состоит из серверной и клиентской частей. Первоначально разрабатывался для крупнейшего проекта добровольных вычислений — SETI@home  , но впоследствии разработчики из Калифорнийского университета в Беркли сделали платформу доступной для сторонних проектов. На сегодняшний день BOINC является универсальной платформой для проектов в области математики, молекулярной биологии, медицины, астрофизики и климатологии. BOINC даёт исследователям возможность задействовать огромные вычислительные мощности персональных компьютеров со всего мира.Название программы: Boinc managerЯзык интерфейса: Мульти, есть русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469882   (97141) от 18.03.2012
-
-NG: Пути акулы-молота / Hammerhead Highway (2008) [720p] BDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Люди и акулы... Акулы бороздят океаны Земли вот уже 350 млн. лет. Большинство ныне живущих животных на планете эволюционировали именно от них. Но, ни одна из них не представляет больший интерес для науки и ученых, чем таинственная акула-молот. Почему она такая? Откуда такая странная форма головы? От кого и "чего" изошла? Чем она может быть полезна человеку и почему ее так боятся даже самые смелые дайверы?Жанр: ДокументальныйРежиссер: Thomas Lucas / Томас ЛукасПеревод: Дублированный*Продолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1633AAF262A9CACD154D53014A6E4E59DEAAE78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470156   (97140) от 18.03.2012
-
-[Wallpapers] Best Wallpapers Pack 3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97140.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Best Wallpapers Pack 3
-Название: Best Wallpapers Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EE6E05322C72E0B5CA21F313C9CACD9BF434FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469385   (97138) от 18.03.2012
-
-VA - TOP 30 Клубные РУССКИЕ Новинки (17.03.2012) [MP3|128-320 кб/с]<Dubstep, Drum & Bass, Trance, Electro-House, Club House, Dance, Club, Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Smash & Винтаж - Москва (DMC Style Dubstep Remix)
- 02. Gasym vs Just Born Genius - Normally do it will be normal 2012 ( Dj Najim Hassas Saxo Remix ) Ver. 3.0 Mastering
- 03. Kishe - Город (Marahovsky Remix)
- 04. Lerika - Небо и Земля (KrissMorris Remix)
- 05. Maksim - Vesna (Cursed dubstep rmx 2012)
- 06. Potap i Nastya Kamenskih Chumachechaya Vesna Slava Inside remix
- 07. RiDer MC 77 prod Aeroport Dj Amor Remix
- 08. Sandrique feat. Siatria - Закрой Глаза remix
- 09. Ёлка – Около тебя (Andry Makarov Club Remix)
- 10. Алиса Логина & Dj Anton Liss - Если Захочешь (Radio Edit)17.03.2012Жанр: Dubstep, Drum & Bass, Trance, Electro-House, Club House, Dance, Club, PopПродолжительность: 03:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82975586F62B749EB433A8D14891ABBCA0DD6D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470061   (97137) от 18.03.2012
-
-Mike Rowland - The Magical Elfin Collection (Edition 2004) (1989) [FLAC|Lossless]<New Age, Instrumental, Melody>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mike Rowland - The Magical Elfin Collection (Edition 2004) (1989)
-Год: 1989
-Жанр: New Age, Instrumental, Melody
-Продолжительность: 01:01:42Кодек: FLAC
-Битрейт: Lossless
-Тип рипа: image+.cueТрек лист:
-01.  And So To Dream [09:52]
- 02. Solace (2) [09:46](   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469952   (97136) от 18.03.2012
-
-Биатлон. Кубок Мира 2011-12. 9-й этап. Ханты-Мансийск (Россия). Мужчины. Масс-старт 15 км (2012) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужская гонка с масс-старта на 9 этапе кубка мира по биатлону в Ханты-Мансийске (Россиия)Жанр: СпортПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A65168FA588BFD88103AE8AE8DDF5D357033385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469750   (97133) от 18.03.2012
-
-Макс Галло | Тит. Божественный тиран [2008] [RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Тит Божественный - под таким именем он вошел в историю. Кто был этот человек, считавший себя Богом? Он построил Колизей, но разрушил Иерусалим. Был гонителем иудеев, но полюбил прекрасную еврейку Беренику. При его правлении одни римляне строили водопроводы, а другие проливали кровь мужчин и насиловали женщин. Современники называли Тита "любовью и утешением человеческого рода", потомки - "вторым Нероном". Он правил Римом всего три года, но оставил о себе память на века.2008Жанр: Исторический романФормат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E763665CB3B5D26B51A42616C108C5462A1256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469775   (97131) от 18.03.2012
-
-Биатлон. Кубок Мира 2011-12. 9-й этап. Ханты-Мансийск (Россия). Женщины. Гонка преследования 10 км (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женская гонка преследования на этапе кубка мира по биатлону в Ханты - МансийскеЖанр: СпортПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99316786BB89AE69991BE34AE7AF92777AEEF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469813   (97129) от 18.03.2012
-
-Лорд, разведчик и другие. Чеченские истории (2007) TVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Грозный,2000 год.По статистике 90% всех подрывов и нападений на федеральные силы происходило именно в этом городе.
-Со всей страны ехали на кавказ и меняли друг друга сводные отряды милиции,СОБРы,ОМОНы.Обратно домой нередко возвращались гробы.
-Казалось это замкнутый круг,разорвать который невозможно.Прошел один год,второй,в списках погибших сотрудников всё чаще
- стали появляться чеченские имена и фамилии.В борьбу с бандитами вступило республиканское МВД.Ситуация в Чечне стала меняться.Жанр: ДокументальныйРежиссер: Александр СладковПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A984BFD0C1ADA96BB6B2FB2CBB4AF2F29AB36BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469349   (97128) от 18.03.2012
-
-Bvdub - Don't Say You Know (2012) [MP3|320 кб/с]<Ambient, Downtempo, Breaks>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. So Far From Home (For JR) /23:14/
-02. All It Takes /11:52/
-03. My Sun Shines Through Your Rain /9:38/
-04. Pure Of Heart /12:36/
-05. Made It Here Without You /10:39/
-06. Don't Say You Know /9:52/2012Жанр: Ambient, Downtempo, BreaksПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD2874CB8E973E56D38D4C50DC6D83D1B2410F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468948   (97127) от 18.03.2012
 
 SAM CoDeC Pack 4.00 Final [Русский]
@@ -737,6 +391,404 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C29AC0F2FEEEAA082CCEA9CF9857391FC8AA286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470003   (97102) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 97
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97102.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 97
+Название: Desktop Wallpapers Pack 97
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C22393C5DFC35DB6B7768342036B2884D5D4889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469766   (97099) от 18.03.2012
+
+VA - Звездная Вечеринка. Зарубежные Новинки (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97099.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roxette - Sleeping In My Car (Dj Favorite Delicious Remix)
+002. The Disco Boys - Around The World
+003. Medina - Lyser i morke
+004. Hardcore vibes - Global Deejays
+005. Justin Timberlake - Like I Love You (Extended Club Mix II
+006. No Mercy - Where Do You Go (Johan K & Eddie Mono Horny Bootleg Edit)
+007. Milena & Murzin Denis - Touch Me (Radio Version)
+008. Geri Holliwell - Let Me Love You More
+009. Tom Boxer Vs Tematik & Kerim Muravey & Алие Дживан - Я Улетаю
+010. The Anarchist - Battlescarz (original mix)2012Жанр: Pop,DanceПродолжительность: 06:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD10AB963DCFB371341C81A273E56C21ECA7C37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467123   (97098) от 18.03.2012
+
+VA - Nope is Dope vol.12 2CD (2012) [MP3|~256 кб/с]<House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wally Lopez - Coolest
+02. Franky Rizardo & Skitzofrenix - Patulego
+03. Dave Rose & Will Clarke Ft. Mr Eyez - If Yo Ready
+04. Hardsoul Ft. Baggi Begovic - Survival
+05. Myomi Ft. Amber Jolene - Sun In My Eyes (Keith & Supabeatz Remix)
+06. The 2 Bears - Work (Franky Rizardo Remix)
+07. Skitzofrenix - Droppin That
+08. John Dahlback - Are You Nervous (Rene Amesz Rework)
+09. Olav Basoski - The Rain
+10. Oliver Twizt - Love Trip(   Читать дальше...   )CD 1: (Mixed by Firebeatz)
+Продолжительность: 01:03:01
+Битрейт: ~258 кб/с
+
+01. Firebeatz - Funky Shit
+02. Hardwell - Cobra
+03. House Republic - Nuggetz (Richard Grey Original Mix)
+04. Marcel Woods - Inside Me (Bassjackers Remix)
+05. Nicky Romero - Toulouse
+06. Bingo Players - Rattle(   Читать дальше...   )2012Жанр: HouseПродолжительность: 02:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736E77EE49D200D9A80C2A0F7135CB3626A5563F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469754   (97097) от 18.03.2012
+
+VA - Новые Райские Хиты. Зарубежный (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97097.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Far East Movement feat. Rye Rye - Jello
+002. Colina - Du and Ich (Rain Edit)
+003. Madonna - Girl Gone Wild (Radio Edit)
+004. Streamrocker, Rene De La Mone - Changes (Purple Project Remix)
+005. Pitbull feat. Chris Brown - International love (UK Pop radio edit)
+006. Jordi MB feat. Jason Rene - Lady (Say Hey)
+007. Les mots - Keen' V
+008. T9 Feat. Krec Check - Blues
+009. Bk & Kelly Rowland - Down For Whatever (DJ Pasha Lee & DJ Vitaco mash-up)
+010. Darius & Finlay vs. Tom Mountain - Ubap (Video Mix)2012Жанр: Pop,DanceПродолжительность: 07:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B402440425F09E2D3DE538345A351C7767B7A6CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470182   (97096) от 18.03.2012
+
+[Wallpapers] Full HD Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97096.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Full HD Wallpapers Pack 1
+Название: Full HD Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48190CE0109DC9C6D38DFBEF6E7609B2552F58BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469774   (97095) от 18.03.2012
+
+Alchemix - The Visions Begin (2012) [MP3|~248 кб/с (V0)]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alchemix - Cloud Of The South 08:53
+ 02. Alchemix - Freak Toc 08:17
+ 03. Alchemix - New Form Of Energy 08:20
+ 04. Predators - What Is Out There (Alchemix Remix) 08:37
+ 05. Alchemix - Let Me Try 07:19
+ 06. Alchemix - I Can Hear You 08:31
+ 07. Alchemix - Illusions 08:27
+ 08. Alchemix - What Is Reality 08:02
+ 09. Alchemix - The Vision Begins 08:052012Жанр: Psychedelic / ProgressiveПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765E1DD0599D0232BD12D6F06C204F443F47F8A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469340   (97094) от 18.03.2012
+
+[Wallpapers] Обои для рабочего стола. Автомобили 10
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Автомобили для Рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754868417AD08880825EDE37CE71DAA0B07D2776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469764   (97093) от 18.03.2012
+
+Александр Ахматов | Хроника времен Гая Мария, или Беглянка из Рима [2005] [RTF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Конец II века до нашей эры. Могущественный Рим, покоритель почти всех стран Средиземноморья, пышно отпраздновал победоносное окончание войны с Югуртой, царем Нумидии. Но радость римлян по поводу этой новой победы омрачена их тяжелыми поражениями в Галлии, куда вторглись многочисленные и воинственные германские племена кимвров и тевтонов. «Варвары» в очередной раз разбили и уничтожили римские легионы. От полного разгрома Италию спасает только то, что германцы по какой-то причине отказались от вторжения в беззащитную страну сразу после своей победы. В Риме с лихорадочной поспешностью готовятся к войне. Страхом и неуверенностью, царящими среди римлян, пытаются воспользоваться угнетенные рабы, со всего света собранные в Италию. Они составляют заговоры, устраивают бунты. Близ города Капуи вспыхивает тайно подготовленное и хорошо организованное восстание, которое возглавил разорившийся римский всадник Тит Минуций…2005Жанр: Исторический романФормат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C035B279B871182A0F205E0CBFE75F272DDB4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469551   (97092) от 18.03.2012
+
+VA - TMP : Trance Harmony 063 (2012) [MP3|320kbps]<Trance, Uplifting Trance, Dream Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Basger - Animalia (Original Mix)
+02. Traces Traxx - Berlin Nights (Original Mix)
+03. The Moonwalkers - Human Revolution (Basil O'Glue Remix)
+04. Dennis Sheperd & Alan Morris feat. Sue McLaren - I Die (Ferrin & Morris Remix)
+05. Federation - Innocent Desire (Pure Mix)
+06. Gareth Emery feat. Mark Frisch - Into the Light (Alex M.O.R.P.H. Remix)
+07. Tigran Oganezov pres Aboriginal - Kosmogonia (Original Mix)
+08. John O'Callaghan & Kathryn Gallagher - Mess Of A Machine (Extended Mix)
+09. Joseph Areas - Subtle Motion (Original Mix)
+10. System F vs. Cosmic Gate - The Blue Theme (Ferry Corsten Fix)2012Жанр: Trance, Uplifting Trance, Dream TranceПродолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF601B4910C2D9763F851DA77E856DEDC4329F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470064   (97090) от 18.03.2012
+
+НТВшники.  Выпуск №70. Ходорковский Go Home?  (2012.03.18) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+О фильме:
+Мы те, кто 16 лет приходит к вам в дом, чтобы рассказать о главных событиях. Те, кто говорит с вами неофициальным языком. Те, у кого своя точка зрения на события в стране и мире. Мы — НТВшники!
+
+НТВшник — это не просто профессия или запись в трудовой книжке.
+НТВшник — это образ мыслей, образ жизни, позиция, диагноз.
+
+Сегодня у нас появилась собственная площадка для дискуссий — новый интеллектуальный клуб. Мы дали ему свое название — «НТВшники». Приходить в это клуб будут те, кто работает сейчас, и те, кто когда-то создавал образ единственного в стране независимого телеканала. Ведь бывших НТВшников, как известно, не бывает!
+
+Актуальные репортажи, журналистские расследования, острые дискуссии. Созданный в формате ток-шоу проект «НТВшники» впитал в себя все лучшее, что было создано каналом за время его существования.
+(   Читать дальше...   )В выпуске: Он был самым богатым человеком в России, а стал простым заключенным… Может, настала пора отпустить? Ходорковский — впервые на арене острых дискуссий.Жанр: ТелепередачаПродолжительность: ~ 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF71E4923A9E1F6619A29387F2E8B078AAD2737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469093   (97089) от 18.03.2012
+
+Greyswan - Thought - Tormented Minds (2003), [MP3|318-320kbps|VBR] <Doom,Gothic Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01-Thought-tormented minds (0:41)
+02-Questions (5:48)
+03-Sleepless night (8:12)
+04-Lost smiles (4:53)
+05-This gloomy sickness (6:57)
+06-We'll never be (6:55)
+07-Witness of a better time (6:06)
+08-Afraid to go on, afraid to come back (8:00)2003Жанр: Doom/Gothic MetalПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB22D17218EF140EE9DCB67C340FDA9074AC6DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469941   (97087) от 18.03.2012
+
+VA - Bravo Hits Wiosna (2CD) (2012) [MP3|192 kbps]<Dance | Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97087.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1:
+
+01. Michel Telo - Ai Se Eu Te Pego
+02. Dj Antoine Feat. The Beat Shakers – Ma Cherie
+03. Taio Cruz - Troublemaker
+04. Rihanna - You Da One
+05. Lmfao - Sexy And I Know It
+06. Lady Gaga - Marry The Night
+07. Ewa Farna - Nie Przegap
+08. Avicii - Levels(   Читать дальше...   )2012Жанр: Dance | PopПродолжительность: 02:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314E3AD8175E47E74BED1BA3904B8FB65FA1A8BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

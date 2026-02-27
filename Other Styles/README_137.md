@@ -1,3 +1,61 @@
+###  Публикация: 1327099   (366028) от 29.09.2019
+
+VA - Modern Sound Orchestras - Another Day In Paradise (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Day In Paradise - Phil Collins  (3:46)
+02. Right Here Waiting – Richard Marx (3:22)
+03. Hey Jude - McCartney / Lennon  (3:43)
+04. I Just Died In Your Arms Tonight – Nicolas Eede (3:15)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2400F6EDE728C6238291D7E117A1DCF239BE8EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 153436   (365816) от 21.11.2009
+
+VA - Tea Music (Музыка для Чайных Церемоний) - 12 CD (1993 - 2004) [FLAC|lossless]<New age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_365816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New age, Meditative, RelaxПродолжительность: 00:50:56
+
+01. Fragrance of Water
+02. Fine Tea Is Like a Beauty(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327209   (365543) от 29.09.2019
 
 Various Artists - Rocketman (Music From The Motion Picture) (2019) 2CD / Target Edition / Japan [FLAC|Lossless|tracks + .cue] <Rock, Pop, Stage & Screen>
@@ -707,68 +765,6 @@ Deuter - Dreamtime (2013) [FLAC|Lossless|tracks + .cue] <Meditative, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:051E00912CE1A385ADA534B20DF45EF97D284E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577181   (360204) от 18.11.2012
-
-Chris Spheeris - Maya (2012) [FLAC|Lossless]<New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghali
-02. Lanilei
-03. Sadoor
-04. Narabi
-05. Kradeesh
-06. Soulana
-07. Bata
-08. ShastiЖанр: New Age, WorldПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177759   (359834) от 26.10.2017
-
-Ramin Djawadi - Игра Престолов / Game of Thrones (Season 1-7) (2011-2017) [FLAC|Lossless|tracks + .cue] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title [01:46]
-02. North Of The Wall [03:48]
-03. Goodbye Brother [03:07]
-04. The Kingsroad [02:06](   Читать дальше...   )Жанр: ScoreПродолжительность: 08:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2167130CFED798D80E357F2755599DD1F648ED3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

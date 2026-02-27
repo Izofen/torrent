@@ -1,3 +1,58 @@
+###  Публикация: 191215   (1030105) от 20.02.2021
+
+VA - Вдохновение - Оттенки настроения 5 альбомов (2004) [APE|Lossless|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Изумительная благодать
+02. Овцы могут спокойно пастись
+03. Гимн
+04. Адажио(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC572B437E3DF5278DA0873CF2BA3C54A2109C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273614   (1030103) от 20.02.2021
+
+101 Strings Orchestra - 2 альбома (2002, 2009) 3CD [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030103.jpg" />
+</div>
+
+
+###  Подробнее
+
+101 Strings Orchestra был брендом очень успешной организации симфонической музыки, легко слушающей , с дискографией, превышающей 150 альбомов, и творческим сроком службы около 30 лет, начиная с 1957 года. 101 Strings имел фирменное звучание, сосредоточенное на мелодии с непринужденной атмосферой. чаще всего со струнами. Их пластинки были индивидуализированы слоганом (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96621891A2841174A42362D35F58BB7FB2D64405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 351111   (1030102) от 20.02.2021
 
 Алексей Рыбников - Музыка любви (2006) [FLAC|Lossless|image + .cue] <Instrumental>
@@ -690,64 +745,6 @@ Blackmore's Night - Nature's Light (2021) 2xCD, Jараnese Еditiоn [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47490688F2F4763C74BFA149873FD5C2BE7424BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457240   (1024563) от 25.03.2021
-
-VA - Romantic Melodies: Classic In Pop (2005) [MP3|320 Kbps] <Pop, Rock, Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricky King - Mondscheinsonate (3:34)
-02. Francis Goya - Concerto Pour Une Voix (2:55)
-03. Jacques Loussier - Summer Adagio (4:21)
-04. Anthony Ventura - Menuet (3:41)(   Читать дальше...   )Жанр: Pop, Rock, ClassicalПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE53F0D514C186EDD66A7DE440084AE599F31196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457716   (1024209) от 27.03.2021
-
-Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024209.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:20] 01. Pensacola, Florida (Godzilla Theme)
-[07:26] 02. Skull Island (Kong Theme)
-[02:02] 03. Apex Cybernetics
-[02:29] 04. A New Language(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C850B3A2B042DC887972FAC5E01E9AA3A876DEC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

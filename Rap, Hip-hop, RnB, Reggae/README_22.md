@@ -1,3 +1,32 @@
+###  Публикация: 1413529   (408423) от 04.10.2020
+
+Зараза - Остров невезения (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тебе лучше не знать [03:24]
+02. Выстрел [03:12]
+03. Хип-хоп мёртв [03:18]
+04. Выход [03:26](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFE73D6EDECD4713F425449C477873598E35FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413518   (408194) от 04.10.2020
 
 Pra(Killa'Gramm) - УЛИЦА ГОВОРИТ (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
@@ -715,35 +744,6 @@ ST feat. Ленинград - Балалайка (2018) Single [MP3|320 Kbps] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8E022D48E56B533FA499AC51725594A65ED0186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417572   (358064) от 20.10.2020
-
-Kid Abstrakt & Emapea - Jazzy Vibes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, Underground Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz & Coffee Part 4 (ft DJ Million Faces) (3:01)
-02. It's All Good (ft DJ Million Faces) (3:23)
-03. Raw.Lofi (ft DJ Million Faces) (2:55)
-04. Real Talk (ft Predominance & DJ Million Faces) (3:28)(   Читать дальше...   )Производство: Revolutionary RhythmЖанр: Hip-Hop, Jazz Hop, Underground Hip-HopПродолжительность: 00:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5473E2D1186A84EF0CF5259928202AC2B683D79C
 ```
 
 https://mybot314.ru/tekegram_catalog/

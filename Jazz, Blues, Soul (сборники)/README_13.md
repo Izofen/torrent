@@ -1,3 +1,32 @@
+###  Публикация: 1060753   (605479) от 24.04.2022
+
+VA - Blues Forever vol.61 - vol.64 (2016) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zed Mitchell - Lonely Man
+02. Buddy Guy - Lyin' Like A Dog
+03. Cathy Jean - Ripe Garden Little Sick Twist
+04. Joe Cocker - I Put A Spell On You(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5084A4FB673DBAB61DA07CC49EB4451C1A5E5616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231478   (604971) от 18.06.2018
 
 VA - Swing Jazz Improvization (2018) [MP3|320 Kbps] <Swing Jazz, Electro Jazz>
@@ -715,35 +744,6 @@ VA - Jazz on the Beach (2016) [MP3|320 Kbps] <Jazz, Latin, Easy Listening>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:439C48B79B8EF143DB725CCD130491850B2CCF13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045496   (559116) от 23.08.2016
-
-VA - Blues Collection 2 (2016) [MP3|320 Kbps] <Blues, Blues Rock, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559116.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ben Granfelt Band -  Breathe  05:48
-002. Bernard Allison -  Help Me Through The Day  04:49
-003. Big Mike Griffin -  Let's Have A Party  05:45
-004. Black Cat Bone -  Ain't That I Don't Love You  04:02(   Читать дальше...   )Жанр: Blues, Blues Rock, JazzПродолжительность: 21:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE71DA2DB8668DC4265D3E279679DF06B01EB6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

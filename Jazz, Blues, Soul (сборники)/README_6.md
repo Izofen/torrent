@@ -1,3 +1,32 @@
+###  Публикация: 1112746   (841222) от 09.03.2017
+
+Jimi Hendrix - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Blues (With Harmonica)
+02. Voodoo Chile Blues
+03. Born Under a Bad Sign
+04. The Little Drummer BoySilent NightAuld Lang Syne(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BB29BA4DB2DE03342E5C72F46965E05DE73701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113131   (839869) от 10.03.2017
 
 Keb' Mo' - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
@@ -716,35 +745,6 @@ Eddy Clearwater - 30 most slow Blues (2017) [MP3|256-320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB2A6345932D0B476187018109C31470D0985BD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008619   (815925) от 18.04.2016
-
-VA - Riviera Jazz Lougin (2016) [MP3|320 кб/с] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristiano Pomante Quartet - Maybe
-02. Guido Russo - Antigua
-03. Overflow - Sunny
-04. Frank Tayla - Tropez(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CB91FE4548C772DED474AD6A041EF057DBF5AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

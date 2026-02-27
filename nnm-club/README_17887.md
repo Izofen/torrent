@@ -1,25 +1,25 @@
-###  Публикация: 963964   (285215) от 09.12.2015
+###  Публикация: 1263335   (286545) от 20.11.2018
 
-Houko Kuwashima — HouKo ChroniCle (2015) [FLAC|tracks] <J-Pop>
+Antiquus Scriptum - Abi In Malam Pestem / In Pulverem Reverteris (2002) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
 
->>East Asian Music
->>Asian Pop (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285215.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[04:56] 01. 桑島法子 - 私らしく
-[03:54] 02. 桑島法子 - サンクトウス
-[03:14] 03. 桑島法子 - canta per me -Japanese Ver.-
-[03:43] 04. 桑島法子 - Silent Wind(   Читать дальше...   )Жанр: J-PopПродолжительность: 00:02:40:12
+Abi In Malam Pestem:
+01. Principium: Cosmogony - The Creation
+02. Eine such nach wissen
+03. Abi in malam pestem(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:57:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0ABDA5AC96430CF5BF430250060A2E005F5464A9
+magnet:?xt=urn:btih:189EA0E71242193AD4DE766F93079D9BC0027FA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,53 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 963963   (285214) от 09.12.2015
+###  Публикация: 1263774   (286544) от 20.11.2018
 
-Ongaku Shoujo —  3STARS (2015) [FLAC|tracks] <J-Pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285214.jpg" />
-</div>
-
-
-###  Подробнее
-
-[08:45] 01. 熊谷絵里(CV.瀬戸麻沙美) - Visionary
-[05:32] 02. 千歳ハル(CV.沼倉愛美) - ギブミーエブリシングO.K.
-[05:19] 03. 竜王更紗(CV.渕上舞) - サクラ・グッドバイ (   Читать дальше...   )Жанр: J-PopПродолжительность: 00:00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F817D6221CD603DA154D011EA9E6916EF85DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963804   (285213) от 09.12.2015
-
-Microsoft Silverlight 5.1.41105.0 Final [Multi/Ru]
+Конькобежный спорт. Кубок мира 2018-2019. 1-й Этап. Обихиро (Япония). 2-й День Соревнований (17.11.2018) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285213.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Silverlight - технология, разрабатываемая Microsoft Corporation, которая призвана создать конкуренцию Adobe Flash. Данная программа работает в виде плагина совместно с популярными браузерами. Microsoft Silverlight позволяет создавать интерактивные мультимедийные веб-страницы с визуальными эффектами для различных браузеров и платформ. Основа технологии Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Кубок мира по конькобежному спорту 2018/2019 (ISU World Cup Speed Skating 2018-2019) — серия этапов соревнований по конькобежному спорту.
+1-й Этап. Обихиро (Япония)
+2-й день соревнований:
+1. Женщины - 500 м 2-й забег(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:44:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A99B4633DA701B6AB79F6E07DBE1179FD7431D7
+magnet:?xt=urn:btih:BE431786D7115EA89C1F3795D0D503BDA09EEBE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 941990   (285212) от 09.12.2015
+###  Публикация: 1263342   (286543) от 20.11.2018
 
-Подшивка журнала | Modern Pioneer [7 номеров. Обновляемая] (2014-2016) [PDF] [EN]
+Kong - Push Comes to Shove (1995) [FLAC|Lossless|image + .cue] <Instrumental Progressive Experimental Metal>
 
->>Журналы
->>Другие журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285212.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый журнал от редакцииЖанр: ЭкстримФормат: PDF
+01. Results (4:44)
+02. Arabloop (5:07)
+03. Hoover (7:26)
+04. Ditch (5:27)(   Читать дальше...   )Жанр: Instrumental Progressive Experimental MetalПродолжительность: 00:58:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B34F06B9E0CB90393C070393B403A695D40E9559
+magnet:?xt=urn:btih:67E48F306242FE823CBB2B7050DA5315D01C805C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -107,28 +85,513 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 963770   (285211) от 09.12.2015
+###  Публикация: 1263689   (286542) от 20.11.2018
 
-VA - Зайцев нет. Лучшие новинки декабря (2015) [MP3|192-320 кб/с]<Pop, Dance, Rock, R&B, Rap, House>
+Kiyoshi Sugimoto Quartet - Country Dream (1969) 2007, Columbia Music Entertainment [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Dream [8:26]
+02. Step Ahead [11:39]
+03. The Apple [7:02]
+04. Limited Space [4:14](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68123DBA357C33FED730308B9E5A22202E7A7B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263416   (286541) от 20.11.2018
+
+Футбол. Лига Наций УЕФА 2018-2019. Лига B. Группа 2. 5-й тур. Турция — Швеция (17.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286541.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 ноября 2018 года, суббота. 20:00 МСК
+Лига Наций УЕФА 2018-2019. Групповой турнир
+Лига B. Группа 2. 5-й тур.
+Турция — Швеция(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5E06F2DB3731E0D77FD3D87D92DB91E1333CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263339   (286540) от 20.11.2018
+
+Gordian Knot - Gordian Knot (1998) Japan [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galois (2:05)
+02. Code / Anticode (6:44)
+03. Reflections (6:49)
+04. Megrez (4:00)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79451F9E1238F1AF93C0FEE8ED08F0879EE751CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263765   (286539) от 20.11.2018
+
+Конькобежный спорт. Кубок мира 2018-2019. 1-й Этап. Обихиро (Япония). 1-й День Соревнований (16.11.2018) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по конькобежному спорту 2018/2019 (ISU World Cup Speed Skating 2018-2019) — серия этапов соревнований по конькобежному спорту.
+1-й Этап. Обихиро (Япония)
+1-й день соревнований:
+1. Женщины - Командная гонка преследования(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A23C5C574AC7058BB20A2F47234B9386655A7EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263640   (286538) от 20.11.2018
+
+VA - 3xA Mixed Series VI (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Alfred - Cygnus (Th Moy Remix)                              [07:59]
+02. Experimental Feelings and Joy - Run (Christian Monique Remix)   [10:04]
+03. Dziathy - Festiv4l (Mendexx Remix)                              [07:36]
+04. Kade B - Shemyaza (PushnBall Remix)                             [07:40](   Читать дальше...   )Жанр: HouseПродолжительность: 04:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E2E70F1714243635F3E957824BE89A97702553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 423329   (286532) от 15.12.2011
+
+Журнал | Авторевю №23 (декабрь) [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание «Авторевю» рассказывает о новинках автомобильного рынка. Самые свежие новости, самые новые автомобили, все это и многое другое можно найти на страницах "Авторевю".Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E113EFE56EDADBDE95B03269393BFE0E8BB047E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186509   (286521) от 25.11.2017
+
+Alex Riel - Rielatin' (2000) Stunt Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Did You Call Her Today [07:00]
+02. Bessie's Blues [11:34]
+03. Committed [07:39]
+04. Dexterity [08:22](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC2CCC0F69B040263C8BDCAD2E4DCE85F0B0C29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186523   (286519) от 25.11.2017
+
+Бобслей. Кубок мира 2017-2018. 2-й Этап. Парк-Сити (США). Мужчины. Четверки (18.11.2017) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286519.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 ноября 2017 года, воскресенье. 02:00 МСК
+Бобслей. Кубок мира 2017-2018. 2-й Этап. Парк-Сити (США)
+Мужчины. Четверки. 1-я и 2-я попытка
+Стадион: Олимпийский парк Юты (Парк-Сити, США)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F52237AA8017FFF3B81F5BFD1D7E6E2BEDF59F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186511   (286517) от 25.11.2017
+
+Kyoto Jazz Sextet - Unity (2017) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peaceful Wind [07:24]
+02. Song for Unity (feat. Tomoki Sanders) [13:02]
+03. Mission [06:47]
+04. Ancient Future [10:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E46307CD5976DC60278861C025D29243639BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186328   (286514) от 25.11.2017
+
+Marcus Printup - Nocturnal Traces (1998) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woody's Beat [07:17]
+02. Have You Met Miss Jones? [05:56]
+03. Shertzing Along [06:08]
+04. Body & Soul [05:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D212E96897C076F38163E54DAC7EBB1B32888D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186491   (286513) от 25.11.2017
+
+Фигурное катание. Гран-при 2017-2018. 5-й Этап. Интернешнл де Франс 2017. Гренобль (Франция). Показательные выступления (19.11.2017) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286513.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 ноября 2017 года, воскресенье
+Серия Гран-при по фигурному катанию сезона 2017-2018.
+«Internationaux de France 2017» — 5-й Этап. Гренобль (Франция)
+Показательные выступления(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: Церемония, Спорт, ШоуЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0FA832088B251CB50A391CD85A35C293A5A78A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186507   (286512) от 25.11.2017
+
+Dave Brubeck - Blue Rondo A La Turk (1982) 2005, Delta Music [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tritonis [07:37]
+02. Koto Song [09:47]
+03. Improvisation [06:01]
+04. Big Bad Basie [05:04](   Читать дальше...   )Жанр: CoolПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169B5385B7E7353D4EC8A4F07075738AEA22E3E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186169   (286511) от 25.11.2017
+
+Футбол. Лига Чемпионов УЕФА 2017-2018. Группа E. 5-й тур. Спартак М (Россия) – Марибор (Словения) (21.11.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286511.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 ноября 2017 года, вторник. 20:00 МСК
+Лига Чемпионов УЕФА 2017-2018. Групповой турнир
+Группа E. 5-й тур.
+Спартак (Москва, Россия) – Марибор (Марибор, Словения)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4E0E70DFE7FAFC62DD522188D767F6472625EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186506   (286510) от 25.11.2017
+
+Lester Young Trio with Nat King Cole and Buddy Rich (1943, 1944, 1946) 1994, Verve [FLAC|Lossless|image + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to the Land [03:55]
+02. I Cover the WaterfrontЖанр: SwingПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639E26889FD1A8FD5D81D943B47B36DFAD13CB5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 848987   (286505) от 10.12.2014
+
+Wizard Barristers: Benmashi Cecil / Маги в законе [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286505.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередном параллельном мире магия давно стала нормой жизни, но ее носителей, называемых также «вудами», никто не освобождал от ответственности. Отношение к магии в обществе враждебное, за соблюдением правил строго следит Магический Трибунал, а раз есть судьи, то должны быть и защитники. И вот в 2018 году в известную токийскую адвокатскую фирму «Бабочка» поступает на стажировку 17-летняя Сесиль Судо, юный гений магии и юриспруденции. Народ в конторе работает опытный и тертый, прокуроры и конкуренты не раз намекали, (   Читать дальше...   )Жанр: приключения, комедияРежиссер: Умэцу ЯсуомиПеревод: GMCФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5846D6B6AA2FE783E3CAA161955DB6C7C551E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263439   (286469) от 20.11.2018
+
+Футбол. Лига Наций УЕФА 2018-2019. Лига A. Группа 4. 6-й тур. Англия — Хорватия (18.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286469.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 ноября 2018 года, воскресенье. 17:00 МСК
+Лига Наций УЕФА 2018-2019. Групповой турнир
+Лига A. Группа 4. 6-й тур.
+Англия — Хорватия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8AAD4629EE9A2A528E8E3EE712E81671F57126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263656   (286468) от 20.11.2018
+
+Футбол. Лига Наций УЕФА 2018-2019. Лига B. Группа 3. 6-й тур. Северная Ирландия — Австрия (18.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286468.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 ноября 2018 года, воскресенье. 20:00 МСК
+Лига Наций УЕФА 2018-2019. Групповой турнир
+Лига B. Группа 3. 6-й тур.
+Северная Ирландия — Австрия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6542C51BAFD48B22E81A57165D0C7E6E44C40C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263644   (286467) от 20.11.2018
+
+VA - German Top 50 Party Schlager Charts 19.11.2018 (2018) [MP3|320 Kbps] <Pop, Schlager>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285211.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Егор Крид – Будильник
-2. Дима Билан – Неделимые
-3. Sia – One Million Bullets
-4. Troye Sivan – Wild(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, Rap, HouseПродолжительность: 03:19:45
+01. Michelle feat. Matthias Reim - Nicht Verdient
+02. Maite Kelly - Die Liebe Siegt Sowieso
+03. Andrea Berg - Ja Ich Will
+04. De Lancaster - Rosenzeit (feat. Kay Dörfel)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:54:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E5EE39F6134021041969A4C6FF32AF9225FA6F3
+magnet:?xt=urn:btih:A5D2D57150C484E8E719A626E1619321E725C1FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,135 +599,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 963966   (285210) от 09.12.2015
+###  Публикация: 1263647   (286466) от 20.11.2018
 
-Chihiro Yonekura — BEST OF CHIHIROX II (2015) [FLAC|tracks] <J-Pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285210.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:32] 01. 米倉千尋 - 10 YEARS AFTER
-[04:31] 02. 米倉千尋 - 約束の場所へ
-[04:04] 03. 米倉千尋 - Butterfly Kiss
-[04:44] 04. 米倉千尋 - 琥珀の揺りかご(   Читать дальше...   )Жанр: J-PopПродолжительность: 00:02:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:875582CE22A683400C95BAC94C827EF9499D9809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963797   (285209) от 09.12.2015
-
-Пэн: Путешествие в Нетландию / Pan  (2015) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285209.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о сироте, который попал в волшебную Нетландию, где его поджидали опасные приключения. Там он понял, что его судьба - стать героем, который навсегда останется известен под именем Питер Пэн.Производство: США, Великобритания, Австралия, Warner Bros., Moving Picture Company (MPC), Berlanti Productions, RatPac-Dune EntertainmentЖанр: фэнтези, приключения, семейныйРежиссер: Джо РайтАктеры: Хью Джекман, Леви Миллер, Гаррет Хедлунд, Руни Мара, Адиль Ахтар, Нонсо Анози, Аманда Сайфред, Кэти Бёрк, Льюис МакДугалл, Кара Делевинь, Тхэ-чжу На, Джек ЧарльзПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1E25C887CD2A61EC6641D48BFA9E1BDFB197D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964013   (285208) от 09.12.2015
-
-Zoner Photo Studio Professional 18 Build 6 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B86BE39C728DAD5F1C31B1C17DB614C60A0974C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185900   (285207) от 25.11.2017
-
-Как заработать на хамстве водителей
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_285207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зафиксировать нарушение правил дорожного движения и проинформировать об этом полицию вот уже несколько лет может каждый владелец смартфона.Для одних это интересная игра, для других — способ навести порядок во дворе дома без скандала и мордобоя, для третьих — возможность получить бесплатный билет в театр или музей и даже пополнить счет мобильного телефона. Официальные (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963657   (285206) от 09.12.2015
-
-VA - Best Of Vocal Trance 2016 (2015) [FLAC|tracks]<Trance>
+no.9 - Switch of LIFE (2018) Steve* Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Modern Classical>
 
 >>Electronic
->>Trance (Lossless)
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285206.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Denis Kenzo & Jilliana Danise- Right Path (Radio Edit) (03:56)
-02.Temple One & Sarah Lynn- Show Me The Stars (Radio Edit) (03:53)
-03.Abstract Vision & Sarah Lynn- The Very Center Of Me (Radio Edit) (02:54)
-04.Philippe El Sisi & Sarah Russell- Into The Flame (RAM Radio Edit) (02:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:11
+01. Restart (05:34)
+ 02. Paper song (05:30)
+ 03. Switch of LIFE (06:11)
+ 04. Euphemistic (feat. kafuka) (05:03)(   Читать дальше...   )Жанр: IDM, Modern ClassicalПродолжительность: 01:24:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BC6C482F1E54B07408E20ED3BAC197083C073B5
+magnet:?xt=urn:btih:A2EA840EBFE20DE9C4BE8582A6D269735D9D7D4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -272,25 +628,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186350   (285205) от 25.11.2017
+###  Публикация: 1263652   (286465) от 20.11.2018
 
-Парни со стволами / War Dogs (2016) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+VA - Trance The Annual 2019 (2018) [MP3|320 Kbps] <Trance>
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285205.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Реальная история о приятелях-планокурах из Майами, умудрившихся выбить в Пентагоне контракт на 300 миллионов долларов на поставку оружия.Производство: США / 22 & Indiana Pictures, Green Hat Films, The Mark Gordon CompanyЖанр: драма, комедия, криминал, военныйРежиссер: Тодд ФиллипсАктеры: Майлз Теллер, Джона Хилл, Брэдли Купер, Ана де Армас, Кевин Поллак, Джейби Бланк, Шон Тоуб, Патрик Ст. Эсприт, Стив Лэнц, Грегг Уэйнер, Эдди Джемисон, Джулиан Сержи, Дэниэл Берсон, Эдсон ЖанПеревод: Дублированный (Лицензия BD CEE), Авторский (одноголосый, закадровый) (Д. Есарев, Ю. Немахов)Субтитры: Русские (Full-length, Forced), Украинские (Forced), АнглийскиеПродолжительность: 01:54:12
+01. Rank 1 - L e d There Be Light (Cosmic Gate Remix)
+02. Marcel Woods - Beautiful Mind (Dennis Sheperd Remix)
+03. Joop - The Future (Alex Ender 2018 Festival Mainstage Mix)
+04. Jochen Miller - Revenge (Jochen Miller's Festival Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:292D81861C8D7F0A6A675FC7F0256F5FF6956296
+magnet:?xt=urn:btih:B4B1967022698D48B96C202427FF4E21E05A4816
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -298,26 +657,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 963901   (285204) от 09.12.2015
+###  Публикация: 1263278   (286464) от 20.11.2018
 
-Проекты - Pond5 - Christmas Holiday Frames - 44961890 [AEP]
+Lambert & Dekker - We Share Phenomena (Instrumental Version) (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop>
 
->>Проекты
->>Праздничные (проекты)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285204.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для создания Новогоднего слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
+01. The Tug 03:34
+02. In an Oblique Way 03:43
+03. Another One 03:31
+04. Manifold 02:59(   Читать дальше...   )Жанр: Alternative, Indie PopПродолжительность: 00:40:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1119694540288F9D24CA00F40D12BF1BB77A03A
+magnet:?xt=urn:btih:FCFF0CD013254A86F22F95486DE7E0E0C3AE2BF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,25 +686,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186683   (285203) от 25.11.2017
+###  Публикация: 1263657   (286463) от 20.11.2018
 
-Nioh (2017) [Ru/Multi] (1.21.02/dlc) Repack R.G. Revenants [Complete Edition]
+VA - TranceMission Vol.4 (2018) [MP3|320 Kbps] <Trance>
 
->>Win Игры
->>RPG
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285203.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Nioh: Complete Edition — полное издание приключенческого экшен-слэшера с видом от третьего лица, которое включает базовую игру и все выпущенные дополнения. Вас ожидает глубокий и привлекательный мир, который сочетает в себе исторические факты и японский фольклор.Тип издания: RepackРазработчик: KOEI TECMO GAMESЖанр: Action, RPG, 3D, 3st PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+01. Andy Elliass - Adieu (KAYAT Remix)
+02. Vlad Gee - 712 Days (Mark Doyle Remix)
+03. Baran Ozhan - IRED (Original Mix)
+04. Angel Ace - Aura (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:30:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B941024EB3A9B8D735EC88DE55F0F9ACD332072F
+magnet:?xt=urn:btih:D7161AEBF0B0FD921892CC2BCFCA60DF8A3FAF40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,348 +715,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 841891   (285202) от 09.12.2015
+###  Публикация: 1263341   (286462) от 20.11.2018
 
-Aoki Hagane no Arpeggio -Ars Nova- OST (2013-2015|FLAC) <OST|OP|ED|Character Songs>
+Skyharbor - Sunshine Dust (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
 
->>Аниме музыка
->>Аниме OST (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285202.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Альбомы в раздаче
-Aoki Hagane no Arpeggio -Ars Nova- OP Single — SAVIOR OF SONGЖанр: OST, Character SongsПродолжительность: 00:03:38:05
+01. Signal (1:20)
+02. Dim (4:58 )
+03. Out Of Time (4:57)
+04. Synthetic Hands (5:41)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC6388B1FF5F9611879F0A1C860C855BCE55D9C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186161   (285201) от 25.11.2017
-
-Google следит за пользователями гаджетов, работающих на Android
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_285201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google признался в тайной слежке за пользователями. В компании подтвердили, что уже 11 месяцев гаджеты на платформе Android собирают информацию о местонахождении своих владельцев.Причем это происходит, даже если отключить геолокацию и вынуть SIM-карту. Телефон в фоновом режиме фиксирует близлежащие вышки сотовой связи, и как только появляется доступ к Интернету, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963962   (285200) от 09.12.2015
-
-YURiCa — Flower Drops (2015) [FLAC|tracks] <J-Pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285200.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:20] 01. YURiCa - Flower Drops
-[04:07] 02. YURiCa - Humanoid
-[04:50] 03. YURiCa - Ameka Yume
-[04:12] 04. YURiCa - Kimi no Kiseki(   Читать дальше...   )Жанр: J-PopПродолжительность: 00:00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BBAB6D7E2A53C8C9EF608FDB3C2E1F13C2CB343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186543   (285199) от 25.11.2017
-
-Jade Empire (2005) [Ru/En] (1.00) License GOG [Special Edition]
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба империи в ваших руках. Вы можете спасти древнее королевство, а можете его уничтожить. Нефритовую империю раздирают восстания. Некогда любимый народом император Сунь Хай попал под разлагающее влияние заговорщиков и обратился против своих родных братьев. Теперь вы должны выбрать, на чью сторону встать, одну за другой распутывая мрачные тайны гибнущей империи: (   Читать дальше...   )Тип издания: LicenseРазработчик: BioWareЖанр: Экшн, Ролевая игра, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA093B177B23C70A3D659A4DCF523DB406DD63FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964032   (285198) от 09.12.2015
-
-Последняя высадка / The Last Drop (2005) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285198.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1944 году Уинстон Черчилль и высшее британское командование разрабатывают план, который, по их мнению, должен способствовать окончанию второй мировой войны уже к рождественским праздникам. В соответствии с этим планом в оккупированную фашистами Голландию забрасывается самый большой в истории воздушный десант — 35 тысяч человек. Среди огромной массы солдат есть (   Читать дальше...   )Производство: ВеликобританияЖанр: Приключения, боевик, военныйРежиссер: Колин ТигаАктеры: Билли Зейн, Карел Роден, Майкл Мэдсен, Александр Скарсгард, Томми Флэнеган, Шон Перту ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:103EAA840E05F029F584F56B03D644BEE0BBB8F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185905   (285197) от 25.11.2017
-
-Журнал | Chip [Россия] №13 (декабрь 2017) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:703A7314743039BE48E2B4DF2604C5C0596408D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963528   (285196) от 09.12.2015
-
-Квартирник у Маргулиса. 5 выпуск. Чиж (2015) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня в гостях у Евгения Маргулиса лучший, по его мнению, исполнитель блюза Чиж. В теплой и душевной атмосфере гость квартирника исполнит свои самые известные и любимые песни: Глазами и душой, Глупенькая песня (Ассоль), Солдат на привале, Прогулка по Одессе и многие другие.01. Урал байкер блюз
-02. Глазами и душой
-03. Глупенькая песня (Ассоль)
-04. Два тракториста (БГ)(   Читать дальше...   )Телекомпания: ЧеЖанр: КонцертПродолжительность: 0:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E95F87FF52DCC2CF775CB40067BC03F5DC2DB6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963892   (285195) от 09.12.2015
-
-Sandra - The Long Play (1985) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Electronic, Pop>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. В ночной духоте · In The Heat Of The Night  5:18
-2. На блюдечке... (Семь Лет) · On The Tray (Seven Years)  3:44
-3. Малышка · Little Girl  3:10(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06764854BCC7FD068EE2B1E9EC8F4D68503BC92D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186651   (285194) от 25.11.2017
-
-Урок окончен / Dismissed (2017) WEB-DLRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лукас Уорд - прилежный ученик, отличник, победитель всех шахматных турниров. На пути к цели Лукас не остановится ни перед чем. Самое главное для него, это быть лучше всех. Даже не пытайтесь поставить ему плохую оценку. Лукасу это очень не понравится.Производство: США, BoulderLight Pictures, Making FilmЖанр: Ужасы, ТриллерРежиссер: Бенджамин АрфманнАктеры: Дилан Спроус, Рэндолл Парк, Кристофер Бауэр, Брук Диллман, Рэй Грэй, Кент Осборн, Роуэн Смит, Роберт Лонгстрит, Мэттью Дж. Эванс, Марк КеллиПеревод: Одноголосый закадровый, А.Важенин (BadBajo)Субтитры: ОтсутствуютПродолжительность: 01:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FCDF8D1D2AB950A9E674EA3CDA8000E0A4C5D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186550   (285193) от 25.11.2017
-
-Проекты - VideoHive - Vintage Memories Film Projector - 17651574 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vintage Memories Film Projector - винтажный проект, который идеально подходит для архивных видеозаписей, свадеб, семейных и ретро фотографий, юбилеев, Love story, и т.п.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F14613AEFBEE03765E740FA3CED028325776BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 337345   (285192) от 25.11.2017
-
-Каспер (Трилогия) / Casper (Trilogy) (1995-1998) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм, созданный фирмой Стивена Спилберга и при его участии в качестве исполнительного продюсера. Главный герой фильма — созданное мастерством мультипликаторов маленькое дружелюбное приведение по имени Каспер, не желающее походить на своих хулиганствующих собратьев.
-Его дружба с девочкой-подростком Кэт помогает ей и ее отцу, доктору Харви, справиться с опасностями, (   Читать дальше...   )Каспер, доброе привидение, встречает Венди — маленькую ведьмочку. Скрываясь от вредного волшебника Десмонда, Венди и три ее тетки — Грет, Габби и Фанни — случайно встречают Каспера и его дядюшек — Длинного, Толстяка и Вонючку.Жанр: Ужасы, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Шон МакНамараПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F34B74314D1D72BD5062209EFCAE14C2D0EDB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186613   (285191) от 25.11.2017
-
-World of Final Fantasy (2017) [Multi] (1.0) Repack R.G. Механики
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ловите, Изменяйте и Развивайте! Отправьтесь в волшебное путешествие вместе с близнецами Рейнн и Ланн по бескрайним землям Гримуара. Узнайте тайны прошлого и спасите будущее! Наслаждайтесь очаровательной графикой и ловите, изменяйте и развивайте волшебных существ, составляя их в «башенки». Знаменитые легенды мира Final Fantasy оживают в этой невероятной красочной (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: RPG, Action, Adventure, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4358472D8EBAAB47AA696B6FE31AA6FE55FBDFD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186483   (285190) от 25.11.2017
-
-Здравствуй, папа, Новый год! 2 / Daddy's Home 2 (2017) TS [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_285190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец и отчим, Дасти и Брэд, объединяются, чтобы организовать для своих детей идеальный рождественский праздник. Но их с горем пополам достигнутый нейтралитет оказывается под угрозой, когда к внукам приезжают олдскульный мачо-папаша Дасти и чувствительный и эмоциональный папочка Брэда. Они как нельзя кстати, чтобы превратить Рождество в кошмарный хаос.Производство: США / Huahua Film & Media CultureЖанр: КомедияРежиссер: Шон АндерсАктеры: Уилл Феррелл, Марк Уолберг, Мэл Гибсон, Джон Литгоу, Линда Карделлини, Алессандра Амброзио, Оуэн Ваккаро, Скарлет Эстевез, Диди Костин, Коннор УайзПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:29:50Реклама: Присутствуют вставки голосовой и текстовой рекламы!
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:9EAF252518F57792A79F0991E4137D308D2039F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

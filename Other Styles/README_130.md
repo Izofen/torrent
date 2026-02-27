@@ -1,3 +1,61 @@
+###  Публикация: 1065426   (418584) от 23.10.2016
+
+Michael Giacchino - Doctor Strange / Доктор Стрэндж (Original Motion Picture Soundtrack) 2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Sorcerer's Secret (02:38)
+02. The Hands Dealt (02:57)
+03. A Long Strange Trip (02:29)
+04. The Eyes Have It (00:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA85F395227F64A1CE16591D078F66F0171343BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947670   (417967) от 17.10.2015
+
+Bernward Koch - Remembering (2015) [MP3|320 кб/с]<New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remembering
+02. New Morning
+03. My Secret
+04. Over the Fields(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C508E49CF2331B7668B3D9382775A7132EAE785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947456   (417867) от 17.10.2015
 
 Eric Clapton - Music From The Motion Picture Soundtrack RUSH (1992) [FLAC|image+.cue]<Rock, Blues Rock>
@@ -692,64 +750,6 @@ Johan Onvlee - Relaxation With Guitar (1998) [FLAC|Lossless|tracks + .cue] <Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27F1BD0CC548E8C055A90AF37A168989125B665B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251921   (410963) от 04.10.2018
-
-VA - Country Covers (2018) [MP3|320 Kbps] <Country, Pop, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willie Nelson - A Song for You
-02. Angela Hacker - I Can't Make You Love Me
-03. Buck Owens - When I Need You
-04. Tamra Rosanes - Always On My Mind(   Читать дальше...   )Жанр: Country, Pop, FolkПродолжительность: 01:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E5E5ADFF64474DED1CF10156E6BEE3AD373E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252310   (410835) от 04.10.2018
-
-Nature Sounds Nature Music - Zen One: Relaxing Vibes For Sleep & Yoga & Meditation (2018) [FLAC|Lossless|WEB-DL|tracks] <New age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Brahma Journey (Loopable) (Original Mix)	20:00
-02.	Open Chakra (Original Mix)	7:20
-03.	Om Sleep (Original Mix)	7:00
-04.	Natural Vibrations (Original Mix)	8:20(   Читать дальше...   )Жанр: New age, Meditative, RelaxПродолжительность: 01:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F28B4AE6F29210E2B148B448C19A38729B72BA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 959804   (312406) от 26.11.2015
+
+Deep Forest - Boheme (1995) [FLAC|tracks+.cue]<New Age, Ambient, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anasthasia (1:48)
+02. Bohemian Ballet (5:14)
+03. Marta's Song (4:12)
+04. Gathering (4:38)(   Читать дальше...   )Жанр: New Age, Ambient, FolkПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2476CAC549764D2B3F158A50580B3D02C2F3529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183061   (312332) от 12.11.2017
+
+VA - We Love Latin 2017 (Only Djs Extended Versions) [MP3|320 Kbps] <Latin Dance, Reggaeton, Dancehall>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yero Company – Pa Que Bailes (Original Mix) (feat. Robe) 02:56
+02. DJ Tao – Ona-Nana (Original Mix) 02:25
+03. Danilo Orsini – Con To’ (Extended Mix) (feat. Shainy El Brillante) 05:21
+04. Biou – Suena La Pista Asi (Extended Mix) 05:00(   Читать дальше...   )Жанр: Latin Dance, Reggaeton, DancehallПродолжительность: 01:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FE15FCED75B7008E26403D6A2F75FFA981D35D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182841   (312206) от 12.11.2017
 
 VA - Disco Dancer (OST Танцор диско) (1982) [MP3|320 Kbps] <OST>
@@ -693,64 +751,6 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:101A71656D2EEA8D706B7B0A0796AFB5AAB80C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260608   (307615) от 09.11.2018
-
-Bernward Koch - Touched by Love (2016) Compilation [FLAC|Lossless|tracks + .cue] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking through Clouds (2:43)
- 02. Touched by Love (3:26)
- 03. Long Way Home (4:15)
- 04. Back to Myself (3:49)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72AA7E88FBA3EADF0175ADDEDC4C0F8C2BAFF437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333138   (307496) от 23.10.2019
-
-The O'Neill Brothers - Calming Piano for Comfort (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307496.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Meditation 05:18
-2. Remembering When 05:45
-3. Farewell	04:21
-4. Snowflakes 04:15(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49C8E1FE328362F7AF3B7DD9445F62E35ED4EE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

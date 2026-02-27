@@ -1,3 +1,31 @@
+###  Публикация: 1452822   (1027303) от 08.03.2021
+
+Udemy, Chris Sikes |  Red Team Ethical Hacking - Beginner (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите знания, чтобы стать оператором Red Team в доменах Windows.
+Узнайте, как применять базовые тактики после эксплуатации в доменах Windows, такие как перечисление, боковое перемещение, локальные / удаленные эффекты, настойчивость, уклонение и многое другое!
+Этот курс научит вас тактике Red Team в очень практичном и практическом подходе! С более чем 30 лекциями (   Читать дальше...   )Производство: UdemyЖанр: Сетевая безопасностьЯзык озвучки: АнглийскийПродолжительность: 03:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A562DBD43A59DF590AA9BA4BDABEF56D6119A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452952   (1027302) от 08.03.2021
 
 Udemy, SS Code Academy |  Java 2021: Complete Java Masterclass: Zero to Hero Programming (2021) PCRec [En / En Sub]
@@ -681,35 +709,6 @@ Udemy, Maher Haddad | Network Automation on MikroTik using Python (2020) PCRec [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F55650E18861972C3EFE378B219C2AE255B9E0F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454190   (1026509) от 13.03.2021
-
-Udemy, Khaled Alhaibi | Mikrotik Vpn Tunnels Real Labs With OpenVpn, pptp, 2tp,sstp (2019) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026509.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы узнаете:
-что такое vpn
-open isp закрытые порты понимание переадресации портов, запуск порта, зона DMZ
-как мы можем реализовать vpn в Real Labs, используя общедоступный IP-адрес и динамический DNS (DDNS)(   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 02:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5632ADBCFE5EF1998CDC696AAEF33E4DC82C102F
 ```
 
 https://mybot314.ru/tekegram_catalog/

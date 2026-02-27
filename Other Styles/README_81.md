@@ -1,3 +1,61 @@
+###  Публикация: 1027059   (700322) от 17.06.2016
+
+Thomas Newman - Finding Dory / В поисках Дори (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelpcake (00:46)
+02. Finding Dory (Main Title) (00:55)
+03. Lost at Sea (01:36)
+04. One Year Later (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5B50077665470F832B4501984F2E10822A18A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026906   (700321) от 17.06.2016
+
+Brian Tyler - Now You See Me / Иллюзия обмана (Complete Motion Picture Score) (2013) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now You See Me (02:02)
+02. The Team (02:45)
+03. Opus NYSM (02:28)
+04. Chess Moves (03:56)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:21:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2C6EF32840B8A5E186C267AF0568D9687E4E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026692   (700207) от 17.06.2016
 
 Waterbone - (1997-2015) (5 альбомов) [MP3|320 кб/с] <New Age, Enigmatic, World>
@@ -693,64 +751,6 @@ Thomas Wander & Harald Kloser - Independence Day: Resurgence / День неза
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:141DD01A18545DCDEEADBBFBB95DC3DD665B83DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133416   (695124) от 12.05.2017
-
-Micki Free - The Native American Flute As Therapy (2016) [MP3|320 Kbps] <New Age, World, Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Candle Light
-02. The Healing Bath
-03. Lavender Kiss
-04. The Native American Flute as Therapy(   Читать дальше...   )Жанр: New Age, World, Native AmericanПродолжительность: 01:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A387A52E2DF2066CA7080EA27E6D4E3057AFD15F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027842   (694834) от 20.06.2016
-
-Kavin Hoo - Chi: Music for Balance & Relaxation (2011) [FLAC|Lossless|tracks + .cue] <New age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Footsteps in the Snow [00:08:13]
-02. Melodies from the Night Fisherman [00:02:45]
-03. Jade River Sampan [00:04:03]
-04. Peach Garden [00:05:53](   Читать дальше...   )Жанр: New age, Meditative, RelaxПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F749E95BBABA092B4FE33AB77465A4DE373C353E
 ```
 
 https://mybot314.ru/tekegram_catalog/

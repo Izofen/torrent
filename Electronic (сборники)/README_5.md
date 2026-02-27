@@ -1,3 +1,61 @@
+###  Публикация: 1451523   (1028238) от 03.03.2021
+
+VA - EDM Neon Hypnotic (2021) [MP3|320 Kbps] <EDM, House, Techno, Electro, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неоновые люди, неоновые предметы, неоновые танцы. Флуоресцирующие лица, летающие неоны всех цветов радуги, полумрак и манящий клубный саунд! А главное, стойкое ощущение чего-то совершенно инопланетного, загадочного и фантастического.001. Alex Dolby - White River
+002. Al Mar - Eleven Seconds
+003. Space Afrika - Untitled
+004. Ed Bronx - Dark Matter(   Читать дальше...   )Жанр: EDM, House, Techno, Electro, ClubПродолжительность: 11:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:356B5799DC88079996B71484EBCD56E9847D5C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451790   (1028233) от 03.03.2021
+
+VA - Beatport Bassline: Electro Sound Pack #251 (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию убойный драм замес в 251-й подборке электро саунда от Beatport, который наверняка разбудит Вас от зимней спячки. Пора обновить свою медиатеку и встречать грядущую весну во всеоружии001. Da Candy - Teknoboom
+002. Echo Brown - Tug O War
+003. Surge - No 66
+004. Delta Heavy - Exodus(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 09:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43398B119047117CB6EFDF4C1F597AE334DEFE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451786   (1028231) от 03.03.2021
 
 VA - City Form: Progressive Trance (2021) [MP3|320 Kbps] <Trance, Progressive>
@@ -687,64 +745,6 @@ VA - Glow Party: Trance Favorites (2021) [MP3|320 Kbps] <Trance, Uplifting, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5865BBAD625CDFFF5E0C02C72864622F7CE13C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455980   (1025470) от 20.03.2021
-
-VA - Record Super Chart 20.03.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
-02. Tiesto - The Business (2:44)
-03. Phao KAIZ Remix - 2 Phut hon (3:03)
-04. Meduza, Dermot Kennedy - Paradise (2:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE11E49D49653C0F7F3EA417AD6B543650CE8BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455676   (1025394) от 20.03.2021
-
-VA - Remixes 2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025394.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jason Derulo, Adam Levine, David Guetta - Lifestyle (David Guetta Slap House Mix) (2:15)
-002. Dynoro, Outwork, Mr. Gee - Elektro (2:22)
-003. Dynoro, Fumaratto - Me Provocas (2:27)
-004. Halsey, Tiesto - You should be sad - Tiesto Remix (2:25)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFAC978CD42803A54BAAD9CEC937A8F6AA60CE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

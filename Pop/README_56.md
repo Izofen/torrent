@@ -1,3 +1,294 @@
+###  Публикация: 1372821   (883154) от 04.04.2020
+
+The Kelly Family - 25 Years Later (2020) Live [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Why Why (Live 2019)
+02. Fathers Nose (Live 2019)
+03. First Time (Live 2019)
+04. Baby Smile (Live 2019)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B014B3FB0BA2FEB06CEE0AB98CF919A5E7CB7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372914   (883141) от 04.04.2020
+
+Весёлые Ребята - Музыкальный Глобус (1979/ 2008) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Уходило лето (2:54)
+02. Белладонна (5:59)
+03. Люба-Любовь (3:36)
+04. Никогда не поверю (4:42)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE937B08A9049B7FF3526CA60692C0E71B3FC2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995963   (882944) от 12.03.2016
+
+Tracy Spencer - Tracy (1987) [MP3|320 кб/с] <Synth Pop, Disco-Funk, Italo Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Back
+02. Tonight
+03. Never Too Late
+04. Dancing In The Moonlight(   Читать дальше...   )Жанр: Synth Pop, Disco-Funk, Italo DiscoПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9C0BA2EAD05ECD986EEDADF630D03674161DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995691   (882844) от 12.03.2016
+
+VA - Got Hits! Perfect Pop Album (2003) [FLAC|Lossless|tracks + .cue] <RnB, Swing, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Can’t Get You Out of My Head (3:51)
+02. Justin Timberlake - Like I Love You (Basement Jaxx vocal mix) (4:29)
+03. Aaliyah - Try Again (4:46)
+04. DJ Sammy & Yanou feat. Do - Heaven (3:53)(   Читать дальше...   )Жанр: RnB, Swing, EuropopПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F05296EDD8D1BD5044C0DF0D63159AB531B0062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871109   (882698) от 20.02.2015
+
+VA - Pure... Crooners (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Vocal Pop, AM Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882698.jpg" />
+</div>
+
+
+###  Подробнее
+
+По многочисленным просьбам одноклубников ускоряю публикацию всего того что есть у меня в серии Pure... Вот дошла очередь до Crooners, а ведь в переводе с английского это просто эстрадные певцы. Как то не принято у нас называть зарубежных поп-заезд эстрадными певцами. Хотя многие из современных великих подходят под это определение.
+Вот и здесь собраны звезды - великие (   Читать дальше...   )CD1:
+01. Andy Williams - Where do I begin (Love story)  (3:12)
+02. Tony Bennett - A taste of honey  (2:54)
+03. Perry Como - Magic moments  (2:40)(   Читать дальше...   )Жанр: Pop, Vocal Pop, AM PopПродолжительность: 03:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4759763F29BC53CF57EA4DC5785E711DDA4AB4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995913   (882582) от 12.03.2016
+
+Tanita Tikaram - Closer To The People (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Love Train
+02. Cool Waters
+03. The Way You Move
+04. Closer To The People(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69EB02F10F3295667DC0FD0414F7F4920B30699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495262   (882463) от 11.09.2021
+
+Uropa - Harmony (1980) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmony (6:40)
+02. She Was Fine (4:17)
+03. Turn Me Off - Turn Me On (6:29)
+04. Feeling High (8:35)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B3CA53AC6ED6B5FD159611731CFEB9A4F57CEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495257   (882299) от 11.09.2021
+
+Lady Gaga - Dawn Of Chromatica (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Remixes, Electropop, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice (LSDXOXO Remix)
+02. Stupid Love (COUCOU CHLOE Remix)
+03. Rain On Me ft. Ariana Grande (Arca Remix)
+04. Free Woman (Rina Sawayama & Clarence Clarity Remix)(   Читать дальше...   )Жанр: Remixes, Electropop, Pop, HouseПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B774A3C13A283955FF7576F99749431FA59A994E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493682   (882256) от 11.09.2021
+
+Lady Gaga - Dawn Of Chromatica (2021) [MP3|320 Kbps] <Pop, Electro, Dance-Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice (LSDXOXO Remix) (Feat. LSDXOXO) 2:40
+02. Stupid Love (COUCOU CHLOE Remix) (Feat. Coucou Chloe) 2:37
+03. Rain On Me (Arca Remix) (Feat. Ariana Grande, Arca) 4:23
+04. Free Woman (Rina Sawayama & Clarence Clarity Remix) (Feat. Rina Sawayama, Clarence Clarity) 3:54(   Читать дальше...   )Жанр: Pop, Electro, Dance-Pop, HouseПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCB3DE7A0E741B9414E3A28339BFBEF7D8D48A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373026   (881816) от 05.04.2020
+
+Юрий Антонов - Крыша дома твоего / Музыка и песни из кинофильмов (2002) [FLAC|Lossless|image + .cue]<Pop Rock, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_881816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop Rock, RetroПродолжительность: 01:18:45Трэклист: Крыша дома твоего.
+01. Жизнь
+02. Вот как бывает
+03. Море(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1854ED00A85E4F5D4FAC0969E7F1EF51A64E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104046   (881694) от 14.02.2017
 
 VA - Sanremo 2017. Inediti & Cover dei campioni en nuove proposte (2017) [MP3|320 Kbps] <Pop>
@@ -455,296 +746,6 @@ VA - Great Duets (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF252757D6F9088529234B77168DB68122D642B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373399   (880221) от 06.04.2020
-
-DJ BoBo - Remixes & Unreleased Tracks (2020) [MP3|320 Kbps] <Europop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ BoBo feat. Patrizia Manterola - Angel (Spanish Version) 3:23
-02. DJ BoBo - Bring The Beat Back 4:39
-03. DJ BoBo - Can You Hear Me 3:57
-04. DJ BoBo - Chihuahua (Extended Version) 3:56(   Читать дальше...   )Жанр: Europop, DanceПродолжительность: 01:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078E08D16F4C8C7693370BB0C0930C70FFCC1543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373216   (880102) от 06.04.2020
-
-Billie Eilish - When We All Fall Asleep, Where Do We Go? (2020) Target Exclusive Edition [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. !!!!!!! (0:14)
- 02. Bad Guy (3:14)
- 03. Xanny (4:04)
- 04. You Should See Me in a Crown (3:01)(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D292ED3FA67FF48207BF0D297DB8434D7B045C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373035   (880084) от 06.04.2020
-
-Eruption - Disco Stars (2019) Bootleg [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 One Way Ticket 3:37
-02 Raising My Family 3:41
-03 Mr. Pilot Man 3:36
-04 Step Runnin 3:08(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6C3493D18589874D7C940211734CD87F664287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373229   (880050) от 06.04.2020
-
-Billie Eilish - Dont Smile At Me (2018) EP, Japan Limited Edition [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. COPYCAT (3:15)
- 02. idontwannabeyouanymore (3:24)
- 03. my boy (2:51)
- 04. watch (2:58)(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3061AD4B5EEF99ED9AE753BD91EDEB71F8D93FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373409   (879943) от 06.04.2020
-
-VA - Home Office Motivation (2020) [MP3|320 Kbps] <Eurodance, Euro-House, Other>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echosmith - Cool Kids 3:58
-02. Kylie Minogue - Can't Get You Out Of My Head 3:52
-03. Cody Simpson - La Da Dee 3:17
-04. The Veronicas - Untouched 4:15(   Читать дальше...   )Жанр: Eurodance, Euro-House, OtherПродолжительность: 02:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDDB01B8F591E5C2116D59F23A6D2E51B2A19DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764183   (879623) от 09.03.2014
-
-VA - BBC Radio 1's Live Lounge (2013) Deluxe Version [FLAC|Lossless]<Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ella Eyre; Rudimental -  Waiting All Night  (4:23)
-02. Arctic Monkeys -  Hold On, We're Going Home  (3:20)
-03. Bastille -  Pompeii  (3:28)
-04. Naughty Boy; Sam Smith -  La La La  (3:39)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 03:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4EED9CFA8BBE07EA90FB7772F0758BBB889772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996756   (879402) от 14.03.2016
-
-Delta Goodrem - Child Of The Universe (2012) [MP3|320 кб/с] <Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Child Of The Universe (04:13)
-02. Touch (04:22)
-03. Wish You Were Here (04:37)
-04. Knocked Out (03:50)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05609324BAC6E792AF7649EF500CDECB91920791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996335   (879285) от 14.03.2016
-
-Yazz - Wanted (1988) [FLAC|Lossless|image + .cue] <Dance, Funk, Acid House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Only Way Is Up
-02. Where Has All The Love Gone?
-03. Got To Share
-04. Fine Time(   Читать дальше...   )Жанр: Dance, Funk, Acid HouseПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA7A5DD802E2E02AEABA57B23A8317E18BF6E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996298   (879087) от 14.03.2016
-
-Bomb The Bass - Into The Dragon (1988) [APE|Lossless|image + .cue] <Dance, Acid House, Hip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Dis (7' U.S. Mix) (4:23)
-02. Megablast Rap (Version feat. Merlin) (6:29)
-03. On The Cut (4:07)
-04. Don't Make Me Wait (7' Mix feat. Lauraine) (3:44)(   Читать дальше...   )Жанр: Dance, Acid House, Hip HopПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983F428E342510EEC286E98674C58DF1A01AD3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996592   (878969) от 14.03.2016
-
-OQJAV (Окуджав) - Марта (2016) [MP3|320 кб/с] <Dance pop, New Wave, Synthpop, Indie Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы закинем якоря
- 02. Шапочки
- 03. Хаски
- 04. Валерий Павлович(   Читать дальше...   )Жанр: Dance pop, New Wave, Synthpop, Indie PopПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336FEBBDED56259DDC9CDBD437833143E0A666E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

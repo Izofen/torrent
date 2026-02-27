@@ -1,3 +1,61 @@
+###  Публикация: 1805542   (12150) от 08.07.2025
+
+Brulе - We the People (A Tribal Gathering Of Music) (1996) CD, Album [FLAC|Lossless|tracks + .cue] <Native American, Tribal, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacred Praises    [0:04:05.15]
+02. Brave Hearts    [0:04:33.43]
+03. Buffalo Moon    [0:05:23.28]
+04. Dream Shield    [0:03:51.09](   Читать дальше...   )Жанр: Native American, Tribal, New AgeПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0E123CCB75332D99142778302F3CE726A9B0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805816   (12028) от 09.07.2025
+
+Joan Baez - Gone From Danger (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Mermaid    [0:04:22.72]
+02. Reunion Hill    [0:04:08.43]
+03. Crack in the Mirror    [0:05:49.02]
+04. February    [0:04:11.25](   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749FF62F2BF88DC1119DF9A8B5A58B27141B04A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805810   (12025) от 09.07.2025
 
 VA - 101 Greatest Country Hits - Vol. Two: Country Sunshine (1994) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>

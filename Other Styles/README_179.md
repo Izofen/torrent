@@ -1,3 +1,64 @@
+###  Публикация: 739382   (147124) от 28.12.2013
+
+Maximilien Mathevon - Lotus Flower (2013) [MP3|256 кб/с]<New age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(08:48) 1. Snowflakes
+(08:38) 2. White-Clad Stillness
+(04:48) 3. A Warm Home
+(07:04) 4. The Christmas Tree
+(08:40) 5. Ice Skating
+(06:02) 6. The Holy Night
+(18:40) 7. Heart of WinterЖанр: New age, Relax, MeditativeПродолжительность: 01:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4EABC61AE59BF62C905BA003ABB0C935C0F0AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271542   (147113) от 25.12.2018
+
+VA - Romantic Christmas Love Songs and Romantic Music Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Jazz, Easy Listening>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 L'amore perduto (From La finestra di fronte) - Andrea Guerra 03:25
+02 Once and Again (From La volpe dalla coda di velluto) (Vocal) - Piero Piccioni, Shawn Robinson 04:35
+03 Last Tango in Paris (From Last tango in Paris - Ultimo tango a Parigi) (Titles) - Gato Barbieri 03:24
+04 Why Did She Choose You (From Last Tango in Paris - Ultimo tango a Parigi) - Gato Barbieri (   Читать дальше...   )Жанр: Soundtrack, Jazz, Easy ListeningПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B221FC1ACC55CF611814FE691EAA484EB5C18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519716   (147092) от 25.12.2021
 
 Blackmore's Night - Winter Carols (2006) Deluxe Edition, Remastered, 2021, Ear Music [FLAC|Lossless|tracks + .cue] <Folk Rock>
@@ -719,61 +780,6 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF0BE8BFA6F0CAFB2172053ECF2B8E79B3C95C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739606   (144382) от 29.12.2013
-
-Arthur Lyman - With a Christmas Vibe (1996) [FLAC|Lossless]<Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Easy Listening, InstrumentalПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC91CCEDF32896E9BB7888C2BF567FDC7B2BF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739427   (144328) от 29.12.2013
-
-David Arkenstone - Celtic Chillout (2010) [FLAC|Lossless]<New Age, Lounge, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call of the Sea (5:01)
-02. Beyond the Ruins (5:16)
-03. The Long Road (5:11)
-04. Carrickfergus (4:44)(   Читать дальше...   )Жанр: New Age, Lounge, CelticПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7666DD192AA59DD5E14A9C95D60D76929009B9A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

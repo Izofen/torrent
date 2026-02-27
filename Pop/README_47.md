@@ -1,3 +1,290 @@
+###  Публикация: 1095694   (922650) от 22.01.2017
+
+Bamboo - Bamboo (1979) LP (Side project of Supermax) [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий сайд-проект "Supermax". Аранжировщик, продюсер, бас, клавишник и автор песен - Kurt Hauenstein.01. Take What You Want  (3:55)
+02. Hey, Hey, Hey!  (3:55)
+03. Cool Me Off  (5:08)
+04. Find Youtself  (3:58)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC583971A568E94B27B8F49E4D35969223594B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095843   (922580) от 22.01.2017
+
+Silver Convention - 5 Albums (1975-1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Silver Convention - немецкая группа (Сильвер Конвеншн), участники конкурса Евровидение 1977 и фестиваля «МИДЕМ-75». Стала одним из основоположников "мюнхенского звучания" стиля евро-диско, а его участница Penny McLean, которая параллельно работе в группе развивала свою сольную карьеру, была первой "королевой евро-диско".Список альбомов:
+1975 - Save Me
+1976 - Get Up And Boogie!
+1976 - Madhouse(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 03:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968BCF883FB8EE30D60FEB21A426E73F297B05CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987933   (922568) от 19.02.2016
+
+VA - DJ Hits (1998) (S&V #01/99) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dana International - Diva (3:02)
+02. TNN - La Cucamarcha'98 (3:28)
+03. Whigfiel - Baby Boy (3:34)
+04. T-Spoon - Sex On The Beach (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2087A9928FE5C82CDBBAD45AF744541C873FED01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988170   (922472) от 19.02.2016
+
+VA - Number One Party '70 '80 Compilation (2003) 2CD [FLAC|Lossless|image + .cue] <Italo-Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gazebo - I Like Chopin (01:39)]
+02. Delegation - Put A Little Love On Me (02:00)
+03. Radiorama - Desire (01:51)
+04. Radiorama - Vampires (02:01)(   Читать дальше...   )Жанр: Italo-Disco, FunkПродолжительность: 00:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317C2817C9EF25D2E52C9F0962D7069B60950B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366748   (922436) от 12.03.2020
+
+Yumi Zouma ‎ - Yoncalla (2016) Japanese Edition [FLAC|Lossless|tracks + .cue] <Dream Pop, Indie, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barricade (Matter of Fact)
+02. Text From Sweden
+03. Keep It Close to Me
+04. Haji Awali(   Читать дальше...   )Жанр: Dream Pop, Indie, ElectronicПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE287CA5CAC3564D0A492C8116B61F90D8E9F3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095945   (922377) от 22.01.2017
+
+VA - 2017 Grammy Nominees (2017) [FLAC|Lossless|tracks + .cue] <Pop, Dance, Club>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922377.jpg" />
+</div>
+
+
+###  Подробнее
+
+59-я ежегодная церемония вручения Grammy Awards пройдет 12 февраля 2017 года. Телесеть CBS будет транслировать шоу в прямом эфире из Staples Center в Лос-Анджелесе. На церемонии будут определены лучшие записи композиций и альбомов года в различных номинациях (записанных или воспроизведенных с 1 октября 2015 года по 30 сентября 2016 г.). Номинанты были объявлены 6 (   Читать дальше...   )01. Beyonce - Don't Hurt Yourself (Feat. Jack White)  (3:54)
+02. Twenty One Pilots - Stressed Out  (3:11)
+03. Sia - Cheap Thrills (Feat. Sean Paul)  (3:42)
+04. Drake - Hotline Bling  (3:48)(   Читать дальше...   )Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C46E910EB4429E5CAA1656A6AC7F3CD4BBBC3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366738   (922359) от 12.03.2020
+
+Yumi Zouma - Truth or Consequences (2020) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely After (03:40)
+02. Right Track / Wrong Man (02:56)
+03. Southwark (03:22)
+04. Sage (03:01)(   Читать дальше...   )Жанр: Dream Pop, Indie, ElectronicПродолжительность: 00:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA0C0A8C4F6943C76AF89FA2936ED791AB8CE7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987723   (922334) от 19.02.2016
+
+VA - Max Mix 30 Aniversario Vol 1, 2 - La Leyenda Del Primer Megamix Espanol (2015) [MP3|320 кб/с] <Disco, Italo-Disco, Italo House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Va - Max Mix 30 Aniversario Vol 1 Megamix (By Mike Platinas) B.P.M. 118-122 (12:30)
+02. Va - Max Mix 30 Aniversario Vol 1 Mix (By Mike Platinas) B.P.M. 124 (13:12)
+03. Va - Max Mix 30 Aniversario Vol 1 Jingles & Effects (03:02)
+04. Italian Boys - Forever Lovers (Extended Vocal Version) (06:10)(   Читать дальше...   )Жанр: Disco, Italo-Disco, Italo HouseПродолжительность: 07:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EDA26359A721F84A052521746968CDC59C0613E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366507   (922240) от 12.03.2020
+
+Mandy Moore - Silver Landings (2020) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’d Rather Lose (03:45)
+02. Save A Little For Yourself (03:39)
+03. Fifteen (04:09)
+04. Tryin' My Best, Los Angeles (04:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23D45153915BAE068BE31299C058764BC4BA882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288505   (921857) от 29.01.2011
+
+Горячие головы - Дискография (2000-2006) [MP3|320 kbps]<Pop,Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop,DanceПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C73913C6207325A59FBED0B98A03FF491B980D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 864075   (921623) от 28.01.2015
 
 VA - Лучшие новинки радиоэфира vol.1 (2014) [FLAC|Lossless]<Pop>
@@ -461,294 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2128B607B35697C68D673C36145958E5CA87B7C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096832   (917628) от 25.01.2017
-
-Olivia Holt - Olivia (2016) EP [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917628.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Phoenix (3:20)
-2. Thin AirЖанр: PopПродолжительность: 00:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77152A1EBA1ECF13AEC5F57A4CF0D82DA4500659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366750   (917487) от 15.03.2020
-
-Yumi Zouma ‎ - Willowbank (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Dream Pop, Indie, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depths, Pt. I (02:50)
-02. Persephone (04:33)
-03. December (03:55)
-04. Half Hour (03:39)(   Читать дальше...   )Жанр: Dream Pop, Indie, ElectronicПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1764FAEBD17D4DE7F900014577CAD82B4422E696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917911   (917388) от 25.01.2017
-
-VA - Pure... Brazil (2010) Box Set, 4CD [FLAC|Track+.cue]<Dance, Pop, Jazz, Rock, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917388.jpg" />
-</div>
-
-
-###  Подробнее
-
-О бразильских мелодиях многие из нас судят по музыкальному сопровождению бразильских же сериалов. Конечно, это большой пласт музыкальной культуры. Но чтоб убедить всех вас в том, что не только сериалы составляют бразильскую музыкальную культуру предлагаю послушать этот сборник от Sony Music Entertainment. Здесь вы услышите и джазовые интерпретации Maysa и представителей (   Читать дальше...   )01. Gal Costa - Garota De Ipanema (Ao Vivo)  (3:42)
-02. Alcione - Garoto Maroto  (4:03)
-03. Candeia e Yvonne Lara - Sou Mais O Samba  (3:15)
-04. Jacob Do Bandolim - Doce De Coco  (2:52)(   Читать дальше...   )Жанр: Dance, Pop, Jazz, Rock, LatinПродолжительность: 03:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CBBA2BCBF1BF10C317B4600EADD44AD08BAF3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366932   (917239) от 15.03.2020
-
-VA - Rock 'n Roll Party Hit Mix (1995) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Rockabilly, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Jones-Twist And Shout (1:31)
-02. Chuck Berry-Roll Over Beethoven (2:18)
-03. Bill Haley & His Comets-See You Later Alligator (2:41)
-04. Eric Lee-High School Confidential (2:25)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516CC9504BEC566C4971CF0623B50D831F7F042A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367085   (917237) от 15.03.2020
-
-VA - Greatest Rock'n'Roll Party (2004) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electric Light Orchestra - Rock And Roll King (3:48)
-02. Katrina & The Waves - Walking On Sunshine (3:58)
-03. Shakin' Stevens - Marie Marie (2:48)
-04. Kenny Loggins - Footloose (3:42)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DCD29EF1DFA7BAFDBADA9736FD8500A26566D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366758   (917231) от 15.03.2020
-
-VA - 80's Gold (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917231.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tina Turner - Steamy Windows
-2. a-ha - Take On Me
-3. Duran Duran - Hungry Like the Wolf
-4. Stevie Nicks - Rooms On Fire(   Читать дальше...   )Жанр: PopПродолжительность: 03:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF2CB0BCD9B3074D3CA4A70F7421D6DFADDDFDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367345   (917227) от 15.03.2020
-
-VA - The Disco Box (1999) Compilation, 4CD [FLAC|Lossless|tracks] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917227.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love’s Theme - Love Unlimited Orchestra [3:35]
- 2. Dancing Machine - The Jackson 5 [2:42]
- 3. Rock the Boat - The Hues Corporation [3:09]
- 4. Honeybee - Gloria Gaynor [3:45](   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 04:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775038262D4BDCF5CFC4549A66AFD836811EA51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757678   (917210) от 16.02.2014
-
-VA - В десяточку! 1-15, 17 (16 CD) (1995-2004) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917210.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Светлана Алмазова - В десяточку (3:12)
-2. Наталья Сенчукова - Кино про любовь (3:54)
-3. Ирина Салтыкова - Серые глаза (3:24)
-4. Диана - Не говори (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CC3092E126F6185A562D33C73A74AA3FEBE46F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989273   (917151) от 22.02.2016
-
-Mimi Page - Breathe Me In (2012) [MP3|320 кб/с] <Alternative Pop, Dream Pop, Trip Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Vanilla Sky
-02. Black Valentine
-03. Colorblind
-04. All I Need(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Trip HopПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2924F0D8B2643F9FD6860EFD5CA937D45EE706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989260   (917110) от 22.02.2016
-
-Mimi Page - The Ethereal Blues (2015) [MP3|320 кб/с] <Alternative Pop, Dream Pop, Trip Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917110.jpg" />
-</div>
-
-
-###  Подробнее
-
-На творчество талантливой и востребованной исполнительницы, автора музыки и текстов оказали влияние такие мэтры, как Nine Inch Nails, Tori Amos, Radiohead, Thomas Newman и Enya.01. Singing in the Dark
-02. The Way
-03. Human Hurricane
-04. Hold Me(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Trip HopПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FFB05A654574F6F1B08E8BB8403121D0B02D32
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,73 @@
+###  Публикация: 743131   (975604) от 08.01.2014
+
+The Gold Star Orchestra - Romantic Classics (2009) [FLAC|Lossless]<Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. A Man Without Love			(03:25)
+02. Somewhere My Love (Lara's Theme)	(03:19)
+03. Ode to Billy Joe			(04:10)
+04. Softly as I Leave You		(02:56)
+05. The Girl from Ipanema 		(03:04)
+06. Autumn Concerto			(03:33)
+07. The Shadow of Your Smile		(03:11)
+08. I've Grown Accustomed to Your Face	(03:31)
+09. By the Time I Get to Phoenix	(04:02)
+10. I Left My Heart in San Francisco	(03:11)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7586F6DF7B577B80C3040C22FE2679312360BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743205   (975602) от 08.01.2014
+
+Dynaudio - Accentuations Guitar Impressions (2007) [FLAC|Lossless]<Audiofile, Test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 Don Ross,Klimbim
+02 Don Ross,Dracula & Friends part. 1
+03 Don Ross,New Born
+04 Take Four Guitar Quartet,Allegro Marciale
+05 Take Four Guitar Quartet,Con Vivacita
+06 Take Four Guitar Quartet,Vivo
+07 Take Four Guitar Quartet,Lento con Tristeza
+08 Take Four Guitar Quartet,Dolce
+09 Take Four Guitar Quartet,Allegro con Spirito
+10 Take Four Guitar Quartet,Prestissimo(   Читать дальше...   )Жанр: Audiofile, ТеstПродолжительность: 01:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13EF887D7DABACD625F4590A1D6515ED3F930355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 743118   (975596) от 08.01.2014
 
 VA - Alle 40 Goed: Easy Listening (2013) 2CD /EMI/ [FLAC|Lossless]<Easy Listening, Oldies, Vocal Jazz>
@@ -768,70 +838,6 @@ Renaud de Vergnette основал компанию Triangle в 1981 году. �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11B1EA4162531D2DDAF38BA4453F722684C6810B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744183   (973215) от 10.01.2014
-
-Naim - The Sampler 6 (2006) [FLAC|Lossless]<Audiofile, Test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Tears Of Joy
-02 Fallen Angel
-03 9,11
-04 Remember The River
-05 Anna
-06 More Than You Know
-07 Voices From Across The Ocean
-08 From The North
-09 Vatan,Homeland
-10 Ballad For Nori(   Читать дальше...   )Жанр: Audiofile, TestПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F656350197FE3D8EC4B8D86E9B7003C0D9A6F62E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357345   (973159) от 04.02.2020
-
-Nicholas Britell - The King / Король (Original Score from the Netflix Film) (2019) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973159.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:29| 01. Ballade in C# Minor: Coronation
-|01:16| 02. Estampie - Eastcheap
-|05:12| 03. Song of Hal: Strings in C# Minor
-|02:14| 04. Tetrachord - War and Fate(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3FB6A51FDFC40FF5400ED90827D3863864DD5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

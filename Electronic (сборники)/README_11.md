@@ -1,3 +1,32 @@
+###  Публикация: 1480271   (1009050) от 28.06.2021
+
+VA - Music Cloud: Synthetic Party (2021) [MP3|320 Kbps] <Electronic, Synthetic, Synthvawe>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009050.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wholf B - Sound Of Silence
+002. Alex Samoylenko - Minimal Illusion
+003. Penelope's - The Cutting Edge
+004. Teslasonic - Nemesis(   Читать дальше...   )Жанр: Electronic, Synthetic, SynthvaweПродолжительность: 11:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAD83841F9A3E7AB752A0F11DB6F16A5749B458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480501   (1009048) от 28.06.2021
 
 VA - Beatport Bassline: Electro Sound Pack #308 (2021) [MP3|320 Kbps] <D&b, Jungle, Dub Bass>
@@ -716,35 +745,6 @@ VA - Beatport Psy Trance: Sound Pack #321 (2021) [MP3|320 Kbps] <Psychedelic Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D951FFC522B2BD1A8CAAEA6B2316BB7941C534CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486536   (1004602) от 01.08.2021
-
-VA - Beatport Hard Dance: Electro Sound Pack #319 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004602.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lenny Dee - Thunderdome Go Boom
-002. Mike Efex - The Fallen
-003. Sharkey - The Warning
-004. Leighton Smith - Diagnostic(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 08:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D66BA767AA010A49832A955FAD71DF63AE0ACA
 ```
 
 https://mybot314.ru/tekegram_catalog/

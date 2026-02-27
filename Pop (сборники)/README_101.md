@@ -1,3 +1,148 @@
+###  Публикация: 1079640   (292150) от 05.12.2016
+
+VA - Хитовый драйв. Музыкальный заряд. Часть 7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292150.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Onerepublic Feat. Peter Gabriel - A.I. 5:10
+002.Serpo & Dj Boor Feat. Женя Юдина - Небо Это Ты 3:06
+003.My Dear Addiction - Kill The Silence 3:51
+004.Sputnik Project & Andry Makarov - Медленно Таешь 4:00(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B181F3DB3B30CC96C804AA2376EC706C8277A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079338   (292141) от 05.12.2016
+
+VA - Аппетитные новинки зимних супер хитов (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292141.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Filatov & Karas feat. Masha - Лирика 2:56
+002.John Newman Feat. Charlie Wilson - Tiring Game 3:24
+003.Elvira T - Дежавю 3:56
+004.Moyyo - Пить & Танцевать 3:03(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC167622286D493603EFA5780A7F3BAD2CAFC25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079317   (292137) от 05.12.2016
+
+VA - Создай движение. Заводная попса. Зарубежный (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292137.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Melvv & Moonzz - Goodbye 2:45
+002.Shawn Mendes - No Promises 2:46
+003.Reea feat. Akcent - Rain 3:06
+004.3 Doors Down - Fell From The Moon 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 06:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DB049FA2E1EB911DF2AC41D8453731353B647B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079325   (292127) от 05.12.2016
+
+VA - Осенняя дискотека по-русски. Сборник 6 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292127.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Базиль - Мирными Войнами 2:53
+002.Инфинити - Как Тебя Звать 3:14
+003.Ксения Аксенова - Белые Крылья 4:29
+004.Alien24 - Я Не Железный 4:12(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D8E68149A33487584B242D06D5C9C4D1CB143F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079454   (292064) от 05.12.2016
+
+VA - Зимний снегопад хитов (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292064.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Т.Овсиенко - Новый год.mp3
+002. Quest Pistols - Белая стрекоза любви.mp3
+003. Евгений Росс - Белый снег за окном.mp3
+004. Наталия Власова - Зимой.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 06:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8E4B9336F7A64F1E5BDE965A9C69DA9E4A3F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185624   (291596) от 22.11.2017
 
 VA - Русская Дискотека ХХ Века от Ovvod7 - 025 (2017) [MP3|320 Kbps]<Pop>
@@ -600,151 +745,6 @@ VA - Супер 100-ка Музыкальной дискотеки 50х50 (2015)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D9F2C3734BA30EF7865D4DCD695B4AE2CCFEC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081286   (282694) от 10.12.2016
-
-VA - Billboard 2016 Year End Hot 100 Songs (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282694.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Justin Bieber - Love Yourself 3:54
-002. Justin Bieber - Sorry 3:21
-003. Drake - One Dance 2:54
-004. Rihanna - Work 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1DC1F0FDA0DFDEF883E4228E51C266F781AFA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336021   (282579) от 05.11.2019
-
-VA - Paradise Island: Cruise Musical (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282579.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ray & Snyder - I Want You Back
-002. Aerotique And Glaceo - Lose It
-003. Ashle.K - Give Me Your Love
-004. Axel Blaze - My Summer Starts Tonight(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E879FB7F4251B923923137AEB1D36A5A7B41EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187006   (282029) от 27.11.2017
-
-VA - ЕвроХит Топ 40 Europa Plus 24.11.2017 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zayn Malik feat. Sia - Dusk Till Dawn
-02. Katy Perry - Roulette
-03. Post Malone feat. 21 Savage - Rockstar
-04. Imagine Dragons - Whatever It Takes(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D45474642181A0994DDB68CFA25CE77FD2A832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264383   (281152) от 23.11.2018
-
-VA - Звёздные фабриканты: Лучшее (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Влад Соколовский - Катя (4:04)
-02. Дмитрий Колдун - Дай мне силу (3:08)
-03. Доминик Джокер - Плачут небеса (4:35)
-04. Зара - Любовь-красавица (4:04)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E8BE899E255CE6DE5EA19A34866F3AA59C75A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264332   (281148) от 23.11.2018
-
-Таисия Повалий - Золотая коллекция (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Верю тебе (3:09)
-02. Два крыла (3:25)
-03. Люблю тебя (3:30)
-04. Солнышко моё (4:06)(   Читать дальше...   )Жанр: PopПродолжительность: 02:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20D99BC85276DBA0008D57146B1428D0E41EBCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,293 @@
+###  Публикация: 1066564   (412087) от 26.10.2016
+
+Наталья Гончарова - Я не блудница (1996) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Второй попытки нет в любви (03:17)
+02 - Прости за моё неверие (03:46)
+03 - Я не блудница (03:10)
+04 - Не судьба (03:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12032E7926376E7675DFF4EB494B858C50232FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413080   (411916) от 02.10.2020
+
+VA - Lazy Morning (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America - Ventura Highway (03:31)
+02. Kate Bush - Army Dreamers (02:54)
+03. Tom Petty - Wildflowers (03:10)
+04. Emmylou Harris - Here, There and Everywhere (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22B3608F97FEB13A48FEE64AE3847D56F33BC2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413020   (411894) от 02.10.2020
+
+VA - Heartbreak Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - That Should Be Me (Album Version) (3:52)
+02. Dean Lewis - Waves (4:00)
+03. OneRepublic - Apologize (Album Version) (3:26)
+04. Whitley - More Than Life (2:55)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084CEC7DEF07994B89632AA4BDC3AEC438512F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413125   (411734) от 02.10.2020
+
+VA - ZYX Italo Disco: Doubles Vol. 1 (2011) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot & Cold - Don't Talk About It (European Version) (6:24)
+02. Bon Ton - Video Killed The Radio Star (Vocal Version) (6:49)
+03. Robert Camero - Lady Surprise (Vocal Version) (5:45)
+04. Maskio - Come On Movin' On (Club Version) (6:59)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0791ADBF454D7E2E0D8C455DAB2F4838008EC3C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412814   (411440) от 02.10.2020
+
+VA - 35 Top Songs For Gym & Weight Lifting 2020 Edition [MP3|320 Kbps] <Euro-Dance, Pop-Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Hush - Anthem (Fitness Version) (04:20)
+02. Radiorama - I'll Be There (Fitness Version) (04:04)
+03. Vanillas - Planet Rock (Fitness Version) (05:20)
+04. Hellen - Live Your Story (Fitness Version) (05:11)(   Читать дальше...   )Жанр: Euro-Dance, Pop-DanceПродолжительность: 02:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BF30B17C610F5518D0F4B04E6C8E64849FF6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948624   (411403) от 20.10.2015
+
+VA - Guilty Pleasures|The Songs You Secretly Love (2011) 2CD [FLAC|tracks + .cue]<Synth-pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Light Orchestra - Sweet Talkin' Woman (3:49)
+02. Daryl Hall & John Oates - Private Eyes (3:36)
+03. The Steve Miller Band - Abracadabra (3:40)
+04. Laura Branigan - Self Control (4:05)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 02:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B2B9C6D0B07198C231D53CC5FBE866377754C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948651   (411380) от 20.10.2015
+
+Вячеслав Малежик -  Ночь в Сан-Франциско (2014) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ловлю полёт твоих шагов
+02. Мадам
+03. Украденное счастье
+04. Не любила(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEB3F5FD2D31E4673B00520F68FD410F8A22F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413037   (411324) от 02.10.2020
+
+Монеточка - Декоративно-прикладное искусство (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411324.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Крошка
+2. Папина любовница
+3. Ириски и риски
+4. Лёд(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D008A7454D365AC5622DD16C3A4A0DB93F2D7BF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948598   (411262) от 20.10.2015
+
+Maroon 5 - Singles (2015) [FLAC|tracks|WEB-DL]<Pop, Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Love (2002) - 3:27
+02. Payphone (feat. Wiz Khalifa) (2012) - 3:51
+03. She Will Be Loved (2002) - 4:14
+04. One More Night (2012) - 3:39(   Читать дальше...   )Жанр: Pop, Pop Rock, Soft RockПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99983FBFEEA6E439B27775F16CA93FE7B7F0B9A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251752   (410979) от 04.10.2018
+
+VA - Latin Party Hits 2018 [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Alicata feat. Giuseppe Alicata - Tu sei la mia vita (Radio Version)
+02. Loona - Summer of Love (Dance Mix)
+03. Outatime - Last Night a DJ Saved My Life (Coma's Danceton Remix)
+04. Ferry G - Bailar Vida (Radio Edit)(   Читать дальше...   )Жанр: Pop, Dance, LatinПродолжительность: 03:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530CF13AD5DADF40C2415D6EFD752D7BFD4785C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563170   (410800) от 20.10.2015
 
 Ace Of Base - 25 Best Songs (2012) [MP3|320 кб/с]<Pop,Eurodance>
@@ -452,294 +742,6 @@ VA - Italian Lover Sexual Hits (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05A5F183A3D86D0938A8CDB0887510F343B52012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948718   (409035) от 21.10.2015
-
-Pentatonix - 7 альбомов (2012-2015) [FLAC|tracks|WEB-DL]<Pop, A Cappella>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pentatonix (сокращенно PTX) — американская а капелла группа родом из Арлингтона, штат Техас, состоящая из пяти вокалистов: Скотт Хоинг, Митч Грасси, Кирсти Мальдонадо, Ави Каплан и битбоксера Кевина Олушола.
-Pentatonix не имеет конкретного музыкального направления, так как получает влияние от различных направлений, таких как поп-музыка, дабстеп, электро, регги, хип-хоп (   Читать дальше...   )Жанр: Pop, A CappellaПродолжительность: 04:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09AAB235E67557F4250B7DD05AF211942F84A20E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168576   (408884) от 24.09.2017
-
-V.A - Top Ten (1998) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Frozen (Madonna)
-02.Torn (Natalie Imbruglia)
-03.My Heart Will Go On (Celine Dion)
-04.Tell Him (Barbara Straisend & Celine Dion)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E4CA99D24C2382040C637A842296FD651534A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168584   (408848) от 24.09.2017
-
-Aleph - Black Out (CD, Album) (1988) [MP3|320 Kbps] <Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Brother (4:34)
-02. Fly To Me (5:37)
-03. Check It Up (4:05)
-04. Just For Love (6:09)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57007AE8D7BE69C485F6EC332416976A99EDBEC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573871   (408799) от 02.09.2022
-
-Ken Laszlo - Greatest Hits & Remixes Vol. 2 (2022) [OGG Vorbis|485Kbps] <Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Hey Guy	3:21
-02. Tonight	4:10
-03. Black Pearl	4:06
-04. Glasses Man	3:40(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25283DBE153C83D165CB89AE5C776054D95E2A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573796   (408740) от 02.09.2022
-
-Sandra - Stay In Touch (2012), (2CD) [OGG Vorbis|485 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay In Touch
-02. Infinite Kiss
-03. Between Me And The Moon
-04. Maybe Tonight(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41ACF15E4A9842163282E8A9418F9F0B8DE2359F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168619   (408727) от 24.09.2017
-
-Fergie - Double Dutchess (2017) Target Exclusive [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hungry (feat. Rick Ross)
-02. Like It Ain't Nuttin'
-03. You Already Know (feat. Nicki Minaj)
-04. Just Like You(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429ED27C96765A33A2630023961B484C1B77031D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325760   (408702) от 17.09.2019
-
-Michael Sembello - Bossa Nova Hotel (1983) LP [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Automatic Man (4:13)
-02. First Time (3:04)
-03. Cowboy (3:34)
-04. It's Over (4:56)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E689F12CC78B6B134FB666F83DCF2B8E5485233B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573784   (408661) от 02.09.2022
-
-The Flirts - 6LP+2CD Albums (1982-2014) Collection [MP3|320 Kbps] <Electronic, Disco, Hi NRG, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была создана продюсером Бобби Орландо в 1980 году. Он занимался подбором участниц, писал для группы песни и играл на инструментах. В составе группе было три участницы. С каждым новым альбомом в группе происходила смена состава, и через группу прошло более десятка вокалисток, не считая бэк-вокала, в том числе Линда Джо Риццо, позже переехавшая из США в Германию (   Читать дальше...   )Список альбомов:
-1982 - 10¢ A Dance
-1983 - Born To Flirt
-1983 - Flirt With The Flirts(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRG, Synth-popПродолжительность: 05:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F614C8CA61A1244AB9705D6DFF38A3B81AAE05A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413468   (408437) от 04.10.2020
-
-It's Immaterial - House For Sale (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Rain (04:10)
-02. Kind Words (04:44)
-03. Just North Of Here (04:18)
-04. Downriver (06:07)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B9658B35235568423436DFB7547A9099D44096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413507   (408431) от 04.10.2020
-
-VA - Sad Songs 2020 [MP3|320 Kbps] <Pop, Ballads, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Bruises
-02. Jeremy Zucker - Comethru
-03. James Bay - Let It Go
-04. Alessia Cara - River Of Tears(   Читать дальше...   )Жанр: Pop, Ballads, OtherПродолжительность: 02:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63FB579BB8253D59AC380A8D686CF3EF9842243
 ```
 
 https://mybot314.ru/tekegram_catalog/

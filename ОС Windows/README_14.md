@@ -1,3 +1,56 @@
+###  Публикация: 1147094   (610706) от 01.07.2017
+
+Microsoft Windows 10 10.0.15063.0 Version 1703 (Updated March 2017) - Оригинальные образы от Microsoft VLSC [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D23D3941404DA5B86A340EAFAD526DF42239EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296789   (609916) от 18.04.2019
+
+Microsoft Windows 10.0.17763.437 Version 1809 (April 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.437 (Updated April 2019).
+Business Edition и Consumer Edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A205AFF32D22D4CD3F436B649EAADEEBE843E0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545919   (609159) от 22.04.2022
 
 Windows 11 21H2 Build 22000.613 16in1 Integral Edition 2022.4.14 Ru-Multi38 by Ramsey [Multi/Ru]
@@ -629,58 +682,6 @@ Windows 10 — операционная система для персональ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D03A464F4E548CA0AC8B41D8204414A9103E4078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871163   (586598) от 15.07.2015
-
-Обновления для Microsoft Office 2007 RTM до 12.0.6726.5000 [Ru] (Обновляемая)
-
->>ОС Windows
->>Разное (RC, Beta и Service Packs)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник официальных обновлений и исправлений от компании Microsoft для Microsoft Office 2007 с сайта Windows Update. Полный набор (все обновления, которые предлагаются на OU). Для автоматической установки обновлений, я использовал MInstall.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:254706D94EB4CF6A2E5BD1AEA48706212CB4CD0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040593   (586098) от 05.08.2016
-
-Microsoft Windows 10 Multiple Editions 10.0.14393 Version 1607 - Оригинальные образы от Microsoft MSDN [Ukr]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин (   Читать дальше...   )Язык интерфейса: Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB7E24293B6E759A4F229EBD876F42ADA37A217
 ```
 
 https://mybot314.ru/tekegram_catalog/

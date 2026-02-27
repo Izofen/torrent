@@ -1,3 +1,206 @@
+###  Публикация: 1821310   (52288) от 01.10.2025
+
+Dying Wish - Flesh Stays Together (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Belong Anywhere
+02. A Curse Upon Iron
+03. I'll Know You're Not Around
+04. Revenge In Carnage(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1142F8C498DF9C149014E6EA09F0E3A99CF2C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821333   (52240) от 01.10.2025
+
+Michael Schenker Group - Don't Sell Your Soul (2025) earMUSIC [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Sell Your Soul(5:04)
+02. Danger Zone(3:38)
+03. Eye of the Storm(3:57)
+04. Janey the Fox(3:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE568C26BCEFA2694D45E86B943C145D54AF6168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732267   (52221) от 24.06.2024
+
+Babbba - Cabaret Conversation (Vol 2) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart's Confess (3:22)
+02. I Found My Place (3:15)
+03. J Manouche (2:27)
+04. Jazzy Arpy Waves (3:58)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AF705A55AF752BE1F9830E3C676150104587BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673285   (52084) от 02.10.2025
+
+Havok - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Havok — американская трэш-метал группа из Денвера, штат Колорадо. Основана в 2004 году.2009 - Burn
+2011 - Time Is Up
+2013 - Unnatural Selection
+2017 - ConformicideЖанр: Thrash MetalПродолжительность: 04:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC5911D7DEC647FFBAABEF25AFC6494DF00F3F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568153   (52083) от 02.10.2025
+
+Within Temptation - Studio Albums (10 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Within Temptation — нидерландская симфоник-метал-группа. Группа была основана в 1996 году гитаристом Робертом Вестерхольтом и вокалисткой Шарон ден Адель. Музыкальный стиль Within Temptation определяют как симфоник-метал, а на ранних записях — готик-метал. Сама Шарон ден Адель считает, что Within Temptation работают в жанре симфоник-рок с разными влияниями и не являются (   Читать дальше...   )1997 - Enter
+1998 - The Dance (EP)
+2001 - Mother Earth
+2004 - The Silent ForceЖанр: Symphonic MetalПродолжительность: 10:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA239E1F5863B411FA77A4621A3C3498E95F03DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732015   (51921) от 26.06.2024
+
+Любовь Орлова - Актёр и Песня (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Песня Анюты из к/ф ''Веселые ребята''
+02. Марш веселых ребят из к/ф ''Веселые ребята''
+03. Сердце из к/ф ''Веселые ребята''(   Читать дальше...   )Жанр: Pop, SoundtrackПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3A3510C47386AE919C71AB09C915C8164A07AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590988   (51693) от 28.06.2024
+
+Lamb of God (ex-Burn The Priest) - Studio Albums (12 releases) (1999-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lamb of God — американская грув-метал-группа, образовавшаяся в 1994 году в Ричмонде, штат Вирджиния, изначально известная как Burn the Priest, но изменившая название после выпуска дебютного альбома в 1999 году. Коллектив считается лидером новой волны американского хэви-метала.1999 - Burn The Priest
+2000 - New American Gospel
+2003 - As The Palaces Burn
+2004 - Ashes of the WakeЖанр: Groove Metal/MetalcoreПродолжительность: 10:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DCB4B26807F062F94437F5BE11D25F6C86356E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733489   (51618) от 29.06.2024
 
 Rhapsody Of Fire - Studio Albums (16 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
@@ -539,209 +742,6 @@ Jack Magnet Science, Peter Erskine - Future Forecast (2024) [FLAC 24/96|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BE5E416992EFFC5754357538C4A72A0588F770B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737540   (49631) от 18.07.2024
-
-Love Music Zone, Smooth Jazz Music Ensemble - Charming Nights: Sensual Collection of Erotic Instrumental Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexually Twisted (3:14)
-02. Ignite The Spark (3:26)
-03. Provocative Girl (3:35)
-04. Seductive Mind (3:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438604DD7F02ACBA8D54221A9F340BC39379C4E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737607   (49616) от 18.07.2024
-
-Babbba - Cabaret III (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A night in cabaret (17:35)
-02. A brush of light (17:42)
-03. Trodden pathways (18:49)
-04. So discreet (18:09)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E59EDFE5FC2C3463B7728643866157EF60FF96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737542   (49614) от 18.07.2024
-
-Sexual Music Collection, Romantic Piano Ambient - Forbidden Jazz for Night Pleasures (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porn Star Jazz (3:18)
-02. Guru of The Lounge (3:05)
-03. Trigger My Mind (3:06)
-04. I Get Deeper Into Vibe (3:11)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310275C4CDFCEB4B7293EAF642E665E7E1DACAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737609   (49612) от 18.07.2024
-
-Babbba - Extended Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth walking (2:58)
-02. Feels right (2:06)
-03. We're just dancing (2:47)
-04. Feel the groove (2:41)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248601F5E9743AAB197F0560070A5B3FB1AE79D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737612   (49610) от 18.07.2024
-
-Babbba - Groovy Things (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show me your skills (3:15)
-02. Soft groove (5:06)
-03. Do it for me (7:50)
-04. Simple thoughts (4:02)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C04E9DE1C0EE36C0C003E835DDBC03E0528AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737565   (49606) от 18.07.2024
-
-Land Of Talk - Applause Cheer Boo Hiss (3CD) (2007) The Definitive Edition, 2024, One Little Independent Records [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young Bridge (P-Dub Mix) [00:03:18]
-02. Sea Foam (Live At Lee's Palace, Toronto / 2007) [00:03:19]
-03. Speak To Me Bones (P-dub Radio Edit) [00:02:57]
-04. It's Ok (Live) [00:05:09](   Читать дальше...   )Жанр: Indie RockПродолжительность: 3 CD, 01:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCFEE659DC72A721147F4F597ABE8443F6CBD55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737666   (49603) от 18.07.2024
-
-Al Di Meola - Twentyfour (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Rock, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fandango (7:11)
-02. Tears of Hope (7:19)
-03. Esmeralda (4:59)
-04. Capriccio Suite (7:28)(   Читать дальше...   )Жанр: Jazz Rock, FusionПродолжительность: 01:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121715311BC5C24BC701FC2ECA373FCC94030C00
 ```
 
 https://mybot314.ru/tekegram_catalog/

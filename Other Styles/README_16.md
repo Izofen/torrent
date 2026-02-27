@@ -1,3 +1,70 @@
+###  Публикация: 617081   (971264) от 13.02.2013
+
+Richard Ackrill - The Lightness of Being (2012) [MP3|320 кб/с]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971264.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:46) 1. Infinity 
+(7:15) 2. Rising Above It All
+(8:44) 3. Wings To Guide Me 
+(6:48) 4. Rain Walking
+(6:12) 5. Presence
+(6:12) 6. Closer To The Light
+(9:02) 7. Beyond The CloudsЖанр: New ageПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1645612714832C143D1B687C5EEABD7EFC46D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438559   (971234) от 22.01.2012
+
+VA - Seduction Time (2012) [MP3|320 kbps]<Erotic Lounge, Chillout, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.Unclubbed with Abigail Bailey - Touch me (3:19)
+02.Wildboyz feat. Ameerah - The sound of missing you (3:36)
+03.Jes - Love song (Acoustic love mix) (4:19)
+04.Kosmopolitans feat. Crystalia - Wild is the wind (3:49)
+05.Consoul Trainin feat Joan Kolova - Beautiful (Kosmopolitans mix) (3:34)
+06.Polaris feat. Augusta - You are my love (3:38)
+07.Omikron feat. Baby Queen - My favourite game (Kosmopolitans mix) (3:50)
+08.Tereza - Everybody's got to learn sometime (4:02)
+09.Reunited - Sun is shining (Out Of Sight RMX) (4:28)
+10.Mystic Diversions feat. Daniele Vit - Why can't we live together (4:24)(   Читать дальше...   )2012Жанр: Erotic Lounge, Chillout, AmbientПродолжительность: 03:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4B40162B9B21495133BCBFD26AA1E08E2CCEBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616974   (971187) от 13.02.2013
 
 The Nymphs - Language of the Nymphs (2012) [MP3|192 кб/с]<New age, Instrumental, Relax>
@@ -748,64 +815,6 @@ VA - Birds of Prey / Хищные птицы: Потрясающая истор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11081F2F8024B90F4C36DC10BCA6AE62639DDDF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358382   (969632) от 07.02.2020
-
-VA - Birds of Prey / Хищные птицы (Потрясающая история Харли Квинн): The Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969632.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:14| 01. Doja Cat - Boss Bitch
-|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
-|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
-|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74DAA493A30EB4F046789261BD6BF3130376FEDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358227   (969562) от 07.02.2020
-
-VA - Birds of Prey / Хищные птицы (Потрясающая история Харли Квинн): The Album (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969562.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:14| 01. Doja Cat - Boss Bitch
-|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
-|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
-|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311378A72E690E63E71DF6D75707451E779CD6A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

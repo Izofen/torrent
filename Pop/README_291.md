@@ -1,3 +1,293 @@
+###  Публикация: 1666079   (180210) от 03.10.2023
+
+Kylie Minogue - Tension (2023) Deluxe [FLAC|Lossless|image + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_180210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Padam Padam
+02. Hold On to Now
+03. Things We Do for Love
+04. Tension(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8340832DDF2C290DEE2D12B69027F8B92C5DED04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666159   (180161) от 03.10.2023
+
+Wham! - The Singles: Echoes from the Edge of Heaven (2023) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_180161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wham Rap! (Enjoy What You Do?) (3:32)
+02. Wham Rap! (Enjoy What You Do?) (Club Mix) (4:20)
+03. Wham Rap! (Enjoy What You Do?) (Social Mix) (6:45)
+04. Wham Rap! (Enjoy What You Do?) (Unsocial Mix) (6:38)(   Читать дальше...   )Жанр: PopПродолжительность: 02:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5EE587B10702756A82C1C378FE9F6FBD039009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428330   (180025) от 02.12.2020
+
+Patti Brooks - Party Girl (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_180025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Party Girl  (5:57)
+02. My Heart Belongs To You  (6:06)
+03. Cause I Love, Love, Love You  (6:02)
+04. Workin' It Out  (4:19)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A28804E4647312C3D5E1F5B5B617470435E3FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428423   (179968) от 02.12.2020
+
+VA - 50 Highway Drive Evergreen Hits (2020) All Tracks Remastered [MP3|320 Kbps] <Pop, R&B, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_179968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Lee Hooker - Boom Boom (Remastered 2015)
+02. Ray Charles - Hit the Road Jack (Remastered 2019)
+03. Ben E. King - Stand by Me (Remastered 2015)
+04. Bo Diddley - Who Do You Love" (Remastered)(   Читать дальше...   )Жанр: Pop, R&B, Soul, FunkПродолжительность: 02:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B3E5C34BE47E251D4523DC9D19428EA542B395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428486   (179904) от 02.12.2020
+
+Александр Маршал - Высота (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_179904.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Высота
+2. Второй День Рождения
+3. Леха
+4. Ноль Восьмой(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54978FF69C1E04B83D326D2230D8C7A2E28D9FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666742   (178790) от 05.10.2023
+
+VA - Sex Music 2023 [MP3|320 Kbps] <Pop, RnB, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_178790.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Two Feet - I Feel Like I'm Drowning (3:05)
+002. The Weeknd - Earned It (Fifty Shades Of Grey) - From Fifty Shades Of Grey Soundtrack (4:35)
+003. Metro Boomin - Creepin' (3:41)
+004. Stacey Ryan - Fall In Love Alone (3:42)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 05:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00CC462EB7CC9B142D29B7769DFBC6418E726FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428856   (178293) от 04.12.2020
+
+Алсу - Я ХОЧУ ОДЕТЬСЯ В БЕЛОЕ (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178293.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не молчи
+2. Вольтер
+3. Я хочу одеться в белое
+4. К тебе (feat. Микелла)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5160F7440D9E11023451564908AD5A5D826EDA7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428739   (178284) от 04.12.2020
+
+VA - The Greatest Love Songs (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maroon 5 - Memories (3:09)
+02. Lewis Capaldi - Someone You Loved (3:02)
+03. Shawn Mendes, Camila Cabello - Señorita (3:11)
+04. Calum Scott - You Are The Reason (3:24)(   Читать дальше...   )Жанр: PopПродолжительность: 02:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2220D4ED9736A931871712DE17BA18993C1440E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428627   (178276) от 04.12.2020
+
+VA - Disco Made Me Do It, Vol. 4 [MP3|320 Kbps] <Electronic, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mark Brickman - I Don't Know
+02. Platinum City - Nothing but the Music (Dr Packer Remix)
+03. Octavia Lambertis, Sean Scanlan, Pav - Get out of My Own (Yam Who? & Jaegerossa Vocal Remix)
+04. T-Groove, Ania Garvey - Let's Feel Good (Jet Boot Jack Mix)(   Читать дальше...   )Жанр: Electronic, Nu-DiscoПродолжительность: 01:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACFB23297661137FAA7C8537009B0045BAFBFD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428996   (178261) от 04.12.2020
+
+Sade - Promise (1985) Portrait RK40263 [FLAC|Lossless|image + .cue]< Sophisti-Pop, Adult Contemporary R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_178261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is It a Crime (6:22)
+ 02. The Sweetest Taboo (4:38)
+ 03. War of the Hearts (6:48)
+ 04. You're Not the Man (5:11)(   Читать дальше...   )Жанр: Sophisti-Pop, Adult Contemporary R&BПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007953AD302DEDA08CFD39EAA9B6A309A8EF70F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428853   (178232) от 04.12.2020
 
 Игорь Саруханов - С кем ты? (2020) [MP3|320 Kbps] <Pop>
@@ -453,296 +743,6 @@ Robbie Williams - Escapology (2002) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35DE553A26D6587410930BA7DEBBF1858B6C1D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595279   (176123) от 04.12.2022
-
-VA - Ultimate Party Classics Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Unholy (2:36)
-02. OneRepublic - I Ain't Worried (2:28)
-03. The Weeknd - Blinding Lights (3:21)
-04. Post Malone - I Like You (A Happier Song) (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 03:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C047BEF4B7F008F7B9D2C58B785AE04446EF78C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667430   (176060) от 09.10.2023
-
-VA - Solo Divas Volumen 2 (2023) [MP3|320 Kbps] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176060.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mary J. Blige - Family Affair [04:28]
-002. Lady Gaga - Do What U Want [03:37]
-003. Diana Ross - I Still Believe (Purple Disco Machine Remix) [03:40]
-004. Gloria Gaynor - This Love Affair (Single Version) [02:44](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 06:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B865009FBA542E78462F4573DB67248096309558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667435   (176054) от 09.10.2023
-
-VA - Solo Divas Volumen 3 (2023) [MP3|320 Kbps] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176054.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cece Peniston - Finally [04:05]
-002. Chaka Khan - I Put A Spell On You [02:20]
-003. Mary J. Blige - Sweet Thing [03:42]
-004. Whethan - High [03:17](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 06:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2CC980E43F0F25EF994A19277444D7523305189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667426   (176016) от 09.10.2023
-
-VA - Solo Divas Volumen 1 (2023) [MP3|320 Kbps] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Janet Jackson - Together Again [05:01]
-002. Jessie J - Domino [03:51]
-003. Agnes - Here Comes The Night [03:32]
-004. Lorde - Supercut [04:38](   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 06:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8D4DD9B254526BDA4E9064CE7667E346BF632B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429425   (175934) от 07.12.2020
-
-VA - Chilled Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devon Seyward - Flume (3:01)
-02. Thom Cooper - The Only Living Boy in New York (4:01)
-03. Joanie Loves Chachi - No Surprises (3:06)
-04. OJ Austen - Good Riddance (Time of Your Life) (2:01)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F699160A838D2B2CA477A47C484894F0008B465B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595259   (175929) от 04.12.2022
-
-V.A. - 90's Dance Rarities, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Booby Trap - Devotion (I Wanna Give You)
-02. Booby Trap - I'm the Power
-03. Little Lucy - Froggy Afternoon
-04. MPO - Thinking of You(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21D136B84E1846307B4E0F17B8283D316BF3A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667464   (175776) от 09.10.2023
-
-Дискотека Авария - The Best, Part 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Х.Х.Х.И.Р.Н.Р [00:03:21]
-02 - Малинки-Mалинки [00:04:05]
-03 - Небо [00:03:50]
-04 - Яркий я [00:03:42](   Читать дальше...   )Жанр: Dance PopПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA768B205D0D4BC4F66CA368263ED811218EFEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667468   (175745) от 09.10.2023
-
-Дискотека Авария - The Best, Part 1 (2023) [MP3|320 Kbps] <Dance Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Х.Х.Х.И.Р.Н.Р [00:03:21]
-02 - Малинки-Mалинки [00:04:05]
-03 - Небо [00:03:50]
-04 - Яркий я [00:03:42](   Читать дальше...   )Жанр: Dance PopПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C105630D5DCDCD3B74F6EA6418ECD99C44239951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595496   (175474) от 05.12.2022
-
-Александр Шоуа & НЕПАРА - 20 (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175474.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Плачь и смотри
-2. Песня о любви (Live)
-3. Никогда
-4. Может быть(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB4E31A818773AD3A0E770E3E3FB933DC14EB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595395   (175469) от 05.12.2022
-
-VA - If You Love Her - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forest Blakk - If You Love Her (Acoustic) (3:41)
-02. Cody Simpson - La Da Dee (Acoustic Version) (3:34)
-03. Ed Sheeran - Where We Land (3:03)
-04. James Blunt - Unstoppable (Acoustic) (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 02:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31DE28F3F28EF1BBB14EFC8BFFA32A402CB1A3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

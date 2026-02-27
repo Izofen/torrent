@@ -1,3 +1,200 @@
+###  Публикация: 1847451   (1052244) от 12.01.2026
+
+Destroy Them - Studio Albums (2 releases) (2018-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Destroy Them - немецкая трэш-метал группа из Эссена; образована в 2016 году.2018 - Use Hate (EP)
+2026 - Threshold Of ApocalypseЖанр: Thrash MetalПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8525FA8562B4493197A5F72A6E1C3E4CF9D88C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847467   (1052234) от 12.01.2026
+
+Velozza - Studio Albums (4 releases) (2017-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Velozza - трэш-метал группа из Рурмонда, Нидерланды, основана в 2016 году.2017 - Excluded Human Being (EP)
+2021 - Apocaholic
+2023 - Bankrupt the Republic (EP)
+2026 - HumanityЖанр: Thrash MetalПродолжительность: 01:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB906D8C09EC15B1653A9D56ACBC5E5D194DD505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847124   (1051979) от 10.01.2026
+
+For My Pain... - Studio Albums (2 releases) (2009-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051979.jpg" />
+</div>
+
+
+###  Подробнее
+
+For My Pain… — финская готик-метал супергруппа из города Оулу. В состав группы входят участники из различных финских групп, в частности Eternal Tears of Sorrow и Nightwish2009 - Fallen
+2026 - Buried BlueЖанр: Gothic Metal/RockПродолжительность: 01:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2113F2C66D92FA11A32AF215F4571A0F1B0CED8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846733   (1051663) от 08.01.2026
+
+Dew-Scented - Studio Albums (11 releases) (1996-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dew-Scented — метал-группа из немецкого города Брауншвейг. Сформирована в 1992 году.1996 - Immortelle
+1998 - Innoscent
+1999 - Ill-Natured
+2002 - InwardsЖанр: Thrash/Death MetalПродолжительность: 08:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4E6028878DF71FFA70447919DFEAFD2C049EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846433   (1051342) от 07.01.2026
+
+Entwine - Studio Albums (8 releases) (1999-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Entwine - финская рок-группа из Лахти, основанная в 1997 году.1999 - The Treasures Within Hearts
+2001 - Gone
+2002 - Time Of Despair
+2004 - DiEversityЖанр: Gothic MetalПродолжительность: 06:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEF360E09BBD9913A8B8D5D7E86A3C5BA741D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845776   (1051000) от 03.01.2026
+
+Miss May I - Studio Albums (9 releases) (2007-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Miss May I - американская метал-группа из города Трой, штат Огайо. Основана в 2007 году.2007 - Vows for a Massacre (EP)
+2009 - Apologies Are For The Weak
+2011 - Monument
+2012 - At HeartЖанр: MetalcoreПродолжительность: 05:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85FA17A1B59F9927BDBEBD12ECB9E23405D36F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845545   (1050835) от 
+
+Sinamore - Studio Albums (2 releases) (2006-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sinamore - финская метал-группа, основанная в 2004 году, из участников которой впоследствии была сформирована группа Kaunis Kuolematon2006 - A New Day
+2007 - Seven Sins a SecondЖанр: Gothic Metal/RockПродолжительность: 01:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7FE65827C0D5AEDF52D9631CD1D02431B9D179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845558   (1050827) от 
 
 End of Aeon - Studio Albums (2 releases) (2012-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
@@ -540,206 +737,6 @@ Broken Fate - швейцарская метал-группа из Цюриха, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80A6B6526201B19774B6DFD568231E390DF2CEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839985   (1046930) от 02.12.2025
-
-Nailed to Obscurity - Studio Albums (5 releases) (2007-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nailed to Obscurity - метал-группа из города Эзенс, Германия, основана в 2005 году.2007 - Abyss
-2013 - Opaque
-2017 - King Delusion
-2019 - Black FrostЖанр: Melodic Doom/Death MetalПродолжительность: 04:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83A18E85EE510D67D4F933E0DCCB5852AAAB67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839615   (1046696) от 29.11.2025
-
-VA - 20 Rock 'N' Roll Hits (1976) Original Versions [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046696.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Chuck Berry - Carol
-A2 Jerry Lee Lewis - High School Confidential
-A3 Marty Wilde - A Teenager in Love
-A4 Fats Domino - Jambalaya (On The Bayou)(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D719CD4652C3E95FE3317F4A76D5281B25A143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602194   (1046184) от 04.01.2023
-
-Alison Krauss & Union Station - New Favorite (2003) [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Bluegrass, Country>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неплохо сведенный в многоканале, очень мелодичный альбом кантри-музыки. Мне понравилось))За образ SACD благодарим01. Let Me Touch You For Awhile
-02. The Boy Who Wouldn't Hoe Corn
-03. The Lucky One
-04. Choctaw Hayride(   Читать дальше...   )Жанр: CountryПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:818C609FCB90075462399BCA49BEAF186E1D936D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603371   (1045758) от 09.01.2023
-
-Jim MacLeod and his band - 60 Minutes de danses écossaises (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Celtic, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Face 1:
-01.Duke And Duchess Of Edinburgh
-02.McDonald Of Sleat
-03.Circassian Circle(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B51C36E44B5715D78F1B08940C57CDFB31E257B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604982   (1044917) от 17.01.2023
-
-Czerwone Gitary - Two Albums (1974, 1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044917.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Dzien Jeden W Roku
-A2 Nad Swiatem Cicha Noc
-A3 Lec Koledo
-A4 Gwiazda Na Kiju(   Читать дальше...   )Жанр: Pop Rock, FunkПродолжительность: 01:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777FB3100117D2AA13CAE8293BCA015E18E8E9F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605804   (1044694) от 19.01.2023
-
-Steely Dan - Two Against Nature (2000) SACD, Reissue, Remastered, 2022, Analogue Productions [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044694.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gaslighting AbbieЖанр: Jazz, Rock, PopПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE67A33D9917F473E5AB28801F9288676E769AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606807   (1044308) от 23.01.2023
-
-Skaldowie - Szanujmy Wspomnienia (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044308.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Wszystko Kwitnie WkoloA2 Zyczenia Z Calego Serca
-A3 Zgadzam Sie Na Ten Swiat
-A4 Slowa Do Matki
-A5 Szanujmy Wspomnienia(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B702E12FBDB5C1E1E3A0823688A228309BF034C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

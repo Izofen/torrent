@@ -1,3 +1,67 @@
+###  Публикация: 531355   (541830) от 05.08.2012
+
+Astor Piazzolla - Edicion Critica (2005) 7CD [FLAC|Lossless]<Latihin, Tango>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invierno Porteno [08:24]
+02. Verano Porteno [03:55]
+03. Otono Porteno [06:01]
+04. Primavera Portena [05:33]
+05. Buenos Aires Hora Cero [04:03]
+06. Retrato De Alfredo Gobbi [07:47]
+07. Revolucionario [05:22]
+08. Kicho [06:24]
+09. Casa Pueblo [03:53]
+10. Flaco Aroldi [02:36](   Читать дальше...   )Жанр: Latihin, TangoПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049929   (541573) от 06.09.2016
+
+Ocean Waves For Sleep - Collection Of Ocean Sounds (2016) [MP3|320 Kbps] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean SoundsRefreshing Sleep
+02. Ocean SoundsBeach Paradise Relaxation
+03. Ocean SoundsParadise
+04. Ocean SoundsCalm Ocean(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E02D10C559A79FE226B39A7CE90625CE503B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925471   (541322) от 06.08.2015
 
 Kaan Luum - Potala Mousse (2015) [MP3|320 кб/с]<New Age, Meditation>
@@ -721,70 +785,6 @@ Raymond Lefevre et Son Grand Orchestre - Japanese Limited Mini LP SHM-CD (6CD) (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A519CA2197453D2882ACE26C78161AA93128C8DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 367016   (536909) от 23.07.2011
-
-VA - The World Of The Spanish Guitar Vol. 1 /2CD/ (2011) [MP3|320 kbps]<Instrumental, Flamenco, Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 201101. Ottmar Liebert . . . . . . . .  The Night . . . . . . . . . .  4:21
-02. Govi . . . . . . . . . . . . .  Mosaico . . . . . . . . . . .  5:26
-03. Oscar Lopez. . . . . . . . . .  Bailando Rumba. . . . . . . .  4:13
-04. Vicente Amigo. . . . . . . . .  Pan Caliente. . . . . . . . .  5:42
-05. Tomatito . . . . . . . . . . .  Paseo los Castanos. . . . . .  4:53
-06. Jesse Cook . . . . . . . . . .  Breeze from Saintes Maries. .  5:23
-07. Armik. . . . . . . . . . . . .  Moonlight Cafe. . . . . . . .  4:46
-08. Robert Michaels. . . . . . . .  Cupid's Dance . . . . . . . .  4:57
-09. NovaMenco. . . . . . . . . . .  Lorca . . . . . . . . . . . .  3:13
-10. Pavlo. . . . . . . . . . . . .  Midnight Dance. . . . . . . .  3:24(   Читать дальше...   )Жанр: Instrumental, Flamenco, GuitarПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0DBE3B81CA95A93A18EC23923D86BC70EEA1C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239400   (536844) от 06.08.2018
-
-Mythos - Eros (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Kawakari (4:29)
-2. Eros (4:48)
-3. Catana (4:16)
-4. Allure (4:34)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:21:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108088BCEA081F282B1C486AFD788446A3E47F79
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1488426   (1002074) от 11.08.2021
+
+Eons Enthroned - Into the Arcane (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stormblessed
+02. Winds Wept
+03. Freelancer
+04. To Sheathe the Blade (feat. R.A. Voltaire)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6BFF78E58A6D470FEDD0FC23C74D4CC35DCB868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488325   (1002073) от 11.08.2021
+
+Sorceress Of Sin - Constantine (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Necropolis 07:50
+02. Massacre of Meridian 05:12
+03. Realms of Elysium 05:57
+04. Pathogenic Parasite 05:30(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BFC27E767B9FE4CB725E90BA22CB2957125D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275119   (1001905) от 11.01.2020
+
+Kobra And The Lotus - 7 albums (2009-2019) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard'n'Heavy, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kobra and the Lotus - канадская хеви-метал-группа. Группа была образована в конце 2008 года вокалисткой Kobra Paige и гитаристами Matt Van Wezel и Chris Swenson. Их музыкальный стиль часто называют классическим NWOBHM и сравнивают с такими великими коллективами, как Iron Maiden, Dio и Iced Earth.--------------------------
+
+01. Evodem (0:56)
+02. Evolution (4:39)(   Читать дальше...   )Жанр: Hard'n'Heavy, Heavy Metal |Продолжительность: 05:12:17 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6BE3B5B2512C3CFA485ACB1268A29EB9CA504A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352042   (1001723) от 12.01.2020
 
 Darkology - Altered Reflections (2009) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -237,41 +324,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 597568   (999983) от 04.01.2013
-
-Mors Principium Est - ...and Death Said Live (2012) [FLAC|Lossless]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Awakening (0:56)
-02. Departure (5:44)
-03. I Will Return (4:29)
-04. Birth Of The Starchild (4:12)
-05. Bringer Of Light (4:16)
-06. Ascension  (4:30)
-07. ...and Death Said Live (2:02)
-08. Destroyer Of All (3:56)
-09. What The Future Holds? (5:28)
-10. The Meadows Of Asphodel (4:24)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599198   (999428) от 06.01.2013
 
 Sothis - De Opresso Liber (2008) [WavPack|Lossless]<Symphonic Black Metal>
@@ -391,41 +443,6 @@ Dimmu Borgir - 5 CD (1994 - 1998) [FLAC|Lossless]<Symphonic Black Metal>
 06 - Stormblåst (live) (05:10)
 07 - Master Of Disharmony (live) (04:27)
 08 - In Death's Embrace (live) (06:16)Жанр: Symphonic Black MetalПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599953   (998956) от 08.01.2013
-
-Paradox - Tales Of The Weird (2012) [FLAC|Lossless]<Thrash Metal/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Tales Of The Weird (9:19)
-02. Day Of Judgement (4:15)
-03. Brutalized (5:27)
-04. Fragile Alliance (6:24)
-05. Escalation (4:16)
-06. Brainwashed (7:33)
-07. Slashdead (4:54)
-08. Zeitgeist (1:53)
-09. The Downward Spiral (3:42)
-10. A Light In The Black (Bonus Track) (7:17)Жанр: Thrash Metal/Power MetalПродолжительность: 00:55:02
 
 ## Скачать торент
 ```bash
@@ -741,41 +758,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 430186   (994296) от 01.01.2012
-
-Various Artists - Covering 20 Years Of Extremes (2CD) (2008) [FLAC|Lossless]<Brutal Death,Death,Melodic Death,Power,Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В продолжение торжеств в честь юбилея Century Media Records выпустили уникальный сборник "Covering 20 Years Of Extremes", состоящий из 2 CD. Сборник состоит исключительно из каверов; на него попали 32 преимущественно эксклюзивных записи. Century Media обратились к своим исполнителям с просьбой сделать кавера на песни других групп, релизы которых входят в репертуар лейбла, и ответ музыкантов был поистине ошеломляющим. Выбор некоторых композиций был очевиден, музыканты выражали свое уважение тем группам, которые на них повлияли; другие же кавера были выбраны по подсказке. Это сочетание в итоге привело к появлению очень занимательного и поистине уникального окончательного релиза, охватывающего все подстили тяжелой музыки.1. Firewind: Nevermore “Believe In Nothing” (4:22)
-2. Dream Evil: Arch Enemy “Let The Killing Begin” (5:28)
-3. Fear My Thoughts: Heaven Shall Burn “The Weapon They Fear” (4:33)
-4. The Agonist: Dark Tranquillity “Monochromatic Stains” (3:33)
-5. The Forsaken: Grave “You’ll Never See” (5:10)
-6. Devian: Morgoth “Isolated” (5:21)
-7. Heaven Shall Burn: Merauder “Downfall Of Christ” (3:12)
-8. Aborted: Turmoil “Playing Dead” (2:09)
-9. Terror: SubZero “Boxed In” (2:52)
-10. Napalm Death: Hellhammer “Messiah” (3:30)(   Читать дальше...   )2008Жанр: Brutal Death,Death,Melodic Death,Power,Thrash MetalПродолжительность: 01:06:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607903   (994019) от 24.01.2013
 
 Helloween - Straight Out Of Hell (Limited Edition) (2013) [FLAC|Lossless]<Power Metal>
@@ -811,29 +793,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 430644   (993855) от 02.01.2012
+###  Публикация: 608405   (993677) от 25.01.2013
 
-System Shock - 2 альбома (2004-2006) [FLAC|Lossless]<Doom Metal,Melodic Death>
+A Loathing Requiem - Psalms of Misanthropy (2010) [WavPack|Lossless]<Technical Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Getting What We Asked For 04:13
-02. Escape 04:10
-03. Engine Failure 04:59
-04. No Life, No Home 04:49
-05. Broken In Two 04:13
-06. A Note and A Gun 02:34
-07. Bleed 03:45
-08. Mountains of Madness 04:17
-09. Salvation In Stone 06:342004-2006Жанр: Doom Metal,Melodic DeathПродолжительность: 00:39:38
+01. Annihilation Induced By The Luminous Firestorm [04:46]
+02. Rapturous Euphoria [03:32]
+03. False Gods Render Death [03:21]
+04. Enhanced Sinister Corruption (F/Matt Brown) [03:16]
+05. Ecliptic Realm [03:07]
+06. And Darkness Was Cast [02:24]
+07. Architect Or Arsonist (F/ Christian Mьenzner) [03:17]
+08. The Carnage Of Infinite Black [03:44]
+09. Purged And Forgotten [03:59]Жанр: Technical Death MetalПродолжительность: 00:31:28
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,67 @@
+###  Публикация: 640299   (889230) от 06.04.2013
+
+Звезды 80-х / Stars 80 (2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 00:56:37
+
+01. Stars 80 - Dialogues [00:10]
+02. Jean-Luc Lahaye - Femme Que J'Aime [03:41]
+03. Stars 80 - Dialogues [00:11]
+04. Kiss - I Was Made For Lovin' You [04:26]
+05. Stars 80 - Dialogues [00:19]
+06. Peter & Sloane - Besoin De Toi [03:41]
+07. Stars 80 - Dialogues [00:21]
+08. Début de Soirée - Nuit De Folie (Version 2012) [04:14](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB4DD62D51068485D6649E9170DE2E73CF76B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493616   (889098) от 07.09.2021
+
+Pravin (Правин, Павел Новиков) - Swarg Ashram (2008) [FLAC|Lossless|tracks + .cue] <Indian, Mantras, Bansuri>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baro Anurage Daki Toma Pita
+02. Nimne Dharanir Gati Durbar
+03. Ar Sab Jai Jak
+04. Jharna Jharna(   Читать дальше...   )Жанр: Indian, Mantras, BansuriПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D391C1117C620DEFA1D1121A202B1171D3F29E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494372   (889009) от 07.09.2021
 
 Tina Guo - Dies Irae (2021) [FLAC|Lossless|image + .cue] <New Age, Instrumental, Classical>
@@ -730,64 +794,6 @@ Atom Music Audio - Cosmonautica (2020) [MP3|320 Kbps] <Soundtrack, Instrumental,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C1D1CA575E62DE8C32FDF13B21CD0923841D3C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103631   (885959) от 12.02.2017
-
-Lagoon West - Yoga (2005) [APE|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885959.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Source to Sea 7:29
-2. Island Moon 7:34
-3. Kama 8:35
-4. Undertow 2:42(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B33A898C68C94F781C4447141FB095F7D53082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494476   (885955) от 09.09.2021
-
-Tina Guo - Dies Irae (2021) [MP3|320 Kbps] <New Age, Instrumental, Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight Sonata [00:04:30]
-02. Moonheart [00:04:31]
-03. Double Cello Concerto  MVT.1 [00:04:08]
-04. Rivers Flows In Youy [00:03:55](   Читать дальше...   )Жанр: New Age, Instrumental, ClassicalПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14144A716AD853F027F69E763DE2C03C37B85C65
 ```
 
 https://mybot314.ru/tekegram_catalog/

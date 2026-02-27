@@ -1,3 +1,61 @@
+###  Публикация: 1757688   (38926) от 29.10.2024
+
+Medwyn Goodall - Rhythm of the Ancients 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38926.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Following the Rhythm (5:26)
+2. The Dream (7:04)
+3. Pathfinding (6:22)
+4. Wise Woman (5:36)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88579F20CCAE15D3BF2A77C8A83E565BA62900E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758814   (38291) от 04.11.2024
+
+Олег Гребенкин - Русский век (2008) [FLAC|Lossless|image + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		Любо, братцы, любо
+02		Ах, ты, степь широкая
+03		Две гитары, зазвенев...
+04		Ой, то не вечер...(   Читать дальше...   )Жанр: FolkПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC67DFC8655B2BBAE75364A4D5F936F05C2AF88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759383   (37919) от 08.11.2024
 
 Комбинация - Комбинация (2024) [FLAC|Lossless|WEB-DL|tracks] <OST, Pop>
@@ -689,64 +747,6 @@ VA - Can't Hardly Wait (Music From The Motion Picture (1998) CD, Compilation [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5E5B83A4472C6ADD266CB91A5F7B8C83A01C59E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764999   (34419) от 12.12.2024
-
-Travis Tritt - Greatest Hits: From the Beginning (1995) CD, Compilation [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here’s a Quarter (Call Someone Who Cares)    [0:02:32.58]
-02. Anymore    [0:03:48.15]
-03. Put Some Drive in Your Country    [0:04:19.72]
-04. Foolish Pride    [0:04:19.48](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B097F17851C75F5C40FE0644976E9F8F2FD2C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764238   (34414) от 12.12.2024
-
-David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps] <New age, Relax, Meditative, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Stalking (Spirit Dance remix) [06:26]
-02. The Moa Hunters (Spirit Dance remix) [05:29]
-03. The Rainmakers (Spirit Dance remix) [04:32]
-04. Frog Dancing (Spirit Dance remix) [04:44](   Читать дальше...   )Жанр: New age, Relax, Meditative, WorldПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92909C9343F094E2816B92F859210B62CA1C571
 ```
 
 https://mybot314.ru/tekegram_catalog/

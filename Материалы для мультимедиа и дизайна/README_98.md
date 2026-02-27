@@ -1,157 +1,23 @@
-###  Публикация: 1006649   (826524) от 12.04.2016
+###  Публикация: 1204988   (783988) от 08.02.2018
 
-Векторный клипарт - 9 May vector [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826524.jpg" />
-</div>
-
-
-###  Подробнее
-
-День Победы - праздничные элементы в векторе.
-15 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE240D79D4B8E2B89F933A20313B93CEA678F755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115477   (825968) от 18.03.2017
-
-Шрифты - TheHungryJPEG - Free fonts bundle [TTF, OTF, EOT, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор бесплатных шрифтов, много рукописных.
-Поддержка кириллицы есть у Fakedes OutlineФормат: TTF, OTF, EOT, WOFF, WOFF2, SVG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67A7FACBBD89315EFAA9A823B0A922CEF32A809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115567   (825963) от 18.03.2017
-
-Шрифты - FontBundles - Free fonts pack [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор бесплатных шрифтов, много рукописных.
-Поддержки кириллицы нет!Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9E2BB32BF2867B239AD1071EB7C541B708F9F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007027   (824522) от 13.04.2016
-
-Футажи - 9 мая видеофутажи [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник футажей к празднику Дню Победы.Формат: MOVРазрешение файлов: 720x576
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA2EB3E16CEC24B8F82F24D3FAF6CAEC7FDED1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 775271   (823255) от 09.04.2014
-
-Шрифты - Шрифты 25 / Fonts 25 [OTF,TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифты
-окончание моей серии  :hello7:, надеюсь кто-то продолжит
-кириллицу поддерживают: Core Narae Pro, Core Sans N SC, PF Centro Sans ProФормат: OTF,TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88375D1D959869D0D17317F6E51A11C2AA796BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007384   (822702) от 14.04.2016
-
-3D модели - 3darcshop - 3darcmodels free vol.02 [V-Ray|*.max]
+3D модели - Daz 3D - Fairy Outfit for Karyssa 8 and Genesis 8 Female(s) - 50191 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822702.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d archshop предоставляет бесплатный сборник освещения, в который входят 150 моделей люстр, бра и абажюров в "восточном" стиле.Формат: V-Ray|*.max
+Наряд феи для Karyssa 8 и Genesis 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5A3FF82242B340B16FC59EA42EB7016F5ECF982
+magnet:?xt=urn:btih:93DAE5929F287ABB9FBCA2D6938732A00EFEF6D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -159,25 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381971   (822363) от 09.05.2020
+###  Публикация: 1389708   (783869) от 12.06.2020
 
-Паттерны - TheHungryJPEG - Free Evening Dreaming Patterns - 3523771 [JPG, PNG, PSD]
+Фоны - Deeezy - Marble Paint Backgrounds - 18114 [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822363.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные цветочные орнаменты в растре.Разработчик: Zzorna ArtФормат: JPGРазрешение файлов: 4000 x 4000
+Абстрактные фоны в растре. Материал раздается с официальной документацией.Разработчик: Pete CruzineФормат: JPGРазрешение файлов: 5184 x 3456
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F5E5BE3AE525218AADF3A98CBC9673A3175B45B
+magnet:?xt=urn:btih:57D1FCFEC9A3F5CFD008645D46133E9947C0DDF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,79 +51,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381965   (822362) от 09.05.2020
+###  Публикация: 1205409   (783765) от 09.02.2018
 
-Векторный клипарт - Сборник 9 Мая [EPS, AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_822362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-9 Мая с днем победы.
-9 EPS, AI + previewФормат: EPS, AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511F788D8AAFDA030CFDA3245F924E6C0CFE4579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381973   (822358) от 09.05.2020
-
-Паттерны - DesignBundles - Watercolor tropical seamless pattern with pink flamingo [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные растровые бесшовные орнаменты с тропическими пальмовыми листьями, листьями монстеры, экзотическими цветами, хамелеоном, розовым фламинго. Материал раздаётся с официальной документацией.Разработчик: NataliarФормат: JPG, PNGРазрешение файлов: 4000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AE418CF6D2CE8FF13D42CF67FA1AB1D236E2380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314856   (820486) от 27.03.2011
-
-3D Модели - DAZ3D - Модели Toon Modeles
+3D модели - Daz 3D - Kenji 7 Pro Bundle - 31673 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820486.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом релизе предлагается набор 3D моделей мультипликационных персонажей. Тут и люди и животные, роботы и драконы, говорящие курительные трубки и танцующее печенье и многое другое. Модели в стандартном комплекте - фигуры, позы, морфы, движения, текстуры. Объекты, которые хорошо стыкуются с фигурами людей и животных из прошлых раздач или используются самостоятельно (   Читать дальше...   )Язык интерфейса: eng
+Профессиональный пакет Kenji 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:1D36957F3FE4E86049437A35B78DFBA43E3E26BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,28 +78,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 882284   (820166) от 27.03.2015
+###  Публикация: 1205347   (783709) от 09.02.2018
 
-3D сцены - Evermotion - Archexteriors Vol. 23 [V-Ray|*.max]
+3D модели - Daz 3D - Karyssa 8 Pro Bundle - 49305 + Genesis 8 Starter Essentials - 42071 [DUF]
 
 >>Материалы для мультимедиа и дизайна
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820166.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очередной сборник сцен экстерьера от компании Evermotion!
-
-Данный сборник содержит 10 сцен города Майами: полностью затекстуренных и готовых к рендерингу.
-Так же в сборник включены файлы .psd с примером пост-обработки.Формат: V-Ray|*.max
+Комплект Karyssa 8 Pro и Genesis 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7BF495DE96DBFA24E4CD36EA7A6207CBA9B9CF5
+magnet:?xt=urn:btih:DD9BD539FE5EE26E8A3166F83C8BFABE75DF32AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -294,25 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 776083   (819711) от 11.04.2014
+###  Публикация: 1390124   (783592) от 13.06.2020
 
-Векторный клипарт - Флаги мира 2 / World flags 2 [EPS]
+Сборник - Creative Market - Cartoon Characters & Items Bundle - 1875315 [PNG, JPG, EPS, AI, PSD, CSH]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819711.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Флаги мираФормат: EPS и превью в JPG
+Большая коллекция мультипликационных персонажей, иконок, талисманов, 3D-рендеров, PSD-файлов, символов, объектов и т. д. Включая различные предметы для праздников, таких как Хэллоуин, День Благодарения и Рождество. Все эти файлы сделаны в последние годы, некоторые старые, а некоторые новые.Формат: PNG, JPG, EPS, AI, PSD, CSHРазрешение файлов: 652x1741-1973x1704
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5569FFF22E701D5856DB013703ACB11D344C927
+magnet:?xt=urn:btih:38D2D9DCA58BAAB4C8CB653C77341DB293E40E3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,25 +131,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 776268   (819604) от 11.04.2014
+###  Публикация: 1205493   (783478) от 10.02.2018
 
-Векторный клипарт - Абстрактные фоны 26 / Abstract Backgrounds 26 [AI,EPS]
+3D модели - Daz 3D - Elijah 7 Pro Bundle - 36169 [DUF]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819604.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Абстрактные и не совсем абстрактные фоныФормат: AI,EPS и превью в JPG
+Комплект Elijah 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F20735E79403693CD2C3769B0F23C4AD9B760FDC
+magnet:?xt=urn:btih:76DEA7A2A0853172899EAC34A3E6D16EE977C5F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,27 +158,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503582   (819241) от 19.10.2021
+###  Публикация: 1205511   (783474) от 10.02.2018
 
-Векторный клипарт - Fotolia - Сборка векторного клипарт смайлы [EPS, AI]
+3D модели - Daz 3D - FWSA Liam HD + Vampire and Hunter Kit Bundle - 33439 [DUF]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819241.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Смайлы
-117 EPS, AI + previewФормат: EPS, AI
+Комплект Liam + Vampire and Hunter для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53543A6495AF9629DE009CB17D0C8A6B86B22AA8
+magnet:?xt=urn:btih:6C00FF4DAB265E35BFFB016623716C6375CA8CC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,25 +185,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382561   (818816) от 11.05.2020
+###  Публикация: 1205497   (783471) от 10.02.2018
 
-Фотографии - PHOTOBASH - GRAND WHITE MOSQUE [JPG]
+3D модели - Daz 3D - Damien Pro Bundle - 37285 [DUF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818816.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотографии знаменитой Большой мечети Шейха Зайда запечатлены в различных условиях освещения. Снимки охватывают внешние фасады, коридоры и дорожки, интерьеры мечетей, современные арабские орнаменты и многие другие эклектичные и современные детали архитектурного дизайна.Формат: JPGРазрешение файлов: 2892x4000-14009x7814
+Комплект Damien для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D151AC84A333C26F001BD1A9DDABF4E926278A3
+magnet:?xt=urn:btih:420406EBC2F832E6FBBE1870C70CAB12C9507883
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,25 +212,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382572   (818812) от 11.05.2020
+###  Публикация: 1205505   (783470) от 10.02.2018
 
-Фотографии - PHOTOBASH - FLOATING VILLAGE [JPG]
+3D модели - Daz 3D - Lucian 7 Pro Bundle - 34203 [DUF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818812.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хижины рыбацкой деревни вдоль реки в Юго-Восточной Азии. Включает в себя обширные снимки домиков на сваях, плавающих хижин, выветрившихся лодок и различных подобных трущобам деталей. Съемка в дневное время с разными углами освещения; включает в себя множество сильных силуэтов ходулистых структур.Формат: JPGРазрешение файлов: 4000x1971-7952x5304
+Комплект Lucian 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F3858B402329D2C0DDABD8AE16214AAC39C70D1
+magnet:?xt=urn:btih:B363A34D339A97D0793502F33785E12F3A2CA96C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,25 +239,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382625   (818495) от 11.05.2020
+###  Публикация: 1205516   (783465) от 10.02.2018
 
-Плагины - GraphicRiver - Animator Photoshop Plug-in for Animated Effects v1.2 - 25403011 [JSX, PSD]
+3D модели - Renderosity - Phx James for Michael 8 - 124866 [DUF]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818495.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ANIMATOR Photoshop Plug-in - это профессиональный многоцелевой пакет из более 100 пресетов, который может ускорить рабочий процесс в Photoshop. ANIMATOR - лучшее решение для пользователей, которым нужны красивые анимации для творческих проектов. Этот плагин Photoshop содержит множество полезных элементов в разных стилях. Вы можете легко добавить анимацию в свой дизайн (   Читать дальше...   )Формат: JSX, PSD
+James для Michael 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FC0FF0E6AB5DC0B5D8AC0591494825456BF413E
+magnet:?xt=urn:btih:E1F9C5625CDF5F7D6259A92F085F873FB081C301
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,25 +266,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382836   (817375) от 12.05.2020
+###  Публикация: 1205445   (783461) от 10.02.2018
 
-Растровый клипарт - Behance - Balloon - 55482949 [PSD]
+3D модели - Daz 3D - Dante 7 Pro Bundle - 37227 [DUF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817375.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный алфавит-латиница+знаки препинания и т.п. в растре с дополнениями. Материал раздается с официальной документацией.Разработчик: Aga Magdziak (Warszawa, Poland)Формат: PSDРазрешение файлов: 2480 x 3118
+Комплект Dante 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3D832C3FE51696051BD14DE1AC7BCEC4C4BFC67
+magnet:?xt=urn:btih:C288834A4FAA951750B928C9711381060BA8FEF9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,26 +293,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007815   (817160) от 17.04.2016
+###  Публикация: 1205520   (783455) от 10.02.2018
 
-Векторный клипарт - Grunge Shapes  Vector [EPS]
+3D модели - Daz 3D - Ivan 7 Pro Bundle - 30853 [DUF]
 
 >>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817160.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-6 EPS | + JPG PreviewФормат: EPS
+Комплект Ivan 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6DEED5E1F8B7FB3F865D437F70684E3C175D8C7
+magnet:?xt=urn:btih:C946FED09B8AACB2E45409A3558FFEE5FE16138F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,25 +320,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196568   (817121) от 06.01.2018
+###  Публикация: 1205501   (783445) от 10.02.2018
 
-Экшены - GraphicRiver - Digi Paint Photoshop Action - 21174860 [ATN, ABR, PAT]
+3D модели - Daz 3D - Centaur 7 Male Pro Bundle - 37321 [DUF]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817121.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Digi Paint - простой в использовании экшен фотошоп, превратит ваши фото в красочное художественное полотно. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
+Комплект Centaur 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:063643BB52B41EA745DCB241F3F8E9A18F269588
+magnet:?xt=urn:btih:0853C3E4548162F7FA1B73D11CB17AFD311ACBE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,25 +347,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382660   (817086) от 12.05.2020
+###  Публикация: 1205509   (783439) от 10.02.2018
 
-Фотографии - PHOTOBASH - DUST CLOUDS [JPG]
+3D модели - Daz 3D - Ancient Egypt Bundle – Character, Outfit, Expansion and Poses - 39285 [DUF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817086.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обширная коллекция пыли и облако частиц, снятых в последовательности на черном фоне. Полезно для добавления эффектов, таких как пыль, падающая с потолков, поднимание песка, взрывы грунта и другие эффекты, которые требуют добавления атмосферы и частиц летящей пыли.Формат: JPGРазрешение файлов: 3062x5899-12054x5865
+Комплект Ancient Egypt для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E39B527BF8F0CDB78DDD5638A26E6C467AEDE7C
+magnet:?xt=urn:btih:0FEBB773A714417DA57F2865F355CADD3AB8E0DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,26 +374,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196571   (817008) от 06.01.2018
+###  Публикация: 1205592   (783431) от 10.02.2018
 
-Экшены - GraphicRiver - Modern Ink Photoshop Action - 21169470 [ATN, ABR, PAT]
+3D модели - 3ddd - Сборка игрушечного транспорта [V-Ray|*.max, FBX, OBJ]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817008.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783431.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Modern Ink - этот экшен фотошоп, превратит ваши фото в полотно с эффектом чернильной абстракции. После того, как действие закончит работу, вы получите структурированный файл со множеством слоёв, для улучшения конечного результата.
-Рекомендуемое разрешение для достижения наилучшего результата - 1500px - 4000px.Формат: ATN, ABR, PAT
+Сборник игрушечного транспорта входит Lego и радиоуправляемые модельФормат: V-Ray|*.max, FBX, OBJ
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B8C33A5DB9143C1AF984B8CC8AD8CD82D4F6E29
+magnet:?xt=urn:btih:07322826FAEBF52081BDD2CD9094D6BE9BF61137
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,51 +400,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008120   (816868) от 17.04.2016
+###  Публикация: 1205490   (783424) от 10.02.2018
 
-Пресеты - VideoHive - The Ultimate Glitch + 70 Presets Pack [FFX, AEP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816868.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Ultimate Glitch + 70 Presets Pack - набор глюковых пресетов для видео и текста. Добавьте изюминку в ваши проекты, используя уникальные переходы и эффекты, созданные без применения плагинов.Формат: FFX, AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35219752D31227F84DC66300CE002F57D35F3D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 117244   (816758) от 06.01.2018
-
-Стили - Styles Collection for Photoshop 56 [ASL]
+Экшены - GraphicRiver - Watercolor 2 Artist Photoshop Action - 21313459 [ATN, ABR, PAT]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_816758.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очень разные стили для фотошопа от золота, льда и т.д.Формат: ASL
+Watercolor 2 Artist - Профессиональное многофункциональное художественное действие превратит ваши фотографии в впечатляющие акварельные произведения искусств с множеством элементов и опций для настройки и улучшения. Высоко детализированный результат, много возможностей.Формат: ATN, ABR, PAT
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B29A6825F1AA48FC9E1AC58515C9C248298E64BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,26 +426,52 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 881694   (816357) от 29.03.2015
+###  Публикация: 1390286   (783313) от 14.06.2020
 
-Экшены - GraphicRiver - All Charles Brown's Best Pro Actions Bundle - 2015947 [ATN]
+Digital Juice - Juice Drops 33: ethnicECHOES [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этническая коллекция EHOES - это профессиональный ресурс выразительных изображений мировой культуры, который позволяет показать пронзительные особенности народного искусства, и в то же время получить удовольствие от увиденного. Вы найдете здесь такие разнообразные жанры, как тибетский и греческий, инуитский и африканский, которые отражают подлинный дух их этносов. (   Читать дальше...   )Формат: PSDРазрешение файлов: 5175х3375, 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78454CDEBFEA0A1CEA7AB3070B8069C1AF331B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390143   (783288) от 14.06.2020
+
+Кисти - ArtStation - Ornament Trim Brush and 3D Models + 6 Video Tutorials-VOL 02 [Corona|V-Ray|*.max, OBJ, JPG, PNG, PSD, TIF, ZBP]
 
 >>Материалы для мультимедиа и дизайна
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816357.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот мега пакет содержит самое лучшее из экшенов Чарльза Брауна. Это ваш шанс превратить ваше художественное произведение во что-то экстраординарное!
-17 наборов. 399 экшенов. Более 10 000 возможных результатов.Формат: ATN
+Этот продукт включает в себя 50 кистей орнаментов для Zbrush и 50 3d-моделей для использования с любым программным обеспечением 3d (3dmax, maya, blender, C4D, ...)
+Я сделал два примера предварительного просмотра для всех кистей и также показал Trim Point в предварительном просмотре.Формат: Corona|V-Ray|*.max, OBJ, JPG, PNG, PSD, TIF, ZBPРазрешение файлов: 4096x4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4895ACE68CA493FC3E780B06A450A800AC0CC102
+magnet:?xt=urn:btih:BD997D0F19F4B5175B422938FC3F6B7C9E4A7BF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,25 +479,215 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196674   (815803) от 07.01.2018
+###  Публикация: 1205778   (783195) от 11.02.2018
 
-Растровый клипарт - Winter Sketches #03 [PNG]
+3D модели - Daz 3D - Lee 7 Pro Bundle - 24367 [DUF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815803.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783195.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Зимние зарисовки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 236x502-1920x1200
+Комплект Lee 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CC69411EC78500F81D8C31DC5D75BE00AAE445A
+magnet:?xt=urn:btih:0F69D5BFBF2233D31F3DFE95C32D52FBC0395D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205790   (783192) от 11.02.2018
+
+3D модели - Daz 3D - The Guy 7 Pro Bundle - 23925 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект The Guy 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602248631F095B3D8AD2494EE6A709969B692391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205773   (783191) от 11.02.2018
+
+3D модели - Daz 3D - Kimo 7 Pro Bundle - 30848 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Kimo 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA619ECF1F3A1303ED47343D5DA0983C72097F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205784   (783189) от 11.02.2018
+
+3D модели - Daz 3D - Leo 7 Pro Bundle - 23378 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Leo 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36EFEB6EB6988BEE88892149A053B8BF0B7D03D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205793   (783169) от 11.02.2018
+
+3D модели - Daz 3D - Gianni 7 Pro Bundle - 23796 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Gianni 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F4445E391B907C5C0533441354BEF39805FF77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205888   (783160) от 11.02.2018
+
+3D модели - Daz 3D - Darius 7 Pro Bundle - 34031 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Darius 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B9C1D982EC56071D8C3B367B450121868B5094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205882   (783157) от 11.02.2018
+
+3D модели - Daz 3D - Sunny 7 Pro Bundle - 29323 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Sunny 7 для DAZ 3D из категории People.
+Для Genesis 3Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDE4FDADD959A611D8AD24D8CEF669CD7487AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205825   (783132) от 11.02.2018
+
+3D модели - Daz 3D - Victoria 8 Pro Bundle - 43677 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Victoria 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53A694A20DEEBD175CBABCEA68368843E150168
 ```
 
 https://mybot314.ru/tekegram_catalog/

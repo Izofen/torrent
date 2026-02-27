@@ -1,3 +1,61 @@
+###  Публикация: 1179966   (337771) от 05.11.2017
+
+Room Of Voices - Casbah (2017) [MP3|320 Kbps] <Electronic, World>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirror Mirror (5:08)
+02. I Got You Inmymind (4:37)
+03. Lost off Shore (6:47)
+04. Calling Out (7:57)(   Читать дальше...   )Жанр: Electronic, WorldПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3328E50F6AE3DBF430E7C88E7965E9C6E1358C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180627   (337762) от 05.11.2017
+
+Kai Rosenkranz - Risen (Game Soundtrack) (2009) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Risen Title Theme
+02. The Beach
+03. The Beach - Fight
+04. The Island(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E00FDAF1C5A63E17E34EE3B46033F05BCF6C6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180906   (337500) от 05.11.2017
 
 VA - Latino Top 30 Latin Hits (2017) [MP3|320 Kbps] <Latin, Salsa>
@@ -684,64 +742,6 @@ Mythos - Purity (2006) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC8D9AB7B103BAF63B459200D9731DDF987312C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579458   (333361) от 29.09.2022
-
-Mythos - Mythos (1998) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brazil
-02. June
-03. Sunless Sea
-04. November(   Читать дальше...   )Жанр: Electronic, Pop, New AgeПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C916AA29EA87687786CF8353161A0C190B00B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258841   (333022) от 01.11.2018
-
-Dog Music - Christmas Piano Music For Dogs, Sleeping Music For Pets, Dog Music & Instrumental Christmas Music (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy To The World
-02. Silent Night
-03. The First Noel
-04. Carol of the Bells(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC95372668ECC6E1C5C75B524C710EC94D72BA28
 ```
 
 https://mybot314.ru/tekegram_catalog/

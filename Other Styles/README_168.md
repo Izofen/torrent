@@ -1,3 +1,61 @@
+###  Публикация: 1084586   (218418) от 19.12.2016
+
+VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtrack) (2016) [MP3|320 кб/с]<Score, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Timberlake, Gwen Stefani, Ron Funches - Hair Up (02:59)
+02. Justin Timberlake - CAN'T STOP THE FEELING! (03:58)
+03. Anna Kendrick, Gwen Stefani, James Corden, Ron Funches, Walt Dohrn, Caroline Hjelt, Aino Jawo, Kunal Nayyar - Move Your Feet / D.A.N.C.E. / It's A Sunshine Day (02:37)
+04. Anna Kendrick - Get Back Up Again (02:46)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:05:22 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743455973098DEC56887CC5EFF9D1C06564F16E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966405   (218179) от 18.12.2015
+
+Enya - Enya / The Celts (1992) Unofficial Release, 2015, Chinese Dragon Music [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_218179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Celts (02:57)
+02. Aldebaran (03:06)
+03. I Want Tomorrow (04:02)
+04. March Of The Celts (03:17)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337BFED10803B3E3FB11A469F1569A74D50B9C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343156   (217956) от 06.12.2019
 
 Бамблби / Bumblebee (2018) [MP3|320 Kbps] <OST, Soundtrack>
@@ -719,70 +777,6 @@ Blackmore's Night - Nature's Light (2021) 2CD, Mediabook [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66AB36B46CA504B6DAC1EEF6EB13ECC8B0B5F58A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084298   (215217) от 20.12.2016
-
-VA - Бременские Музыканты. По следам Бременских Музыкантов (2001) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бременские музыканты
-
-01. Вступление - 01:01
-02. Песенка друзей - 02:27(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD31F5964FD69DFCFE42B08876B154858B152B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852618   (215066) от 26.12.2014
-
-Soundcritters - Morrow Forge (2013) [MP3|320 кб/с]<Trailer Music>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Tomorrow (4:11)
-02. Exploration of the World (3:57)
-03. Flight to the Core (2:46)
-04. Fall of the Arc (3:34)
-05. Floating Above (3:43)
-06. Spark of Hope (3:53)
-07. Heroic Opportunities (2:41)
-08. Aura (4:25)
-09. New Eden (3:29)
-10. Speed of Light (3:29)(   Читать дальше...   )Жанр: Trailer Music (epic orchestral)Продолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B854448D0D7A9F07EE3A1399E9F348B8683E9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

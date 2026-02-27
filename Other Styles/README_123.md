@@ -1,3 +1,58 @@
+###  Публикация: 548433   (466764) от 18.09.2012
+
+ALTERSON - Entrance (2010) [MP3|320 кб/с]<Психоактивная аудиопрограмма>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Психоактивная аудиопрограммаПродолжительность: 00:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC1BEC724F23CE3EF9E6F5239FE3D87D6B7B908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940731   (466746) от 25.09.2015
+
+The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC|Lossless]<Instrumental, Easy listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello
+02. Tonight I Celebrate My Love
+03. Body Talk
+04. All Time High(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417C6CCC4DE995D3C92BA9AAF04AB03361C860EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407419   (466398) от 07.09.2020
 
 The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
@@ -685,64 +740,6 @@ Michael Whalen - Kiss the Quiet (2018) [MP3|320 Kbps] <New Age, Piano, Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B451CB3B100A5947FA4A5665E4A46336A377B628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941759   (460057) от 28.09.2015
-
-Dario Marianelli - Everest (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Call
-02. Setting Off From Kathmandu
-03. First Trek: Base Camp
-04. Arriving At The Temple (feat. The Monks Of Tharig Monastery)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0529A82C2E2BC88C5060A436FAF6291655999752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568718   (459623) от 09.08.2022
-
-The Studio London Orchestra & Singers - Memory - 20 Love Themes (1985) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello
-02. Tonight I Celebrate My Love
-03. Body Talk
-04. All Time High(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29F21CBC21CCFF5153BC32737E8FEDB7CD97DEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1673709   (163199) от 03.11.2023
+
+Angra - Cycles Of Pain (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyclus Doloris (0:48)
+02. Ride Into The Storm (6:12)
+03. Dead Man On Display (6:07)
+04. Tide Of Changes (Pt. I) (1:15)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7688709E0C58CCE5307DB9F9C4FA689D1B17AACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673668   (163119) от 03.11.2023
+
+VA - Аракс / Веселые Ребята - Песни На Стихи Виктора Дюнина (1980) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163119.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Аракс– Мир Снов
+(музыка – С. Рудницкий)
+A2 Веселые Ребята – Если Б Не Суббота
+(музыка – В. Аникеев)(   Читать дальше...   )Жанр: PopФормат: FLAC, image+.cueПродолжительность: 00:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4330F517B6E40B67F899FFE7EAC635D59CD9A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673673   (163019) от 03.11.2023
+
+Jean Michel Jarre - Oxymoreworks (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_163019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brutalism Take 2 (5:00)
+02. Epica Extension (4:29)
+03. Brutalism Reprise (4:29)
+04. Epica Take 2 (5:34)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3538DF15A47E89772A927DC89FAF4C09759980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598473   (162447) от 19.12.2022
+
+John Di Martino's Romantic Jazz Trio - Lovegame - Tribute to LADY GAGA (2012) Japanese Edition, 2019, Venus Records [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judas
+02. LoveGame
+03. Americano
+04. Paparazzi(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78A75C9BDA784638D25559F1FEFDE9293CF6F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503358   (162138) от 16.12.2021
+
+Smackbound - 20/20 (2020) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Melodic Modern Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wall of Silence (3:27)
+02. Drive It Like You Stole It (3:36)
+03. Close to Sober (4:29)
+04. Run (2:57)(   Читать дальше...   )Жанр: Melodic Modern Metal, Power MetalПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA8EFB778CDD57152F673E677A3578F02086CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674226   (162115) от 04.11.2023
+
+Till Lindemann - Zunge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_162115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zunge (4:36)
+02. Sport frei (4:13)
+03. Altes Fleisch (4:25)
+04. Übers Meer (3:19)(   Читать дальше...   )Жанр: Industrial metalПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E828FC06A31BAD5C4A92EA70F0A0B2036A781E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598370   (161775) от 20.12.2022
+
+HIM - Studio Albums (10 releases) (1997 - 2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Rock, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_161775.jpg" />
+</div>
+
+
+###  Подробнее
+
+HIM — финская рок-группа, созданная в 1991 году вокалистом Вилле Вало, гитаристом Микко Линдстремом и басистом Микко Паананеном. Первоначальное название коллектива было His Infernal Majesty (Его дьявольское Величество), но его заменили аббревиатурой HIM, когда начались обвинения в пропаганде сатанизма. Некоторое непродолжительное время во время гастролей по США и (   Читать дальше...   )1997 - Greatest Lovesongs Vol. 666
+2000 - Razorblade Romance
+2001 - Deep Shadows And Brilliant Highlights
+2003 - Love Metal(   Читать дальше...   )Жанр: Gothic Rock, Gothic MetalПродолжительность: 10:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE846906E176701A8A43C083589F4D1D55E0035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674268   (161365) от 05.11.2023
 
 Vektor - Studio Albums (4 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash Metal>
@@ -536,209 +739,6 @@ Execution Day - HEAL (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E373CF70C3C93500CB9EDF6EA4440057BD5E4E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675337   (160250) от 09.11.2023
-
-Empire of Disease - Shadows in The Abyss (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Metalcore, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Valley [5:30]
-02. Time for a New Era [4:28]
-03. Ghost of the Past [3:59]
-04. Digging Our Graves [4:54](   Читать дальше...   )Жанр: Metal, Metalcore, Melodic Death MetalПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6DCB5884F7682F9C96BB6D25749B60B6600020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675321   (160234) от 09.11.2023
-
-War Curse - Confession (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Heavy Metal, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Nothing (That Is Me) [5:07]
-02. Fortress of Agony [3:25]
-03. Confession [4:08]
-04. Miracle Broker [3:20](   Читать дальше...   )Жанр: Metal, Heavy Metal, Thrash MetalПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FCAA72587065BDADE01C8FF84B559B7C2C53B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675318   (160217) от 09.11.2023
-
-Varg - Ewige Wacht (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pagan Metal, Viking Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160217.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-01. Immer Treu [4:19]
-02. Schildmaid [4:08]
-03. Weltenfeind [4:25](   Читать дальше...   )Жанр: Pagan Metal, Viking Metal, Melodic Death MetalПродолжительность: 01:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A63579A7DB7B58E85D099C042B21FCD64B0B8DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551791   (160021) от 22.12.2022
-
-Battle Beast - Дискография (6 releases) (2011 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battle Beast — финская хэви-метал-группа из Хельсинки. Группа была основана в 2005 году.2011 - Steel
-2013 - Battle Beast
-2015 - Unholy Savior
-2017 - Bringer of PainЖанр: Heavy Metal, Power MetalПродолжительность: 05:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D54000534ACA8DF8939623144159B2EB51A68A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315014   (159988) от 22.12.2022
-
-Earth, Wind & Fire - Touch The World (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Smooth Jazz, Soul, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159988.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 System Of Survival
-A2 Evil Roy
-A3 Thinking Of You
-A4 You And I(   Читать дальше...   )Жанр: Smooth Jazz, Soul, FunkПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D762DE48E3BE4104DB6252EB6CCE61BFD52ABD26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675854   (159864) от 10.11.2023
-
-Butcher Babies - Studio Albums (5 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Groove Metal, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Butcher Babies — американская метал группа из Лос-Анджелеса, Калифорния. Группа была создана в 2010 году2013 - Goliath
-2015 - Take It Like A Man
-2017 - Lilith
-2023 - Eye for an Eye... / ...'Til the World's BlindЖанр: Metalcore, Groove Metal, Thrash MetalПродолжительность: 03:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA661C389E4F781C2601AB5481DEC028227949A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675585   (159850) от 10.11.2023
-
-James Blunt - Who We Used To Be (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saving A Life [2:56]
-02. Some Kind Of Beautiful [2:58]
-03. Beside You [3:06]
-04. Last Dance [2:49](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3524940E2773CC9148E3F7190D46B7F2F0EBF226
 ```
 
 https://mybot314.ru/tekegram_catalog/
