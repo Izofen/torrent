@@ -1,61 +1,3 @@
-###  Публикация: 1856247   (1058694) от 
-
-Филипп Киркоров - UNO (2026) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058694.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я эту жизнь тебе отдам
-2. Одинокая нежная
-3. Везувий
-4. Я без тебя задыхаюсь(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BCC89BF2FDED5CD7CA64EAF6E8029424B2E7490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856249   (1058693) от 
-
-Йемен - Новый релиз (2026) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058693.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Новый релиз
-2. Хорошие песни
-3. Велкопоповицкий козел
-4. Не шарю(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443745B1641CB75D694A349443B3C01C1683A865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856248   (1058692) от 
 
 Scorpions - Lonesome Crow (1972) 2026 Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -542,32 +484,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856271   (1058674) от 
-
-R-Drive Image Technician 7.3 Build 7314 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058674.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Drive Image — является эффективной утилитой для создания файлов образа диска и резервного копирования данных. Файл образа диска, содержащий точную, "байт в байт" копию жесткого диска, раздела или логического диска, может быть создан без перезагрузки компьютера и с различным уровнем сжатия данных. Созданный образ диска может быть сохранен на носителях (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C043337BB78F1002C3DC5C711F12A2CB649168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856147   (1058673) от 
 
 Шапокляк (1974) HDTV [H.264/1080i]
@@ -691,6 +607,90 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5533D78C51B55A5196F2D3130BA25BBB6429DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855904   (1058668) от 
+
+Pro-Pain - Foul Taste Of Freedom (1992) Reissue, 2005, Candlelight Records USA [FLAC|Lossless|image + .cue] <Hardcore, Groove, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foul Taste Of Freedom
+02. Death On The Dance Floor
+03. Murder 101
+04. Pound For Pound(   Читать дальше...   )Жанр: Hardcore, Groove, Thrash MetalПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCF761EFE2463CBAC41281A122AB39EF7D3AE97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855923   (1058667) от 
+
+Anata - The Infernal Depths of Hatred (1998) 2001, Reissued, CD-Maximum [FLAC|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Released When You Are Dead (04:22)
+02. Let the Heavens Hate (03:50)
+03. Under Azure Skies (05:39)
+04. Vast Lands / Infernal Gates (05:07)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8BB491B2B432E04608693BB699AA668CDC60E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856278   (1058666) от 
+
+Дорогая, я уменьшаюсь / L'homme qui rеtrеcit / The Shrinking Man (2025) BDRip [H.264/1080p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1058666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время плавания на лодке Скотт Кэри сталкивается с радиоактивным туманом, после которого замечает странные изменения в своем теле — он начинает стремительно уменьшаться. Вскоре, оказавшись запертым в собственном подвале и достигнув роста всего лишь в 5 сантиметров, ему предстоит бороться за выживание в привычном, но уже враждебном для него мире.Производство: Франция, Бельгия / Amazon Prime Video, BE TV, Cin? +OCS, La Direction de L’Audiovisual de Communaute Francaise de BelgiqueЖанр: фантастика, приключенияРежиссер: Ян КуненАктеры: Жан Дюжарден, Мари-Жозе Кроз, Дафне Ришар, Салим Тальби, Серж Свисен, Стефани Ван ВивеПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, французскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 01:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D5F3AA8E603A3EBC54E9E8233294059068FEDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
